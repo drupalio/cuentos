@@ -1,0 +1,23 @@
+# El Otro Yo
+
+**Autor:** Juan Pablo Guevara
+
+**Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-el-otro-yo/6344/
+
+---
+
+Se trataba de un muchacho corriente: en los pantalones se le formaban rodilleras, leía historietas, hacía ruido cuando comía, se metía los dedos a la nariz, roncaba en la siesta, se llamaba Armando. Corriente en todo menos en una cosa: tenía Otro Yo.
+
+El Otro Yo usaba cierta poesía en la mirada, se enamoraba de las actrices, mentía cautelosamente, se emocionaba en los atardeceres. Al muchacho le preocupaba mucho su Otro Yo y le hacía sentirse incómodo frente a sus amigos. Por otra parte, el Otro Yo era melancólico, y debido a ello, Armando no podía ser tan vulgar como era su deseo.
+
+Una tarde Armando llegó cansado del trabajo, se quitó los zapatos, movió lentamente los dedos de los pies y encendió la radio. En la radio estaba Mozart, pero el muchacho se durmió. Cuando despertó el Otro Yo lloraba con desconsuelo. En el primer momento, el muchacho no supo qué hacer, pero después se rehízo e insultó concienzudamente al Otro Yo. Éste no dijo nada, pero a la mañana siguiente se había suicidado.
+
+Al principio la muerte del Otro Yo fue un rudo golpe para el pobre Armando, pero enseguida pensó que ahora sí podría ser íntegramente vulgar. Ese pensamiento lo reconfortó.
+
+Sólo llevaba cinco días de luto, cuando salió a la calle con el propósito de lucir su nueva y completa vulgaridad. Desde lejos vio que se acercaban sus amigos. Eso le llenó de felicidad e inmediatamente estalló en risotadas. Sin embargo, cuando pasaron junto a él, ellos no notaron su presencia. Para peor de males, el muchacho alcanzó a escuchar que comentaban: «Pobre Armando. Y pensar que parecía tan fuerte, tan saludable».
+
+El muchacho no tuvo más remedio que dejar de reír y, al mismo tiempo, sintió a la altura del esternón un ahogo que se parecía bastante a la nostalgia. Pero no pudo sentir auténtica melancolía, porque toda la melancolía se la había llevado el Otro Yo.
+
+Autor:Mario BenedettiTítulo: El Otro YoPublicado en:La muerte y otras sorpresas, 1968
+
+[Relato completo]

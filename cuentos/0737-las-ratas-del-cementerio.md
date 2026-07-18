@@ -1,0 +1,89 @@
+# Las ratas del cementerio
+
+**Autor:** Juan Pablo Guevara
+
+**Fuente:** https://lecturia.org/cuentos-y-relatos/henry-kuttner-las-ratas-del-cementerio/16737/
+
+---
+
+Sinopsis: «Las ratas del cementerio» (The Graveyard Rats) es un cuento de terror de Henry Kuttner, publicado en la revistaWeird Talesen marzo de 1936. La historia sigue a Masson, el guardián de un antiguo y descuidado cementerio en Salem, donde enormes y voraces ratas excavan túneles entre las tumbas para robar los cuerpos recién sepultados. Esta actividad amenaza el oscuro negocio de Masson, quien complementa su trabajo como guardián con el saqueo de tumbas. Un día, al intentar desenterrar un cadáver, Masson descubre que las ratas se le han adelantado. Lo que sigue es una frenética y aterradora persecución para recuperar su botín, que lo llevará a enfrentarse a horrores más allá de lo imaginable.
+
+Henry Kuttner(Cuento completo)
+
+El viejo Masson, guardián de uno de los más antiguos y descuidados cementerios de Salem, sostenía una verdadera contienda con las ratas. Hacía varias generaciones, se había asentado en el cementerio una colonia de ratas enormes procedentes de los muelles. Cuando Masson asumió su cargo, tras la inexplicable desaparición del guardián anterior, decidió hacerlas desaparecer. Al principio colocaba cepos y comida envenenada junto a sus madrigueras; más tarde, intentó exterminarlas a tiros. Pero todo fue inútil. Seguía habiendo ratas. Sus hordas voraces se multiplicaban e infestaban el cementerio.
+
+Eran grandes, aun tratándose de la especiemus decumanus, cuyos ejemplares miden a veces más de treinta y cinco centímetros de largo sin contar la cola pelada y gris. Masson las había visto hasta del tamaño de un gato; y cuando los sepultureros descubrían alguna madriguera, comprobaban con asombro que por aquellas malolientes galerías cabía sobradamente el cuerpo de una persona. Al parecer, los barcos que antaño atracaban en los ruinosos muelles de Salem debieron de transportar cargamentos muy extraños.
+
+Masson se asombraba a veces de las extraordinarias proporciones de estas madrigueras. Recordaba ciertos relatos inquietantes que le habían contado al llegar a la vieja y embrujada ciudad de Salem. Eran relatos que hablaban de una vida larvaria que persistía en la muerte, oculta en las olvidadas madrigueras de la tierra. Ya habían pasado los viejos tiempos en que Cotton Mather exterminara los cultos perversos y los ritos orgiásticos celebrados en honor de Hécate y de la siniestra Magna Mater. Pero todavía se alzaban las tenebrosas casas de torcidas buhardillas, de fachadas inclinadas y leprosas, en cuyos sótanos, según se decía, aún se ocultaban secretos blasfemos y se celebraban ritos que desafiaban tanto a la ley como a la cordura. Moviendo significativamente sus cabezas canosas, los viejos aseguraban que, en los antiguos cementerios de Salem, había bajo tierra cosas peores que gusanos y ratas.
+
+En cuanto a estos roedores, ciertamente, Masson les tenía aversión y respeto. Sabía el peligro que acechaba en sus dientes afilados y brillantes. Pero no comprendía el horror que los viejos sentían por las casas vacías, infestadas de ratas. Había oído rumores sobre ciertas criaturas horribles que moraban en las profundidades de la tierra y tenían poder sobre las ratas, a las que agrupaban en ejércitos disciplinados. Según decían los ancianos, las ratas servían de mensajeras entre este mundo y las cavernas que se abrían en las entrañas de la tierra, muy por debajo de Salem. Y aún se decía que algunos cuerpos habían sido robados de las sepulturas con el fin de celebrar festines subterráneos y nocturnos. El mito del flautista de Hamelin era una leyenda que ocultaba, en forma de alegoría, un horror blasfemo; y según ellos, los negros abismos habían parido abortos infernales que jamás salieron a la luz del día.
+
+Masson no hacía ningún caso de semejantes relatos. No fraternizaba con sus vecinos y, de hecho, hacía lo posible por mantener en secreto la existencia de las ratas. De conocerse el problema quizá iniciasen una investigación, en cuyo caso tendrían que abrir muchas sepulturas. Y en efecto, hallarían ataúdes perforados y vacíos que atribuirían a las actividades de las ratas. Pero descubrirían también algunos cuerpos con mutilaciones muy comprometedoras para Masson.
+
+Los dientes postizos suelen hacerse de oro puro, y no se los extraen a uno cuando muere. Las ropas, naturalmente, son harina de otro costal, porque la compañía de pompas fúnebres suele proporcionar un traje de paño sencillo, perfectamente reconocible después. Pero el oro no lo es. Además, Masson negociaba también con algunos estudiantes de medicina y médicos poco escrupulosos que necesitaban cadáveres sin importarles demasiado su procedencia.
+
+Hasta entonces, Masson se las había arreglado muy bien para que no se iniciase una investigación. Había negado ferozmente la existencia de las ratas, aun cuando algunas veces éstas le hubiesen arrebatado el botín. A Masson no le preocupaba lo que pudiera suceder con los cuerpos, después de haberlos expoliado, pero las ratas solían arrastrar el cadáver entero por un boquete que ellas mismas roían en el ataúd.
+
+El tamaño de aquellos agujeros tenía a Masson asombrado. Por otra parte, se daba la curiosa circunstancia de que las ratas horadaban siempre los ataúdes por uno de los extremos, y no por los lados. Parecía como si las ratas trabajasen bajo la dirección de algún guía dotado de inteligencia.
+
+Ahora se encontraba ante una sepultura abierta. Acababa de quitar la última paletada de tierra húmeda y de arrojarla al montón que había ido formando a un lado. Desde hacía varias semanas, no paraba de caer una llovizna fría y constante. El cementerio era un lodazal de barro pegajoso, del que surgían las mojadas lápidas en formaciones irregulares. Las ratas se habían retirado a sus agujeros; no se veía ni una. Pero el rostro flaco y desgalichado de Masson reflejaba una sombra de inquietud. Había terminado de descubrir la tapa de un ataúd de madera.
+
+Hacía varios días que lo habían enterrado, pero Masson no se había atrevido a desenterrarlo antes. Los parientes del fallecido venían a menudo a visitar su tumba, aun lloviendo. Pero a estas horas de la noche, no era fácil que vinieran, por mucho dolor y pena que sintiesen. Y con este pensamiento tranquilizador, se enderezó y echó a un lado la pala.
+
+Desde la colina donde estaba situado el cementerio, se veían parpadear débilmente las luces de Salem a través de la lluvia pertinaz. Sacó la linterna del bolsillo porque iba a necesitar luz. Apartó la pala y se inclinó a revisar los cierres de la caja.
+
+De repente, se quedó rígido. Bajo sus pies había notado un rebullir inquieto, como si algo arañara o se revolviera dentro. Por un momento, sintió una punzada de terror supersticioso, que pronto dio paso a una rabia furiosa, al comprender el significado de aquellos ruidos. ¡Las ratas se le habían adelantado otra vez!
+
+En un rapto de cólera, Masson arrancó los cierres del ataúd. Metió el canto de la pala bajo la tapa e hizo palanca, hasta que pudo levantarla con las dos manos. Luego encendió la linterna y la enfocó al interior del ataúd.
+
+La lluvia salpicaba el blanco tapizado de raso: el ataúd estaba vacío. Masson percibió un movimiento furtivo en la cabecera de la caja y dirigió hacia allí la luz.
+
+El extremo del sarcófago había sido horadado, y el boquete comunicaba con una galería, al parecer, pues en aquel mismo momento desaparecía por allí, a tirones, un pie fláccido enfundado en su correspondiente zapato. Masson comprendió que las ratas se le habían adelantado, esta vez, sólo unos instantes. Se dejó caer a gatas y agarró el zapato con todas sus fuerzas. Se le cayó la linterna dentro del ataúd y se apagó de golpe. De un tirón, el zapato le fue arrancado de las manos en medio de una algarabía de chillidos agudos y excitados. Un momento después, había recuperado la linterna y la enfocaba por el agujero.
+
+Era enorme. Tenía que serlo; de lo contrario, no habrían podido arrastrar el cadáver a través de él. Masson intentó imaginarse el tamaño de aquellas ratas capaces de tirar del cuerpo de un hombre. De todos modos, él llevaba su revólver cargado en el bolsillo, y esto le tranquilizaba. De haberse tratado del cadáver de una persona ordinaria, Masson habría abandonado su presa a las ratas, antes de aventurarse por aquella estrecha madriguera; pero recordó los gemelos de sus puños y el alfiler de su corbata, cuya perla debía ser indudablemente auténtica, y, sin pensarlo más, se prendió la linterna al cinturón y se metió por el boquete. El acceso era angosto. Delante de sí, a la luz de la linterna, podía ver cómo las suelas de los zapatos seguían siendo arrastradas hacia el fondo del túnel de tierra. También él trató de arrastrarse lo más rápidamente posible, pero había momentos en que apenas era capaz de avanzar, aprisionado entre aquellas estrechas paredes de tierra.
+
+El aire se hacía irrespirable por el hedor de la carroña. Masson decidió que, si no alcanzaba el cadáver en un minuto, volvería para atrás. Los temores supersticiosos empezaban a agitarse en su imaginación, aunque la codicia le instaba a proseguir. Siguió adelante, y cruzó varias bocas de túneles adyacentes. Las paredes de la madriguera estaban húmedas y pegajosas. Por dos veces oyó a sus espaldas pequeños desprendimientos de tierra. El segundo de éstos le hizo volver la cabeza. No vio nada, naturalmente, hasta que enfocó la linterna en esa dirección.
+
+Entonces vio varios montones de barro que casi obstruían la galería que acababa de recorrer. El peligro de su situación se le apareció de pronto en toda su espantosa realidad. El corazón le latía con fuerza sólo de pensar en la posibilidad de un hundimiento. Decidió abandonar su persecución, a pesar de que casi había alcanzado el cadáver y las criaturas invisibles que lo arrastraban. Pero había algo más, en lo que tampoco había pensado: el túnel era demasiado estrecho para dar la vuelta.
+
+El pánico se apoderó de él, por un segundo, pero recordó la boca lateral que acababa de pasar, y retrocedió dificultosamente hasta que llegó a ella. Introdujo allí las piernas, hasta que pudo dar la vuelta. Luego, comenzó a avanzar precipitadamente hacia la salida, pese al dolor de sus rodillas magulladas.
+
+De súbito, una punzada le traspasó la pierna. Sintió que unos dientes afilados se le hundían en la carne, y pateó frenéticamente para librarse de sus agresores. Oyó un chillido penetrante, y el rumor presuroso de una multitud de patas que se escabullían. Al enfocar la linterna hacia atrás, dejó escapar un gemido de horror: una docena de enormes ratas le miraban atentamente, y sus ojillos malignos brillaban bajo la luz. Eran unos bichos deformes, grandes como gatos. Tras ellos vislumbró una forma negruzca que desapareció en la oscuridad. Se estremeció ante las increíbles proporciones de aquella sombra apenas vista.
+
+La luz contuvo a las ratas durante un momento, pero no tardaron en volver a acercarse furtivamente. Al resplandor de la linterna, sus dientes parecían teñidos de un naranja oscuro. Masson forcejeó con su pistola, consiguió sacarla de su bolsillo y apuntó cuidadosamente. Estaba en una posición difícil. Procuró pegar los pies a las mojadas paredes de la madriguera para no herirse.
+
+El estruendo del disparo le dejó sordo durante unos instantes. Después, una vez disipado el humo, vio que las ratas habían desaparecido. Se guardó la pistola y comenzó a reptar velozmente a lo largo del túnel. Pero no tardó en oír de nuevo las carreras de las ratas, que se le echaron encima otra vez.
+
+Se le amontonaron sobre las piernas, mordiéndole y chillando de manera enloquecedora. Masson empezó a gritar mientras echaba mano a la pistola. Disparó sin apuntar, de suerte que no se hirió de milagro. Esta vez las ratas no se alejaron demasiado. No obstante, Masson aprovechó la tregua para reptar lo más deprisa que pudo, dispuesto a hacer fuego a la primera señal de un nuevo ataque.
+
+Oyó movimientos de patas y alumbró hacia atrás con la linterna. Una enorme rata gris se paró en seco y se quedó mirándole, sacudiendo sus largos bigotes y moviendo de un lado a otro, muy despacio, su cola áspera y pelada. Masson disparó y la rata echó a correr.
+
+Continuó arrastrándose. Se había detenido un momento a descansar, junto a la negra abertura de un túnel lateral, cuando descubrió un bulto informe sobre la tierra mojada, un poco más adelante. De momento, lo tomó por un montón de tierra desprendido del techo; luego vio que era un cuerpo humano.
+
+Se trataba de una momia negruzca y arrugada, y Masson se dio cuenta, preso de un pánico sin límites, de que se movía.
+
+Aquella cosa monstruosa avanzaba hacia él y, a la luz de la linterna, vio su rostro horrible a muy poca distancia del suyo. Era una calavera casi descarnada, la faz de un cadáver que ya llevaba años enterrado, pero animada de una vida infernal. Tenía unos ojos vidriosos, hinchados y saltones, que delataban su ceguera, y, al avanzar hacia Masson, lanzó un gemido plañidero y entreabrió sus labios pustulosos, desgarrados en una mueca de hambre espantosa. Masson sintió que se le helaba la sangre.
+
+Cuando aquel Horror estaba ya a punto de rozarle, Masson se precipitó frenéticamente por la abertura lateral. Oyó arañar en la tierra, justo a sus pies, y el confuso gruñido de la criatura que le seguía de cerca. Masson miró por encima del hombro, gritó y trató de avanzar desesperadamente por la estrecha galería. Reptaba con torpeza; las piedras afiladas le herían las manos y las rodillas. El barro le salpicaba en los ojos, pero no se atrevió a detenerse ni un segundo. Continuó avanzando a gatas, jadeando, rezando y maldiciendo histéricamente.
+
+Con chillidos triunfales, las ratas se precipitaron de nuevo sobre él con una horrible voracidad pintada en sus ojillos. Masson estuvo a punto de sucumbir bajo sus dientes, pero logró desembarazarse de ellas: el pasadizo se estrechaba y, sobrecogido por el pánico, pataleó, gritó y disparó hasta que el gatillo pegó sobre una cápsula vacía. Pero había rechazado las ratas.
+
+Observó entonces que se hallaba bajo una piedra grande, encajada en la parte superior de la galería, que le oprimía cruelmente la espalda. Al tratar de avanzar notó que la piedra se movía, y se le ocurrió una idea: ¡Si pudiera dejarla caer, de forma que obstruyese el túnel!
+
+La tierra estaba empapada por el agua de la lluvia. Se enderezó y se puso a quitar el barro que sujetaba la piedra. Las ratas se aproximaban. Veía brillar sus ojos al resplandor de la linterna. Siguió cavando, frenético, en la tierra. La piedra cedía. Tiró de ella y la movió de sus cimientos.
+
+Se acercaban las ratas… Era el enorme ejemplar que había visto antes. Gris, leprosa, repugnante, avanzaba enseñando sus dientes anaranjados. Masson dio un último tirón de la piedra, y la sintió resbalar hacia abajo. Entonces reanudó su camino a rastras por el túnel.
+
+La piedra se derrumbó tras él, y oyó un repentino alarido de agonía. Sobre sus piernas se desplomaron algunos terrones mojados. Más adelante, le atrapó los pies un desprendimiento considerable, del que logró desembarazarse con dificultad. ¡El túnel entero se estaba desmoronando!
+
+Jadeando de terror, Masson avanzaba mientras la tierra se desprendía tras él. El túnel seguía estrechándose, hasta que llegó un momento en que apenas pudo hacer uso de sus manos y piernas para avanzar. Se retorció como una anguila hasta que, de pronto, notó un jirón de raso bajo sus dedos crispados; y luego su cabeza chocó contra algo que le impedía continuar. Movió las piernas y pudo comprobar que no las tenía apresadas por la tierra desprendida. Estaba boca abajo. Al tratar de incorporarse, se encontró con que el techo del túnel estaba a escasos centímetros de su espalda. El terror le descompuso.
+
+Al salirle al paso aquel ser espantoso y ciego, se había desviado por un túnel lateral, por un túnel que no tenía salida. ¡Se encontrabaen un ataúd, en un ataúd vacío, al que había entrado por el agujero que las ratas habían practicado en su extremo!
+
+Intentó ponerse boca arriba, pero no pudo. La tapa del ataúd le mantenía inexorablemente inmóvil. Tomó aliento entonces, e hizo fuerza contra la tapa. Era inamovible, y aun si lograse escapar del sarcófago, ¿cómo podría excavar una salida a través del metro y medio de tierra que tenía encima?
+
+Respiraba con dificultad. Hacía un calor sofocante y el hedor era irresistible. En un paroxismo de terror, desgarró y arañó el forro acolchado hasta destrozarlo. Hizo un inútil intento por cavar con los pies en la tierra desprendida que le impedía la retirada. Si lograse solamente cambiar de postura, podría excavar con las uñas una salida hacia el aire… hacia el aire…
+
+Una agonía candente penetró en su pecho; el pulso le dolía en los globos de los ojos. Parecía como si la cabeza se le fuera hinchando, a punto de estallar. Y de súbito, oyó los triunfales chillidos de las ratas. Comenzó a gritar, enloquecido, pero no pudo rechazarlas esta vez. Durante un momento, se revolvió histéricamente en su estrecha prisión, y luego se calmó, boqueando por falta de aire. Cerró los ojos, sacó su lengua ennegrecida, y se hundió en la negrura de la muerte, con los locos chillidos de las ratas taladrándole los oídos.
+
+FIN

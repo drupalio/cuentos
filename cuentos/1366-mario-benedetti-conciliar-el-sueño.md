@@ -1,0 +1,25 @@
+# Mario Benedetti: Conciliar el sueño
+
+**Autor:** Juan Pablo Guevara
+
+**Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-conciliar-el-sueno/3652/
+
+---
+
+Lo que ocurre, doctor, es que en mi caso los sueños vienen por ciclos temáticos. Hubo una época en que soñaba con inundaciones. De pronto los ríos se desbordaban y anegaban los campos, las calles, las casas y hasta mi propia cama. Fíjense que en sueños aprendí a nadar y gracias a eso sobreviví a las catástrofes naturales. Lamentablemente, esa habilidad tuvo una vigencia sólo onírica, ya que un tiempo después pretendí ejercerla, totalmente despierto, en la piscina de un hotel y estuve a punto de ahogarme.
+
+Luego vino un período en que soñé con aviones. Más bien, con un solo avión, porque siempre era el mismo. La azafata era feúcha y me trataba mal. A todos les daba champán, menos a mí. Le pregunté por qué y ella me miró con un rencor largamente programado y me contestó: «Vos bien sabés por qué». Me sorprendió tanto aquel tuteo que casi me despierto. Además, no imaginaba a qué podía referirse. En esa duda estaba cuando el avión cayó en un pozo de aire y la azafata feúcha se desparramó en el pasillo, de tal manera que la minifalda se le subió y pude comprobar que abajo no llevaba nada. Fue precisamente ahí que me desperté, y, para mi sorpresa, no estaba en mi cama de siempre sino en un avión, fila 7 asiento D, y una azafata con rostro de Gioconda me ofrecía en inglés básico una copa de champán.
+
+Como ve, doctor, a veces los sueños son mejores que la realidad y también viceversa. ¿Recuerda lo que dijo Kant? «El sueño es un arte poético involuntario».
+
+En otra etapa soñé reiteradamente con hijos. Hijos que eran míos. Yo, que soy soltero y no los tengo ni siquiera naturales. Con el mundo como está, me parece un acto irresponsable concebir nuevos seres. ¿Usted tiene hijos? ¿Cinco? Excuse me. A veces digo cada pavada.
+
+Los niños de mi sueño eran bastante pequeños. Algunos gateaban y otros se pasaban la vida en el baño. Al parecer, eran huérfanos de madre, ya que ella jamás aparecía y los niños no habían aprendido a decir mamá. En realidad, tampoco me decían papá, sino que en su media lengua me llamaban «turco». Tan luego a mí, que vengo de abuelos coruñeses y bisabuelos lucenses. «Turco, vení», «Turco, quero la papa», «Turco, me hice pipí». En uno de esos sueños, bajaba yo por una escalera medio rota, y zas, me caí. Entonces el mayorcito de mis nenes me miró sin piedad y dijo: «Turco, jodete». Ya era demasiado, así que desperté de apuro a mi realidad sin angelitos.
+
+En un ciclo posterior de fútbol soñado, siempre jugué de guardameta o golero o portero ogoalkeepero arquero. Cuántos nombres para una sola calamidad. Siempre había llovido antes del partido, así que las canchas estaban húmedas y era inevitable que frente a la portería se formara un laguito. Entonces aparecía algún delantero que me fusilaba con ganas, y en primera instancia yo atajaba, pero en segunda instancia la pelota mojada se escabullía de mis guantes y pasaba muy oronda la línea del gol. A esa altura del partido (nunca mejor dicho), yo anhelaba con fervor despertarme, pero todavía me faltaba escuchar cómo la tribuna a mis espaldas me gritaba unánimemente: traidor, vendido, cuánto te pagaron y otras menudencias.
+
+En los últimos tiempos mis aventuras nocturnas han sido invadidas por el cine. No por el cine de ahora, tan venido a menos, sino por el de antes, aquel que nos conmovía y se afincaba en nuestras vidas con rostros y actitudes que eran paradigmas. Yo me dedico a soñar con actrices. Y qué actrices: digamos Marilyn Monroe, Claudia Cardinale, Harriet Andersson, Sonia Braga, Catherine Deneuve, Anouk Aimée, Liv Ullmann, Glenda Jackson y otras maravillas. (A los actores, mi Morfeo no les otorga visa). Como ve, doctor, la mayoría son veteranas o ya no están, pero yo las sueño tal como aparecían en las películas de entonces. Verbigracia, cuando le digo Claudia Cardinale, no se trata de la de ahora (que no está mal) sino la deLa ragazza con la valiglia, cuando tenía 21. Marilyn, por ejemplo, se me acerca y me dice en un tono tiernamente confidencial: «I don’t love Kennedy. I love you. Only you». Sepa usted que en mis sueños las actrices hablan a veces en versión subtitulada y otras veces dobladas al castellano. Yo prefiero los subtítulos, ya que una voz como la de Glenda Jackson o la de Catherine Deneuve son insustituibles.
+
+Bueno, en realidad vine a consultarle porque anoche soñé con Anouk Aimée, no la de ahora (que tampoco está mal) sino la deMontparnasse 19, cuando tenía unos fabulosos 26 años. No piense mal. No la toqué ni me tocó. Simplemente se asomó por una ventana de mi estudio y sólo dijo (versión doblada): «Mañana de noche vendré a verte, pero no a tu estudio sino a tu cama. No lo olvides». Cómo voy a olvidarlo. Lo que yo quisiera saber, doctor, es si los preservativos que compro en la farmacia me servirán en sueños. Porque ¿sabe?, no quisiera dejarla embarazada.
+
+©Mario Benedetti: Conciliar el sueño. Publicado enBuzón de tiempo, 1999.

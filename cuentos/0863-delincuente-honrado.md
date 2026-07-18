@@ -1,0 +1,47 @@
+# Delincuente honrado
+
+**Autor:** Juan Pablo Guevara
+
+**Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-delincuente-honrado/23407/
+
+---
+
+Sinopsis: «Delincuente honrado» es un cuento de Emilia Pardo Bazán publicado el 12 de abril de 1897 en el diarioEl Imparcial. A través del relato del padre Téllez, se reconstruyen los últimos días de un anciano zapatero condenado a muerte por un crimen atroz. En la celda, el reo le confiesa su historia: un relato desgarrador en el que se entremezclan los celos, la obsesión y una noción distorsionada del honor. El sacerdote, testigo de esa confesión, intenta comprender al hombre que, entre lágrimas y delirios, se aferra a una idea retorcida de decencia mientras afronta su castigo y el peso de su conciencia.
+
+Emilia Pardo Bazán(Cuento completo)
+
+De todos los reos de muerte que he asistido en sus últimos instantes —nos dijo el padre Téllez, que aquel día estaba animado y verboso— el que me infundió mayor lástima fue un zapatero de viejo, asesino de su hija única. El crimen era horrible. El tal zapatero, después de haber tenido a la pobre muchacha rigurosamente encerrada entre cuatro paredes; después de reprenderla por asomarse a la ventana; después de maltratarla, pegándola por leves descuidos, acabó llegándose una noche a su cama, y clavándola en la garganta el cuchillo de cortar suela. La pobrecilla parece que no tuvo tiempo ni de dar un grito, porque el golpe segó la carótida. Esos cuchillos son un arma atroz, y al padre no le tembló la mano; de modo que la muchacha pasó, sin transición, del sueño a la eternidad.
+
+La indignación de las comadres del barrio y de cuantos vieron el cadáver de una criatura preciosa de diez y siete años, tan alevosamente sacrificada, pesó sobre el jurado; y como el asesino no se defendía y parecía medio estúpido, le condenaron a la última pena. Cuando tuve que ejercer con él mi sagrado ministerio, a la verdad, temí encontrar, detrás de un rostro de fiera, un corazón de corcho, o unos sentimientos monstruosos y salvajes. Lo que vi fue un anciano de blanquísimos cabellos, cara demacrada y ojos enrojecidos, merced al continuo fluir de las lágrimas, que poco a poco se deslizaban por las mejillas consumidas, y a veces paraban en los labios temblones, donde el criminal, sin querer, las bebía y saboreaba su amargor.
+
+Lejos de hallarle rebelde a la divina palabra, apenas entré en su celda se abrazó a mis rodillas y me pidió que le escuchase en confesión, rogándome también que, después de cumplir el fallo de la justicia, hiciese públicas sus revelaciones en los periódicos, para que rehabilitasen su memoria y quedase su decoro como correspondía. No juzgué procedente acceder en este particular a sus deseos; pero hoy los invoco, y me autorizan para contarles a ustedes la historia. Procuraré recordar el mismo lenguaje de que él se sirvió, y no omitiré las repeticiones, que prueban el trastorno de su mísera cabeza:
+
+—Padre confesor —empezó por decir—, ante todo sepa usted que yo soy un hombre decente, todo un caballero. Esa niña… que maté… nació… al año de haberme casado. Era bonita, y su madre también…, ¡ya lo creo!, preciosa, que daba gloria el mirarla. Yo tenía ya algunos añitos… y ella, una moza de rumbo, más fresca que las mismas rosas. Digo la madre, señor; digo su madre, porque por la madre tenemos que principiar. Los hijos, así como heredan los dineros del que los tiene…, heredan otras cosas… Usted, que sabrá mucho, me entenderá. Yo no sé nada, pero… ¡a caballero no me ha ganado nadie!”
+
+La madre…, yo me miraba en sus ojos, porque la quería de alma, según corresponde a un marido bueno. Le hacía regalos; trabajaba día y noche para que tuviese su ropa maja y su mantón y sus aretes, y sobre todo…, ¡porque eso es antes!, a diario su puchero sano, y cuando parió, su cuartillo de vino y su gallina… No me remuerde la conciencia de haberle escatimado un real. Ella era alegre y cantaba como una calandria, y a mí se me quitaban las penas de oírla. Lo malo fue que como la celebraron la voz y las coplas, y empezaron a remolinarse para escucharla, y el uno que llega y el otro que se pega, y este que encaja una pulla, y aquel que suelta un requiebro…, en fin, vi que se ponía aquello muy mal, y le dije lo que venía al caso. ¿Sabe usted lo que me contestó? Que no lo podía remediar, que le gustaba el gentío y oír cómo la jaleaban, que cada cual es según su natural y que no le rompiese la cabeza con sermones… De allí a un mes (no se me olvida la fecha, el día de la Candelaria) desapareció de casa, sin dar siquiera un beso a la niña…, que tenía sus cinco añitos y era como un sol.
+
+—Aquí —intercaló el padre Téllez— tuvo una crisis de sollozos, y por poco me enternezco yo también, a pesar de que la costumbre de asistir a los reos endurece y curte. Le consolé cuanto era posible, le di a beber un trago de anís, y el desdichado prosiguió:
+
+—Supe luego que andaba por los coros de los teatros, y sabe Dios cómo… Y lo que más me barajaba los sesos (¡porque la honra trabaja mucho!) era que me decían los amigos, al pasar delante de mi obrador: «No tienes vergüenza… Yo que tú, la mato.» De tanto oírlo, se me pegó el estribillo, y mientras batía suela, ¡tan, tan, catán!, repetía en alto: «No tengo vergüenza… ¡Había que matarla!». Solo que ni la encontré en jamás, ni tuve ánimos para echarme en su busca. Y así que pasaron tres años, nadie me venía con que la matase, porque ella rodaba por Andalucía, hasta que se la llevaron a América…, ¡qué sé yo adónde! ¡Si vive y lee los diarios y ve cómo murió su hija…!
+
+El reo tuvo un ataque de risa convulsiva, y le sosegué otra vez a fuerza de exhortaciones y consejos.
+
+—Así que se me quitó de la imaginación la madre, empecé a cuidar de la niña. No tenía otra cosa para qué mirar en el mundo. Me propuse que no había de perderse, ni arrimarme otro tiznón, y no la dejé salir ni al portal. Aunque me dijese, es un verbigracia: «Padre, tengo ganas de correr», o «Padre, me pide el cuerpo ir a la plazuela», nada, yo sujetándola, que se divirtiese con su canario, o con los pliegos de aleluyas, o con la maceta de albahaca, ¡pero sin sacar un dedo fuera! Y así que fue espigando, y me hice cargo de que era muy bonita, tan bonita como su madre, y parecida a ella como una gota a otra gota… y con una voz de ángel también, se me abrieron los ojos de a cuarta, y dije: «No, lo que es tú… no has de echarme el borrón».
+
+Y me convertí en espía, y la velé hasta el sueño, y no contento con guardarla dentro de casa, me paseaba por la callejuela debajo de su ventana, a ver si andaba por allí algún zángano; tanto que la castañera de la esquina me dijo así: «Abuelo, está usted chiflado. ¿A quién se le ocurre rondar a su propia hija? ¡Qué viejos más escamones!»
+
+Pero no lo podía remediar. Toda cuanta candidez y buena fe había tenido con la madre, ahora se me volvía desconfianza; se me había clavado aquí, entre las cejas, que mi hija se perdería, que era infalible que se perdiese, sobre todo si daba en cantar. Y me eché de rodillas delante de ella, y la obligué a que me jurase que no cantaría nunca, así se hundiese el mundo. Y me lo juró. Solo que, como ya no era yo aquel de antes, de allí a pocas mañanas, acechando desde la esquina, la veo que abre la ventana, que se pone a regar las macetas, y que al mismo tiempo, a competencia con el canario, rompe a cantar… Me dio la sangre una vuelta redonda y se me quedaron las manos frías. Volví a casa, entré en el cuarto de la muchacha, la cogí por el pelo y debí de pegarla bastante, porque gritó y estuvo más de una semana con una venda.
+
+¿Creerá usted, padre, que se enmendó? A los quince días vuelvo a rondar y vuelve a asomarse, y otra vez el canticio, y enfrente un grupo de mozalbetes que se para y le dice muchos oles…
+
+Callé; no entré a castigarla. Y por la tarde, mientras batía mi suela, me parecía que una voz rara, como de algún chulo que se reía de mí, me decía igual que doce años antes: «No tienes vergüenza… Había que matarla».
+
+Cené muy triste, y después de que me acosté, la misma voz, erre que erre: «Matarla, matarla…»
+
+Entonces me levanté despacio, cogí la herramienta, fui en puntillas, me acerqué a la cama, y de un solo golpe… Ahora hagan de mí lo que quieran, que ya tengo mi honra desempeñada.
+
+—¿Creerán ustedes —añadió el padre Téllez— que no le pude quitar la tema de la honra? Se arrepentía… pero a los dos minutos volvía a porfiar que era un caballero, y su conducta, más que culpable, ejemplar… En este terreno casi murió impenitente…
+
+—Estaría loco —dijimos, a fin de consolar al sacerdote, que se había quedado muy abatido al terminar su relato.
+
+FIN
