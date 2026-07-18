@@ -1,0 +1,157 @@
+---
+title: "La muerte de Malygris"
+author: "Juan Pablo Guevara"
+source: 'https://lecturia.org/cuentos-y-relatos/clark-ashton-smith-la-muerte-de-malygris/20240/'
+image: "0360-la-muerte-de-malygris.webp"
+tags:
+  - cuento
+  - autor/juan-pablo-guevara
+---
+
+# La muerte de Malygris
+
+Sinopsis:«La muerte de Malygris» (The Death of Malygris), es un cuento de Clark Ashton Smith, publicado en abril de 1934 en la revistaWeird Tales. Ambientado en la mítica Poseidonis, explora el misterio que rodea el destino del temible hechicero Malygris. El rey Gadeiron convoca a los magos más poderosos de Susran para confirmar si el brujo ha muerto, pues aunque nadie lo ha visto moverse ni hablar en mucho tiempo, su presencia sigue imponiendo terror. Mediante artes prohibidas, y conociendo los peligros a que se exponen, los conjuradores intentan desentrañar el enigma que rodea al hechicero.
+
+Clark Ashton Smith(Cuento complete)
+
+A la hora de la medianoche interlunar, cuando las lámparas ardían raramente o lejos en Susran, y las perezosas nubes de otoño habían apagado las estrellas, el rey Gadeiron envió a la ciudad dormida doce de sus vasallos de mayor confianza. Como sombras deslizándose a través del olvido, desaparecieron en sus distintos caminos, y cada uno de ellos, al regresar al rato al oscuro palacio, conducía con él una figura amortajada no menos discreta y silenciosa que él mismo.
+
+De esta manera, tanteando a lo largo de tortuosos callejones, por medio de oscuras cavernas de cipreses en los jardines reales, y descendiendo por salones y escaleras subterráneas, doce de los brujos más poderosos de Susran fueron reunidos en una cripta de granito goteante, gris como la muerte, en las profundidades de los cimientos del palacio.
+
+La entrada a la cripta estaba vigilada por demonios de la tierra que obedecían al archibrujo, Maranapión, quien era, desde hacía tiempo, el valido del rey. Estos demonios habrían descuartizado, miembro a miembro, a cualquiera que se les acercase a ofrecerles una libación de sangre fresca sin estar preparado. La cripta estaba iluminada débilmente por una única lampara, hecha de una sola almandina de tamaño monstruoso, ahuecada y alimentada con aceite de víboras. Aquí, Gadeiron, sin corona y vistiendo un cilicio teñido de sobrio púrpura, esperó a los brujos sobre un asiento de piedra caliza tallado en forma de sarcófago. Maranapión se alzaba a su diestra, inmóvil y vestido hasta el cuello con los atavíos de la sepultura. Ante él, había un trípode de oricalco, alzándose a la altura del hombro; y sobre el trípode, en una taza de plata, reposaba el enorme ojo azul de un cíclope muerto, en el cual se decía que el archibrujo contemplaba extrañas visiones. En este ojo, brillando siniestramente bajo la lámpara de la almandina, la vista de Maranapión estaba fijada con una rigidez como la producida por la muerte.
+
+Basados en estas circunstancias, los doce brujos supieron que el rey sólo les había llamado por una cuestión secreta de suprema gravedad. La hora y el modo en que habían sido llamados, el lugar de la reunión, los terribles guardianes elementales, la arpillera vestida por Gadeiron…, todo era prueba de la necesidad de una discreción y cautela sobrenaturales.
+
+Durante un rato, reinó el silencio, y los doce, inclinándose respetuosamente, esperaron la voluntad de Gadeiron. Entonces, con una voz que era poco más que un ronco susurro, el rey habló:
+
+—¿Qué sabéis vosotros de Malygris?
+
+Al escuchar el nombre temido, los hechiceros palidecieron y temblaron visiblemente, pero, uno por uno, como hablando de memoria, varios de los principales contestaron la pregunta de Gadeiron.
+
+—Malygris habita en la torre negra sobre Susran —dijo el primero—. La noche de su poder todavía descansa pesada sobre Poseidonis, y nosotros, los demás, moviéndonos por esa noche, somos como sombras bajo una luna marchita. Él es señor sobre todos los reyes y magos. Sí, en verdad, hasta las trirremes que zarpan a Tartesos y las águilas del mar que lejos vuelan, no salen de su negra sombra.
+
+—Los espíritus de los cinco elementos son sus demonios familiares —dijo el segundo—; los toscos ojos de los hombres vulgares los han contemplado a menudo, revoloteando como pájaros en torno a su torre, o arrastrándose como lagartos por sus muros y pavimentos.
+
+—Malygris se sienta en su salón de alto techo —exclamó el tercero—. A él, tributo le es llevado de todas las ciudades de Poseidonis durante la luna llena, y toma un diezmo de lo que desembarca cada galera. Reclama una parte de la plata y del incienso, del oro y del ébano sagrados de los templos. Su opulencia está más allá de la de los sumergidos reyes de Atlantis…, incluso de la de aquellos quienes fueron vuestros antepasados, ¡oh!, Gadeiron…
+
+—Malygris es tan viejo como la luna —murmuró el cuarto—. Vivirá para siempre, armado contra la muerte por la oscura magia de la luna. La parca se ha convertido en una esclava de su ciudadela; trabajando junto a sus otros esclavos, ataca tan sólo a los enemigos de Malygris.
+
+—Mucho de esto fue verdad anteriormente —dijo el rey, con un siniestro silbido en el aliento—. Pero, ahora, cierta duda se ha levantado… porque podría ser que Malygris haya muerto.
+
+Un temblor común pareció recorrer la asamblea.
+
+—No —dijo el brujo que había defendido la inmortalidad de Malygris—. Porque ¿cómo podría tal cosa haber sucedido? Las puertas de su torre estaban hoy abiertas al ponerse el sol, y los sacerdotes del dios del océano, portando un regalo de perlas y tintes púrpura, entraron ante Malygris, y le encontraron sobre su elevado sitial de marfil de mastodonte. Los recibió despectivo, sin hablar, como es su costumbre, y sus sirvientes, que son mitad simio mitad humano, entraron sin que se les llamase para guardar su tributo.
+
+—Esta misma noche —dijo otro— vi las fieles lámparas de la torre leonada ardiendo sobre la ciudad, como los ojos de Taaran, dios del mal. Los demonios familiares no se habían marchado de la torre, como hacen tales seres al morir un brujo, porque, en este caso, los hombres habrían escuchado en la oscuridad sus aullidos y lamentos.
+
+—Sí —declaró Gadeiron—, los hombres han sido engañados antes de esto. Y Malygris fue siempre maestro de los espectáculos ilusorios, las fintas y los engaños. Pero hay uno entre nosotros que distingue la verdad. Maranapión, por medio del ojo del cíclope, ha mirado cosas remotas y lugares ocultos. Incluso ahora espía a su antiguo enemigo, Malygris.
+
+Maranapión, temblando un poco debajo de la prenda que parecía un sudario, pareció regresar de su concentración de clarividente. Levantó del trípode sus ojos de luminoso ámbar, cuyas pupilas eran tan negras e impenetrables como el azabache.
+
+—He visto a Malygris —dijo volviéndose al cónclave—. Muchas veces le he vigilado así, pensando en aprender algún secreto de su bien guardada magia. Le he espiado al mediodía, al caer la tarde y durante la vigilia, temida y sin lámparas, de la medianoche. Y le he contemplado en el alba cenicienta y en el amanecer de una llama que prende. Pero siempre está sentado en su gran sillón de marfil, en el alto salón de su torre, con el ceño fruncido como si meditase. Y sus manos siempre agarran los brazos del sillón, tallados en forma de basilisco, y sus ojos están siempre vueltos, sin cerrarse y sin moverse, hacia la ventana oriental y los cielos más allá, donde sólo las elevadas estrellas y las nubes pasan. Así le he contemplado por el plazo de todo un año y un mes. Y cada día he visto cómo sus monstruos traían ante él platos llenos de exquisitas carnes y bebida, y más tarde se han llevado los platos sin que fuesen tocados. Y nunca he discernido el menor movimiento de sus labios, ni ningún giro o temblor en su cuerpo. Por esta razón, considero que Malygris ha muerto, pero, en virtud de su supremacía en la maldad y en las artes mágicas, se sienta desafiando al gusano, aún sin decaer ni corromperse. Y sus monstruos y sus demonios familiares todavía le sirven, engañados por la apariencia mentirosa de vida, y su poder, aunque ahora es algo vacío y un fraude, cae todavía, pesado y temible, sobre Poseidonis.
+
+De nuevo, siguiendo las palabras lentamente medidas de Maranapión, reinó el silencio en la cripta. Un triunfo, oscuro y furtivo, brillaba en el rostro de Gadeiron, en quien el yugo de Malygris había caído pesadamente irritando su orgullo. Entre los doce brujos, no había ninguno que le desease el bien a Malygris, ni ninguno que no le temiese, y recibieron la noticia de su muerte con una alegría temible, mitad incredulidad. Había algunos que lo dudaban, considerando que Maranapión estaba equivocado, y en los rostros de todos, como en lúgubres espejos, el temor al maestro aún se reflejaba.
+
+Maranapión, quien había odiado a Malygris por encima de los demás, como al único brujo cuyo arte y poder superaba al suyo, permaneció apartado e inescrutable como un buitre agazapado.
+
+Fue el rey Gadeiron quien rompió este grave silencio.
+
+—No en vano os he llamado a esta cripta, ¡oh hechiceros de Susran!, porque una tarea aún resta por hacer. En verdad, ¿nos va a tiranizar a todos el cadáver de un nigromante muerto? Aquí hay un misterio, y una necesidad de moverse con cautela, porque la duración de su nigromancia está aún por verificar, o por ser puesta a prueba. Pero os he llamado con el fin de que los valientes de entre nosotros os reunáis en consejo con Maranapión y le ayudéis en preparar una brujería tal, que exponga el fraude que es Malygris, y muestre su mortalidad a todos los hombres, así como a los demonios que le siguen y a los monstruos que le cuidan.
+
+Un griterío de discusión se levantó, y aquellos que tenían más dudas en este asunto y temían trabajar contra Malygris de cualquier manera, rogaron el permiso de Gadeiron para marcharse. Al final, quedaron siete de los doce… Rápidamente, por oscuros y ocultos canales, en el día que siguió, la muerte de Malygris fue comentada por toda la isla de Poseidonis. Muchos dudaron de la historia, porque la fuerza del brujo era algo que se había marcado al rojo vivo en el alma de aquellos que habían contemplado sus taumaturgias. Sin embargo, fue recordado que, durante el año anterior, pocos le habían visto cara a cara, y siempre había parecido ignorarles, sin hablarles, mirando fijamente por la ventana de la torre, como concentrado en cosas distintas veladas a los demás. Durante ese tiempo, no había llamado a hombre alguno ante su presencia, y no había enviado ningún mensaje, ningún oráculo ni decreto, y aquellos que se habían presentado ante él, habían sido principalmente porteadores de tributos que seguían costumbres largo tiempo establecidas.
+
+Cuando estos asuntos fueron generalmente sabidos, hubo algunos que defendieron que estaba sentado de esta manera en un largo desmayo de éxtasis o por la catalepsia, y despertaría al final. Otros, sin embargo, mantuvieron que se había muerto, y que era capaz de conservar este engañoso aspecto de vida por medio de un hechizo que había continuado después de él. Ningún hombre se atrevió a entrar en la alta torre leonada, y todavía su sombra caía inclinada sobre Susran como una malvada saeta moviéndose por un desastroso reloj; y todavía la sombra del poder de Malygris se cernía estancada como la noche de la tumba, sobre las mentes de los hombres.
+
+Ahora, entre los cinco hechiceros que rogaron el permiso de Gadeiron para marcharse, temiendo unirse a los otros en la preparación de la brujería contra Malygris, hubo dos que se envalentonaron un poco más tarde, cuando hubieron escuchado por otras fuentes la confirmación de la visión contemplada por Maranapión a través del ojo del cíclope.
+
+Estos dos eran hermanos, se llamaban Nygon y Fustules. Sintiendo una cierta vergüenza ante su cobardía y deseando rehabilitarse en la consideración de los demás, concibieron un plan audaz.
+
+Cuando la noche hubo caído sobre la ciudadela, sin traer la luna, sino sólo oscuras estrellas y los celajes de las nubes nacidas en el mar, Nygon y Fustules partieron a través de oscuros caminos y llegaron a la empinada colina en el corazón de Susran, en la cual, desde años sin cuento, Malygris había establecido su lúgubre morada.
+
+La colina tenía bosques de cipreses, plantados cerca unos de otros, cuyo follaje, incluso bajo el pleno sol, era negro y sombrío como oscurecido por vapores de brujería. Agazapados a cada lado, se apoyaron como espíritus deformes de la noche sobre las escaleras de adamante que daban acceso a la torre. Nygon y Fustules, subiendo las escaleras, se acobardaban y temblaban cuando las ramas oscilaban amenazadoramente hacia ellos a causa de las violentas ráfagas de viento. Notaron en sus rostros el gotear de densos rocíos marinos, arrojados como el escupitajo de demonios. La madera, parecía, estaba llena de voces execrables suspirando, raros gemidos y pequeños quejidos como de niños duendes que se hubiesen escapado de niñeras satánicas.
+
+La luz de la torre brillaba a través del oscilante ramaje, y parecía retroceder inalcanzable mientras ascendían. Más de una vez, los dos lamentaron su temeridad. Pero al cabo, sin sufrir estorbo o daño palpable, se acercaron a los portales que permanecían perpetuamente abiertos, vertiendo la refulgencia de las tranquilas lámparas sin llama en la oscuridad borrascosa.
+
+Aunque el plan que habían concebido era nefando, consideraron lo mejor entrar de manera atrevida. El propósito de su visita, si alguien los detuviese o los interrogase, era pedir un oráculo de Malygris, quien era famoso a través de la isla como el más infalible de los adivinos.
+
+Refrescado momentáneamente por el mar de más allá de Susran, el viento clamaba sobre la torre como un ejército de demonios en fuga, y los largos mantos de los hechiceros fueron empujados contra sus rostros. Pero, atravesando los amplios portales, ya no podía escucharse el griterío de la tormenta, ni notaban su ruda persecución. De un solo paso entraron en un silencioso mausoleo. En torno a ellos, la luz de las lámparas caía inalterada sobre cariátides de mármol negro, o mosaicos de preciosas gemas, o preciosos metales o tapices que contaban muchas historias, y un inmutable perfume cargaba el aire como el bálsamo de la muerte.
+
+Sintieron un temor involuntario, considerando la tranquilidad mortal algo que difícilmente podía ser natural. Pero, viendo que el vestíbulo de la torre no estaba vigilado por ninguna de las criaturas de Malygris, se atrevieron a avanzar y a ascender los escalones de mármol hasta las estancias superiores. Por todas partes, bajo la luz de las opulentas lámparas, contemplaron tesoros de valor incalculable y milagrosos. Había mesas de ébano decoradas con runas de perlas y coral blanco; redes de plata y samnita, hábilmente decoradas; cofres de electro desbordantes de joyas talismánicas; pequeños dioses de jade y ágata; altos demonios hechos con crisólito elefantino. Aquí estaba el botín de los siglos, tirado, amontonado y mezclado con completo descuido, sin cerradura o guardia, como si cualquier ladrón que entrase por casualidad pudiese tomarlo libremente.
+
+Mirando las maravillas a su alrededor con avaricioso asombro, los dos brujos subieron lentamente de cuarto en cuarto, sin que nadie les desafiase o les molestase, y llegaron por fin al salón superior en el cual Malygris acostumbraba a recibir a sus visitantes.
+
+Aquí, como en todas partes, las puertas estaban abiertas ante ellos, y las lámparas ardían como en un trance de luz. El ansia de saqueo les calentaba los corazones. Aún más envalentonados por la aparente desolación, y creyendo que la torre estaba deshabitada salvo por el mago muerto, avanzaban ahora con escasas vacilaciones.
+
+Como los cuartos de abajo, la habitación estaba llena de artefactos preciosos, y libros encuadernados en hierro, y broncíneos volúmenes de oculta y tremenda nigromancia, junto a incensarios de oro y de barro, y frascos de cristal irrompible, estaban repartidos en extraña confusión por el suelo de mosaico. Justo en el centro, estaba sentado el viejo archimago en su sitial de marfil primitivo, mirando a la ventana negra como la noche, con ojos rígidos e inmóviles.
+
+Nygon y Fustules notaron cómo su temor regresaba, recordando con demasiada claridad la tres veces temible maestría que este hombre había poseído, y los conocimientos sobre demonios que había tenido, y los hechizos que había lanzado que eran irrealizables para otros brujos. Los espectros de estas cosas se alzaron ante ellos como por obra de una nigromancia definitiva. Con la vista baja y expresión humilde, se acercaron, inclinándose con respeto. Entonces, hablando en voz alta de acuerdo con el plan preestablecido, Fustules pidió a Malygris un oráculo sobre sus destinos.
+
+No hubo respuesta, y, levantando sus ojos, los hermanos se vieron muy tranquilizados por el aspecto del anciano sentado. Sólo la muerte podía haberle dado esa coloración grisácea a la frente, o haber conservado los labios en un rigor como de barro rápidamente congelado. Los ojos eran como cavernas con sombras de hielo, no contenían otra luz que un vago reflejo de las lámparas. Debajo de la barba, que era mitad blanca, mitad leonada, las mejillas ya se habían hundido como en un principio de decadencia, mostrando los duros contornos del cráneo. Las manos, grises y horrorosamente marchitas, en las cuales ardían los ojos de rubíes y berilios encantados, estaban agarradas inflexibles a los brazos del asiento, que tenían la forma de basiliscos agazapados.
+
+—Verdaderamente —murmuró Nygon—, nada hay aquí para asustarnos o entristecernos. Contémplalo, es tan sólo el resto mortal de un hombre después de todo, y uno que ha estafado al gusano de su legítimo alimento durante demasiado tiempo.
+
+—Cierto —dijo Fustules—. Pero este hombre, en su día, fue el más grande de todos los nigromantes. Incluso el anillo de su dedo meñique es un talismán soberano. El balaje del pulgar derecho conjurará demonios de las profundidades. En los volúmenes repartidos por la habitación hay secretos de dioses que han perecido y planetas de antigüedad inmemorial. En los frascos hay pócimas que producen extrañas visiones, y filtros que a los muertos reviven. Entre otras cosas, está lo que libremente elijamos.
+
+Nygon, mirando avariciosamente las gemas, eligió un anillo que rodeaba con seis vueltas de serpiente el dedo índice de la mano derecha, portando en su boca un berilio con forma de huevo de grifo. Vanamente, sin embargo, intento aflojar el dedo de su rígida sujeción al brazo de la silla, para permitir quitarle el anillo. Murmurando impaciente, sacó un cuchillo de su cinturón y se preparó para cortar el dedo. Mientras tanto, Fustules había sacado su propio cuchillo como preliminar antes de acercarse a la otra mano.
+
+—¿Está el corazón firme en tu interior, hermano? —inquirió en una especie de susurro silbante—. Si es así, hay incluso más que ganar que estos anillos talismánicos. Es bien sabido que un brujo que alcanza una supremacía como la de Malygris experimenta, en virtud de la misma, una completa transformación corporal, convirtiendo su carne en elementos más sutiles que los de la normal. Y aquel que come de esta carne, aunque sea un pedazo mínimo, compartirá en adelante los poderes poseídos por el brujo.
+
+Nygon asintió con la cabeza, mientras se inclinaba sobre el dedo elegido.
+
+—Eso también estaba en mi pensamiento —replicó.
+
+Antes de que Fustules pudiese iniciar su canibalesco ataque, fueron sorprendidos por un venenoso silbido que parecía surgir del seno de Malygris. Se echaron atrás, asombrados y consternados, mientras una pequeña coralilla asomaba por detrás de la barba del mago y se deslizaba rápidamente por sus rodillas hasta el suelo como un sinuoso arroyuelo escarlata. Allí, recogiéndose como para atacar, examinó a los ladrones con ojos que eran tan fríos y malignos como gotas de veneno congeladas.
+
+—¡Por las negras espinas de Taaran! —gritó Fustules—. Es uno de los demonios familiares de Malygris. He oído hablar de esta víbora…
+
+Volviéndose, ambos habrían escapado del cuarto. Pero, incluso antes de dar la vuelta, las paredes y las puertas parecían retroceder ante ellos, escapando de una manera mareante e interminable, como si extraños espacios hubiesen sido admitidos en el cuarto. Un vértigo se apoderó de ellos; tambaleándose, vieron cómo los pequeños fragmentos del mosaico bajo sus pies adquirían las proporciones de enormes losas. En torno a ellos, los libros tirados, los incensarios y los frascos se erguían con un tamaño enorme, alzándose por encima de sus cabezas y bloqueándoles el paso mientras corrían.
+
+Nygon, mirando por encima del hombro, vio que la víbora se había convertido en una gran serpiente pitón, cuyos anillos carmesíes estaban ondulándose rápidamente por el suelo. En un trono colosal, bajo lámparas tan grandes como soles, estaba sentada la forma también colosal del archimago muerto, en cuya presencia Nygon y Fustules no eran nada más que pigmeos. Los labios de Malygris seguían inmóviles debajo de su barba; y sus ojos todavía miraban, fijos e implacables, la negrura de la distante ventana. Pero, en ese instante, una voz llenó los terribles espacios del cuarto, produciendo ecos como un trueno entre los cielos, hueca y tremenda.
+
+—¡Necios! ¡Os habéis atrevido a pedirme un oráculo. Y el oráculo es… muerte!
+
+Nygon y Fustules, conociendo su condena, escaparon en una locura de terror y desesperación. Más allá de los elevados incensarios, de los tomos que se apilaban como pirámides, vieron el umbral en vislumbres intermitentes, como en un remoto horizonte. Pero se retiraba ante ellos, vago e inalcanzable. Jadeaban como resuellan los corredores en un sueño. Detrás de ellos, la pitón bermellón se arrastraba y, alcanzándoles mientras intentaban dar un rodeo por la portada broncínea de uno de los libros de magia, les atacó como a ratones fugitivos.
+
+Al final, sólo hubo una pequeña víbora coralina, que se arrastraba de regreso a su escondite en el seno de Malygris…
+
+Trabajando día y noche, en las criptas bajo el palacio de Gadeiron, con amuletos impíos y conjuraciones malditas, y procedimientos químicos aún más repugnantes, Maranapión y sus siete coadjutores casi habían terminado su brujería.
+
+Habían diseñado una invocación contra Malygris que derribaría el poder del brujo, haciendo evidente a todos el simple hecho de su muerte. Empleando una ciencia atlántida ilegal, Maranapión había creado plasma viviente con todos los atributos de la carne humana, y había hecho que creciese y prosperase, alimentándolo con sangre. Entonces, él y sus ayudantes, uniendo sus voluntades y convocando a fuerzas que era una blasfemia invocar, habían obligado a la masa, palpitante y amorfa, a desarrollar los miembros y el aspecto de un bebé recién nacido, y, en definitiva, le habían dado forma, después de todos los cambios que un hombre experimenta entre su nacimiento y la senectud, en la imagen de Malygris.
+
+Ahora, haciendo avanzar el proceso incluso más, habían hecho que el simulacro muriese de una extremada vejez, como Malygris había aparentemente muerto.
+
+Estaba sentado ante ellos en una silla, orientado hacia el este, y duplicando la misma postura del mago en su asiento de marfil.
+
+Nada quedaba por hacer. Sin fuerzas y agotados, pero con esperanzas, los brujos esperaron los primeros signos de deterioro. Si los hechizos que habían lanzado tenían éxito, un deterioro simultáneo tendría lugar en el cuerpo de Malygris, incorrupto antes de ese momento. Milímetro a milímetro, miembro a miembro, se corrompería en su torre adamantina. Sus familiares le abandonarían, al no estar ya engañados; y todos los que fuesen a la torre conocerían su mortalidad; y la tiranía de Malygris quedaría levantada de Susran, y su nigromancia sería tan nula e impotente como un pentágono roto en Poseidonis.
+
+Por primera vez desde el principio de sus invocaciones, los ocho magos se vieron libres de interrumpir su vigilancia sin poner en peligro o invalidar el hechizo. Durmieron a pierna suelta, sintiendo que se habían ganado bien su reposo. Por la mañana, volvieron, acompañados por el rey Gadeiron, a la cripta en la cual habían dejado la imagen plásmica.
+
+Abriendo la puerta sellada, fueron recibidos por un olor sepulcral, y les agradó notar que la figura mostraba signos inconfundibles de estar en descomposición. Un poco más tarde, consultando el ojo del cíclope, Maranapión verificó el paralelismo de estas marcas con los rasgos de Malygris.
+
+Un gran júbilo, que no dejaba de estar mezclado con alivio, fue sentido por los hechiceros y por el rey Gadeiron. Hasta entonces, no conocedores de los límites de la duración de los poderes controlados por el maestro muerto, habían estado dudosos sobre la eficacia de su propia magia. Pero ahora, les parecía, no había ya razón alguna para dudar.
+
+En ese mismo día, sucedió que unos mercaderes que viajaban por mar fueron ante Malygris para pagarle, de acuerdo con la costumbre, una parte de los beneficios de su último viaje. Incluso cuando se inclinaban ante el maestro, se dieron cuenta, a través de varias señales desagradables, de que le habían traído tributo a un cadáver. Sin atreverse, ni siquiera entonces, dejaron caer el tributo largamente exigido y escaparon del lugar presas del terror. Pronto, en toda Susran, no hubo nadie que dudase ya de la muerte de Malygris. Y, sin embargo, tal era el miedo que había despertado durante muchos lustros, que pocos fueron tan aventurados como para invadir la torre, y los ladrones se mostraban cautelosos, y no intentaron despojarla de sus fabulosos tesoros.
+
+Día tras día, en el monstruoso ojo azul del cíclope, Maranapión vio la putrefacción de su más temido rival. Y sobre él vino entonces un fuerte deseo de visitar la torre y contemplar cara a cara lo que hasta entonces sólo había contemplado a través de visiones. Solamente así sería completo su triunfo. De modo que él y los hechiceros que le habían ayudado, junto al rey Gadeiron, subieron a la torre leonada por los escalones de adamante, y ascendieron por las escaleras de mármol, como Nygon y Fustules antes de ellos, hasta la habitación alta en que estaba sentado Malygris.… Pero la condena de Nygon y Fustules, no teniendo otro testigo que los muertos, les resultaba del todo desconocida.
+
+Valientemente y sin vacilar, entraron en la habitación. Inclinándose a través de la ventana oriental, el sol de últimas horas de la tarde caía dorado sobre el polvo que se había amontonado por todas partes. Las arañas habían tejido sus redes sobre los incensarios de brillantes joyas, sobre las lámparas talladas y los libros de brujería forrados de metal. El aire estaba estancado con la apestosa podredumbre de la muerte.
+
+Los intrusos avanzaron, sintiendo el impulso que conduce al vencedor a sentirse exultante ante un enemigo vencido. Malygris estaba sentado recto y sin inclinarse, sus dedos negros y en jirones agarrando los brazos del asiento como antes, y sus cuencas vacías orientadas aún a la ventana del este. Su rostro era poco más que un cráneo con barba; y su frente oscurecida era como el ébano comido por los gusanos.
+
+—¡Oh, Malygris, yo te saludo! —dijo Maranapión en voz alta llena de burla—. Concédeme, te ruego, un signo, si tu brujería aún prevalece y no se ha convertido en la dependencia del olvido.
+
+—Saludos, ¡oh, Maranapión! —dijo una voz grave y terrible que partía de los labios comidos por los gusanos—. En verdad, te concederé un signo. Así como yo, en la muerte, me he corrompido sobre mi asiento, a causa de la repugnante brujería que fue fraguada en las cavernas de Gadeiron, así tú y tus compañeros y Gadeiron, con vida, os corromperéis y pudriréis en virtud de la maldición que ahora lanzo sobre vosotros.
+
+Entonces, el cadáver marchito de Malygris les fulminó con las runas de una antigua fórmula atlántida, maldiciendo a los ocho brujos y al rey Gadeiron. La fórmula, en intervalos frecuentes, estaba cadenciada con los nombres fatales de dioses letales, y en ella se decían los apelativos secretos del negro dios del tiempo, y la Nada que habita más allá de las eras; y uso fue hecho de los títulos de muchos demonios que habitan en las tumbas. Pesadas y de sonido hueco eran las runas, y en ellas parecía escucharse el sonido de grandes puertas sepulcrales, y el estrépito de losas que caen. El aire se oscureció como por la caída de una noche inmutable, y, desde allí, como el aliento de la noche, un frío entró en la habitación; y parecía que las alas negras de las edades pasaban sobre la torre, batiendo prodigiosamente de vacío en vacío, antes de que la maldición hubiese terminado.
+
+Escuchando ese escándalo, los brujos se quedaron atontados por lo extremo de su temor, y ni siquiera Maranapión fue capaz de recordar ningún contrahechizo que sirviese de algo contra éste.
+
+Todos habrían escapado del cuarto antes de que la maldición terminase, pero sobre ellos se cernió una debilidad mortal, y sintieron una enfermedad como la próxima llegada de la muerte. Las sombras se tejieron ante sus ojos, pero, a través de la oscuridad, cada uno contempló vagamente la instantánea tiniebla del rostro de sus compañeros, y vio las mejillas hundirse ruinosamente, y los labios retroceder dejando los dientes al descubierto, como los cadáveres largo tiempo muertos.
+
+Intentando correr, cada uno fue consciente de sus propios miembros pudriéndose por debajo de él, paso a paso, el rápido reblandecimiento de la carne pudriéndose hasta el hueso. Gritando con lenguas que se marchitaban antes de que el grito hubiese acabado, cayeron por los suelos de la habitación. Quedaba vida en ellos, junto con el lúgubre conocimiento de su condena, y aún les quedaba algo de vista y oído. En la oscura agonía de su corrupción en vida, se revolvían débilmente de aquí a allá, y se arrastraban por milímetros a través del frío mosaico. Y aún se movían así, lentamente y de una manera más imperceptible, hasta que sus cerebros se convirtieron en un moho gris, y sus articulaciones se deshicieron en sus huesos, y la médula de sus huesos se secó.
+
+Así, en una hora, la maldición se cumplió. Los enemigos del nigromante yacían ante él, tumbados y encogidos, con la postura final de la tumba, como haciendo una reverencia a una muerte entronada. De no ser por las prendas, nadie podría haber distinguido al rey Gadeiron de Maranapión, ni a Maranapión de los hechiceros menores.
+
+El día pasó, declinando hacia el mar, y, ardiendo como una pira real más allá de Susran, al ponerse, el sol arrojó un brillo dorado por la ventana, y entonces se hundió, en rojos rescoldos y cenizas funerarias. Y, en el crepúsculo, una víbora coralilla salió del seno de Malygris y, deslizándose entre los restos que descansaban en el suelo, y escurriéndose en silencio por las escaleras de mármol, se marchó para siempre de la torre.
+
+FIN

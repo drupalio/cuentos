@@ -1,0 +1,39 @@
+---
+title: "El sexo de los ángeles"
+author: "Mario Benedetti"
+source: 'https://lecturia.org/cuentos-y-relatos/mario-benedetti-el-sexo-de-los-angeles/10701/'
+image: "0527-el-sexo-de-los-ángeles.jpg"
+tags:
+  - cuento
+  - autor/mario-benedetti
+---
+
+# El sexo de los ángeles
+
+Sinopsis:«El sexo de los ángeles», es un cuento corto deMario Benedetti, publicado en 1989 en la colecciónDespistes y franquezas, que explora una fascinante cuestión: la naturaleza del amor y la sexualidad de los ángeles. La narrativa sugiere que, a diferencia de los seres humanos, los ángeles no hacen el amor físicamente, dado que carecen de cuerpos. Sin embargo, se insinúa que celebran su amor de manera diferente, utilizando palabras.
+
+Mario Benedetti(Cuento completo)
+
+UNA de las más lamentables carencias de información que han padecido los hombres y mujeres de todas las épocas se relaciona con el sexo de los ángeles. El dato, nunca confirmado, de que los ángeles no hacen el amor quizá signifique que no lo hacen de la misma manera que los mortales.
+
+Otra versión, tampoco confirmada pero más verosímil, sugiere que si bien los ángeles no hacen el amor con sus cuerpos (por la mera razón de que carecen de los mismos) lo celebran en cambio con palabras, vale decir con las adecuadas.
+
+Así, cada vez que Ángel y Ángela se encuentran en el cruce de dos transparencias, empiezan por mirarse, seducirse y tentarse mediante el intercambio de miradas que, por supuesto, son angelicales.
+
+Y si Ángel, para abrir el fuego, dice: «Semilla», Ángela, para atizarlo, responde: «Surco». Él dice: «Alud», y ella, tiernamente: «Abismo».
+
+Las palabras se cruzan, vertiginosas como meteoritos o acariciantes como copos.
+
+Ángel dice: «Madero». Y Ángela: «Caverna».
+
+Aletean por ahí un Ángel de la Guarda, misógino y silente, y un ángel de la Muerte, viudo y tenebroso. Pero el par amatorio no se interrumpe, sigue silabeando su amor.
+
+Él dice: «Manantial». Y ella: «Cuenca».
+
+Las sílabas se impregnan de rocío y, aquí y allá, entre cristales de nieve, circulan el aire y su expectativa.
+
+Ángel dice: «Estoque», y Ángela, radiante: «Herida». Él dice: «Tañido», y ella: «Rebato».
+
+Y en el preciso instante del orgasmo ultraterreno, los cirros y los cúmulos, los estratos y nimbos, se estremecen, tremolan, estallan, y el amor de los ángeles llueve copiosamente sobre el mundo.
+
+FIN

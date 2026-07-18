@@ -1,0 +1,61 @@
+---
+title: "Horacio Quiroga"
+tags:
+  - autor
+  - autor/horacio-quiroga
+---
+
+# Horacio Quiroga
+
+## Cuentos
+
+- [[0451-a-la-deriva|A la deriva]]
+- [[0661-almas-cándidas|Almas cándidas]]
+- [[0952-anaconda|Anaconda]]
+- [[0839-cacería-del-hombre-por-las-hormigas|Cacería del hombre por las hormigas]]
+- [[0670-charlábamos-de-sobremesa|Charlábamos de sobremesa]]
+- [[1035-de-una-mujer-a-un-hombre|De una mujer a un hombre]]
+- [[0651-dieta-de-amor|Dieta de amor]]
+- [[1181-el-alambre-de-púa|El alambre de púa]]
+- [[0713-el-almohadón-de-plumas|El almohadón de plumas]]
+- [[0890-el-canto-del-cisne|El canto del cisne]]
+- [[0882-el-crimen-del-otro|El crimen del otro]]
+- [[0541-el-espectro|El espectro]]
+- [[0172-el-hijo|El hijo]]
+- [[0505-el-hombre-artificial|El hombre artificial]]
+- [[1194-el-hombre-muerto|El hombre muerto]]
+- [[0967-el-infierno-artificial|El infierno artificial]]
+- [[0131-el-llamado|El llamado]]
+- [[1235-el-loro-pelado|El loro pelado]]
+- [[0894-el-machito|El machito]]
+- [[0439-el-paso-del-yabebirí|El paso del Yabebirí]]
+- [[0950-el-perro-rabioso|El perro rabioso]]
+- [[0519-el-puritano|El puritano]]
+- [[0942-el-regreso-de-anaconda|El regreso de anaconda]]
+- [[0859-el-solitario|El solitario]]
+- [[1349-horacio-quiroga-el-tonel-del-amontillado|El tonel del amontillado]]
+- [[1206-horacio-quiroga-el-vampiro-primera-versión|El vampiro (Primera versión)]]
+- [[0681-el-vampiro-segunda-versión|El vampiro (Segunda versión)]]
+- [[1222-fanny|Fanny]]
+- [[1029-juan-darién|Juan Darién]]
+- [[1008-junto-a-la-madre-muerta|Junto a la madre muerta]]
+- [[0794-la-abeja-haragana|La abeja haragana]]
+- [[1050-la-compasión|La compasión]]
+- [[0132-la-gallina-degollada|La gallina degollada]]
+- [[0198-la-guerra-de-los-yacarés|La guerra de los yacarés]]
+- [[1028-la-insolación|La insolación]]
+- [[0911-la-miel-silvestre|La miel silvestre]]
+- [[1162-la-tortuga-gigante|La tortuga gigante]]
+- [[1192-las-moscas-réplica-de-el-hombre-muerto|Las moscas (Réplica de El hombre muerto)]]
+- [[0032-los-buques-suicidantes|Los buques suicidantes]]
+- [[0934-los-guantes-de-goma|Los guantes de goma]]
+- [[1004-los-inmigrantes|Los inmigrantes]]
+- [[1118-los-ojos-sombríos|Los ojos sombríos]]
+- [[0490-los-tres-besos|Los tres besos]]
+- [[0994-más-allá|Más allá]]
+- [[0234-recuerdos-de-un-sapo|Recuerdos de un sapo]]
+- [[0581-una-bofetada|Una bofetada]]
+- [[1092-una-estación-de-amor|Una estación de amor]]
+- [[0310-una-historia-inmoral|Una historia inmoral]]
+- [[1152-una-noche-de-edén|Una noche de Edén]]
+- [[1099-yaguaí|Yaguaí]]

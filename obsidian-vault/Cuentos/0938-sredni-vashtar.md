@@ -1,0 +1,57 @@
+---
+title: "Sredni Vashtar"
+author: "Saki"
+source: 'https://lecturia.org/cuentos-y-relatos/saki-sredni-vashtar/564/'
+image: "0938-sredni-vashtar.webp"
+tags:
+  - cuento
+  - autor/saki
+---
+
+# Sredni Vashtar
+
+Sinopsis: «Sredni Vashtar» es un cuento del escritor británico Saki (Hector Hugh Munro), publicado por primera vez el 28 de mayo de 1910 en laWestminster Gazettey más tarde incluido enThe Chronicles of Clovis(1911). La historia se centra en Conradin, un niño enfermizo y solitario que vive bajo la opresiva tutela de su prima, la señora De Ropp. En un rincón oculto del jardín, Conradin encuentra refugio en un cobertizo donde cría en secreto a un hurón, al que venera como un dios llamado Sredni Vashtar. En ese pequeño santuario, Conradin construye un mundo privado, escenario de su resistencia íntima y silenciosa.
+
+Saki(Cuento completo)
+
+CONRADIN TENÍA DIEZ años de edad, y la opinión profesional del médico era la de que el niño no viviría otros cinco. El médico era zalamero e inepto, y no valía mayor cosa, pero su opinión recibía el respaldo de la señora De Ropp, quien valía por casi todo. La señora De Ropp era prima y tutora de Conradin, y representaba para él esas tres quintas partes del mundo que son necesarias, desagradables y reales; las otras dos quintas partes, en perpetuo antagonismo con las anteriores, se resumían en él y en su imaginación. Conradin suponía que un día de estos acabaría sucumbiendo al yugo de las pesadas cosas necesarias, tales como las enfermedades, los mimos restrictivos y el prolongado aburrimiento. Sin su imaginación, desbocada bajo el acicate de la soledad, habría sucumbido tiempo atrás. Ni siquiera en sus ratos de mayor honestidad la señora De Ropp se habría confesado que le tenía aversión a Conradin, aunque acaso columbrara que el deber de frustrarlo «por su bien» no le resultaba particularmente molesto. Conradin la odiaba con una sinceridad desesperada que sabía disimular a la perfección. Los escasos placeres que se ingeniaba para procurarse ganaban un gustillo adicional por el hecho de que probablemente habrían desagradado a su tutora; y la tenía expulsada del reino de su imaginación, a esa cosa impura que allí jamás encontraría cabida.
+
+En el sombrío e inhóspito jardín, vigilado por tantas ventanas siempre prontas a abrirse y soltar la advertencia de no hacer esto o aquello, o el aviso de que era hora de tomar la medicina, hallaba él escasos atractivos. Los pocos árboles frutales que encerraba estaban celosamente vedados a sus manos, como si fueran raros especímenes que florecieran en un yermo; si bien quizás habría costado encontrar un verdulero dispuesto a ofrecer diez chelines por la cosecha de todo el año. Sin embargo, en un rincón perdido y casi oculto tras unos setos desmayados, había un cobertizo en desuso de considerables dimensiones; y bajo su techo Conradin encontraba refugio, algo que asumía los diversos visos de un cuarto de juegos y de una catedral. Lo había poblado con una legión de fantasmas familiares, sacados en parte de episodios históricos y en parte de su propia mente, pero el lugar también hacía gala de dos inquilinos de carne y hueso. En un rincón vivía una gallina de Houdan de plumaje alborotado, a la que el niño prodigaba un afecto que a duras penas encontraba más salidas. Más al fondo, en la penumbra, había una amplia jaula dividida en dos compartimientos, uno de los cuales tenía al frente unas barras de hierro muy cerradas. Ésta era la morada de un gran hurón que su amigo el recadero de la carnicería había entrado de contrabando, con jaula y todo, a cambio de una reserva de monedas de plata atesoradas durante largo tiempo. Conradin le tenía pavor a la elástica fiera de colmillos agudos, aun cuando era su más preciada posesión. Su sola presencia en el cobertizo era motivo de una terrible y secreta alegría, que debía ocultar con sumo cuidado a La Mujer, como en secreto apodaba a la prima. Y un día, sabrá el cielo a partir de qué materia, hiló para la bestia un nombre fabuloso, y desde ese momento ésta adquirió la talla de un dios y una religión. La Mujer se entregaba a las prácticas religiosas una vez por semana en una iglesia de la vecindad, y llevaba con ella a Conradin, aunque el oficio litúrgico a él le parecía un rito ajeno en el templo de una divinidad asiria. Todos los jueves, en el mustio silencio del cobertizo, rendía un místico y complicado culto frente a la jaula de madera que habitaba Sredni Vashtar, el gran hurón. Ofrecía ante este santuario flores rojas cuando era la estación y bayas escarlatas en invierno, pues este dios ponía especial énfasis en la cara feroz e intolerante de las cosas; al contrario de la religión de La Mujer, que, hasta donde observaba Conradin, llegaba a extremos en la dirección opuesta. Y en las grandes festividades esparcía polvo de nuez moscada frente a su jaula, siendo parte importante de la ofrenda el hecho de que la nuez moscada tenía que ser robada. Estas festividades ocurrían con irregularidad y eran decretadas principalmente para celebrar algún suceso transitorio. En cierta ocasión, cuando la señora De Ropp padeció un agudo dolor de muelas por tres días seguidos, Conradin guardó las fiestas durante el mismo tiempo, llegando casi a convencerse de que Sredni Vashtar era en persona responsable del dolor de muelas. De haber durado el mal un día más, las existencias de nuez moscada se habrían agotado.
+
+La gallina de Houdan nunca fue involucrada en el culto de Sredni Vashtar. Conradin había decidido hacía mucho que ella era anabaptista. No pretendía tener la más remota idea de lo que era un anabaptista, pero abrigaba la esperanza de que fuera una cosa flamante y no muy respetable. La señora De Ropp era el cimiento sobre el cual él basaba su odio por toda respetabilidad.
+
+Pasado cierto tiempo, la tutora comenzó a notar la obsesión de Conradin por el cobertizo. «No le conviene andar perdiendo el tiempo por allí a todas horas», decidió prontamente; y una mañana mientras desayunaban le anunció que la gallina de Houdan había sido vendida y que se la habían llevado por la noche. Atisbó a Conradin con sus ojos miopes, a la espera de una explosión de rabia y de dolor que estaba lista a sofocar con una descarga de excelentes preceptos y razones. Pero Conradin no dijo nada: no había nada qué decir. Quizás algo en su rostro empedernido y pálido le produjo un remordimiento pasajero, pues esa tarde a la hora del té hubo tostadas en la mesa, manjares prohibidos por regla general, sobre el supuesto de que le hacían daño; y también porque hacerlas «daba trabajo», mortal ofensa para una mujer de clase media.
+
+—Creía que te gustaban las tostadas —exclamó, con expresión herida, al notar que no las tocaba.
+
+—A veces —dijo Conradin.
+
+Esa tarde hubo en el cobertizo una innovación en el culto del dios enjaulado. Conradin solía cantarle alabanzas; esta noche le pidió una merced.
+
+—Te pido una cosa, Sredni Vashtar.
+
+No especificó qué cosa. Puesto que Sredni Vashtar era un dios, le correspondía saberlo. Y ahogando un sollozo cuando miró al otro rincón vacío, Conradin regresó al mundo que tanto detestaba.
+
+Y cada noche, en la acogedora oscuridad de su alcoba, y todas las tardes, en la penumbra del cobertizo, se elevaba la amarga letanía de Conradin: «Te pido una cosa, Sredni Vashtar».
+
+La señora De Ropp notó que las visitas al cobertizo no habían cesado, y un día realizó otro viaje de inspección.
+
+—¿Qué cosa guardas en esa jaula con candado? —preguntó—. Creo que son conejillos de Indias. Voy a hacer que se los lleven a todos.
+
+Conradin apretó los labios, pero La Mujer registró su cuarto hasta encontrar la llave que éste había escondido con cuidado, y de inmediato bajó al cobertizo, con el fin de completar el descubrimiento. Era una tarde fría y Conradin había sido conminado a mantenerse dentro de la casa. Desde la última ventana del comedor se alcanzaba a ver la puerta del cobertizo tras la esquina del seto, y allí se apostó Conradin. Vio entrar a La Mujer, y luego la imaginó abriendo la puerta de la jaula sagrada y escudriñando con sus ojos miopes el fondo con el tupido lecho de paja donde se agazapaba su deidad. Tal vez, en su torpe impaciencia, se le iba a ocurrir hurgar la paja. Entonces Conradin murmuró por última vez su ferviente oración. Pero al rezar sabía que le faltaba convicción. Sabía que La Mujer iba a salir dentro de poco con la sonrisa fruncida que él tanto odiaba pintada en el rostro, y que en una hora o dos el jardinero se llevaría a su maravilloso dios, no ya un dios, sino un simple hurón pardo en una jaula. Y sabía que La Mujer triunfaría siempre como triunfaba ahora, y que él se iría haciendo cada vez más enfermizo por culpa de su acoso, tiranía y sabihondez, hasta que un día ya nada le importara mayor cosa y la opinión del médico resultara ser cierta. Y en el tormento y miseria de su derrota comenzó a cantar en voz alta y desafiante el himno de su ídolo en peligro:
+
+Sredni Vashtar salió al ataque,sus pensamientos eran rojos, sus dientes eran blancos,sus enemigos imploraban la paz, pero él les daba muerte.Sredni Vashtar, el Bello.
+
+Y entonces cortó en seco aquel cántico y se apretó contra el cristal de la ventana. La puerta del cobertizo seguía entreabierta y los minutos transcurrían. Eran largos minutos, pero así y todo transcurrían. Contempló los estorninos que corrían y revoloteaban en pequeñas bandas por el césped; los contó una y otra vez, sin quitar nunca el ojo de la puerta giratoria. Una sirvienta de cara avinagrada entró a poner la mesa para el té, y Conradin seguía allí de pie, esperando y mirando. La esperanza había calado poco a poco en su corazón, y ahora una chispa de triunfo empezaba a brillar en sus ojos, que hasta entonces sólo habían reflejado la melancólica resignación de la derrota. A media voz, con un furtivo regocijo, reanudó el himno de victoria y desolación. Y sus ojos al fin fueron recompensados: por la puerta salió un animal largo y bajo, entre amarillo y pardo, con ojos que parpadeaban a la luz del crepúsculo y negras manchas húmedas en la piel de las fauces y el pescuezo. Conradin se hincó de rodillas. El gran hurón caminó hasta el arroyo que corría por la parte baja del jardín, bebió allí por un momento y luego cruzó un puentecito de tablones y se perdió de vista entre los matorrales. Así partió Sredni Vashtar.
+
+—El té está listo —dijo la sirvienta de cara avinagrada—. ¿Dónde está la señora?
+
+—Hace un rato bajó al cobertizo —dijo Conradin.
+
+Y mientras la criada iba a buscar a su ama para el té, Conradin sacó del aparador un pincho de tostadas y procedió a tostarse una rebanada de pan. Y mientras la tostaba, le untaba abundante mantequilla y se regodeaba parsimoniosamente al masticarla, prestó atención a los ruidos y silencios que se sucedían como en ráfagas tras la puerta del comedor: el alarido estridente y ridículo de la criada, el coro de respuesta que se elevó lleno de exclamaciones de sorpresa desde el área de la cocina, los pasos atropellados y las presurosas embajadas para pedir ayuda afuera; y luego, después de una corta tregua, los sollozos de espanto y los pasos arrastrados de quienes transportaban una carga pesada al interior de la casa.
+
+—¿Quién se lo va a contar al niño? ¡Yo no podría, de ninguna manera! —exclamó una voz chillona.
+
+Y mientras discutían entre sí la cuestión, Conradin procedió a prepararse otra tostada.
+
+FIN

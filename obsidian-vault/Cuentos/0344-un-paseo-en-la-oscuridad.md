@@ -1,0 +1,127 @@
+---
+title: "Un paseo en la oscuridad"
+author: "Arthur C. Clarke"
+source: 'https://lecturia.org/cuentos-y-relatos/arthur-c-clarke-un-paseo-en-la-oscuridad/24028/'
+image: "0344-un-paseo-en-la-oscuridad.webp"
+tags:
+  - cuento
+  - autor/arthur-c-clarke
+---
+
+# Un paseo en la oscuridad
+
+Sinopsis: «Un paseo en la oscuridad» (A Walk in the Dark) es un cuento de Arthur C. Clarke, publicado en agosto de 1950 en la revistaThrilling Wonder Storiese incluido luego en la antologíaReach for Tomorrow(1956). La historia sigue a Robert Armstrong, un técnico espacial que, debido a la avería de su vehículo, debe recorrer a pie varios kilómetros por un planeta remoto e inhóspito. La ruta, envuelta en una oscuridad absoluta, se convierte en una experiencia angustiante cuando el recuerdo de una leyenda local sobre una criatura que acecha en la noche comienza a infiltrarse en sus pensamientos, haciendo que la lógica ceda ante la sugestión.
+
+Arthur C. Clarke(Cuento completo)
+
+Sólo había caminado Robert Armstrong dos millas, por lo que pudo juzgar, cuando su antorcha se descompuso. Estuvo inmóvil por un instante, incapaz de creer que tal desgracia pudiera haber caído sobre él. Luego, medio enloquecido por el furor, arrojó el inútil instrumento muy lejos. Aterrizó en algún lugar de la oscuridad, alterando el silencio de ese pequeño mundo. Un eco metálico resonó volviendo de las bajas colinas: luego, todo se tranquilizó de nuevo.
+
+Ésta, pensó Armstrong, era la desgracia definitiva. Nada más podía ocurrirle ya. Hasta podía reírse amargamente de su suerte, y, resolvió que nunca más se imaginaría que la veleidosa deidad le había favorecido alguna vez. ¿Quién hubiera creído que el único tractor del Campamento IV se descompondría justo cuando él iba a salir para Port Sanderson? Recordó el frenético trabajo de reparación, el alivio cuando arrancó nuevamente… y la debacle final cuando se atascó la oruga del tractor.
+
+Era inútil quejarse por la tardanza en su salida: él no podía prever estos accidentes, y aún faltaban cuatro buenas horas para que saliese el Canopus. Tenía que alcanzarlo, de cualquier modo; ninguna otra nave llegaría a este mundo hasta dentro de un mes.
+
+Además de la urgencia de su trabajo, era imposible pensar en cuatro semanas más sobre este planeta alejado de las rutas usuales.
+
+Sólo había una cosa que hacer. Por suerte, Port Sanderson estaba a poco más de seis millas del campamento… no una GRAN distancia, aún a pie. Había tenido que dejar atrás todo su equipo, pero éste lo podría seguir en la próxima nave, y podía arreglárselas sin él. La ruta era pobre, apenas marcada en la roca con las aplanadoras de cien toneladas del Directorio, pero no había riesgo de perderse.
+
+Aun ahora, no estaba en real peligro, pese a que bien podría ser demasiado tarde para alcanzar la nave. Sería lento avanzar, porque no se atrevía a correr el riesgo de perder el camino en esta región de cañones y túneles enigmáticos que nunca habían sido explorados. Había, por supuesto, una completa oscuridad. Aquí en el borde de la Galaxia, las estrellas eran tan pocas y estaban tan dispersas, que su luz era despreciable. El extraño sol carmesí de este mundo no se levantaría hasta dentro de muchas horas, y pese a que cinco de sus pequeñas lunas brillaban en el cielo, apenas podían ser vistas a simple vista. Ninguna de ellas podía siquiera producir sombra.
+
+Armstrong no era hombre de llorar su suerte por mucho tiempo. Lentamente comenzó a caminar a lo largo de la ruta, sintiendo su textura con sus pies. Era, lo sabía, suavemente recta excepto donde se curvaba alrededor del Paso Carver. Deseó tener un palo o algo para probar el camino que seguía, pero estaba obligado a confiar en su sentido del tacto como única guía.
+
+Al principio fue terriblemente lento, hasta que ganó confianza. Nunca había sabido lo difícil que era caminar en línea recta. Pese a que las débiles estrellas lo orientaban, una y otra vez se encontró dando traspiés entre las rocas vírgenes del borde de la irregular carretera. Viajaba en largos zigzags que le llevaban alternativamente a uno y otro borde de la ruta. Entonces, los dedos de sus pies tropezaban nuevamente con la roca desnuda, y una vez más retornaba a tientas hacia la superficie fuertemente apisonada.
+
+En seguida se hizo rutina. Era imposible estimar su velocidad; sólo podía esforzarse y esperar lo mejor. Había cuatro millas por delante…, cuatro millas y otras tantas horas. Sería suficientemente fácil, salvo que se extraviara. Pero no se atrevía a pensar en eso.
+
+Una vez que hubo dominado la técnica, se pudo dar gusto de pensar. No podía pretender que gozaba de experiencia, pero ya había estado antes en peores condiciones. Mientras permaneciera sobre la ruta, estaba completamente a salvo. Había tenido la esperanza de que cuando sus ojos se hubiesen adaptado a la luz de las estrellas podría ver el camino, pero ahora sabía que toda la travesía sería a ciegas. El descubrimiento proporcionó un claro sentido de su alejamiento del corazón de la Galaxia. En una noche tan clara como los cielos de casi todos los planetas hubieran brillado bajo las estrellas. Aquí, en este fortín de frontera del Universo, el cielo contenía apenas cien débiles puntos brillantes, tan inútiles como las cinco lunas ridículas sobre las que nadie se había molestado en aterrizar.
+
+Un leve cambio en la carretera interrumpió sus pensamientos. ¿Había una curva o se había torcido otra vez hacia la derecha? Se movió muy lentamente a lo largo de la invisible y mal definida frontera. Sí, no había ningún error: la ruta se inclinaba hacia la izquierda. Trató de recordar su apariencia a la luz del día, pero la había visto una sola vez. ¿Significaba esto que se estaba aproximando al Paso? Así lo esperaba, porque entonces la travesía ya estaría medio completa.
+
+Miró hacia adelante en la oscuridad, pero la arrugada línea del horizonte no le dijo nada. Inmediatamente descubrió que la ruta se enderezaba una vez. Carver debía estar todavía un poco más adelante: había que andar como mínimo cuatro millas.
+
+Cuatro millas…, ¡qué ridícula parecía esta distancia! ¿Cuánto tardaría el Canopus en recorrer cuatro millas? Dudaba que el hombre pudiera medir un intervalo de tiempo tan corto. ¿Y cuántos billones de millas había recorrido él, Robert Armstrong, en toda su vida? Debería alcanzar un total asombroso, ya que en los últimos veinte años apenas si había permanecido más de un mes en el mismo mundo. Este mismo año había atravesado dos veces la Galaxia, y ésa era una notable travesía, aún en estos días de fantástica aceleración.
+
+Tropezó con una piedra suelta y la sacudida le devolvió a la realidad. Aquí era inútil pensar en naves que podrían devorar años-luz. Se estaba enfrentando con la Naturaleza, sin armas excepto su propia fuerza y habilidad.
+
+Era raro que tardase tanto en identificar la causa real de su inquietud. Las últimas cuatro semanas habían sido abrumadoras y el apuro de su partida, unido a la sorpresa y ansiedad causadas por las descomposturas del tractor, había borrado de su mente cualquier otra cosa. Además, siempre se había enorgullecido de su obstinación y falta de imaginación. Hasta ahora se había olvidado de todo lo conectado con su primera velada en la Base, cuando los tripulantes le regalaron los usuales hilos, trenzados en honor a los recién llegados.
+
+Fue entonces cuando el viejo empleado de la Base contó su paseo nocturno desde Port Sanderson hasta el campamento, y de lo que le había seguido a través del Paso Carver, manteniéndose siempre más allá del límite de su antorcha. Armstrong, que había oído esos relatos en una veintena de mundos, en ese entonces no le prestó mucha atención. Se sabía, después de todo, que este planeta estaba deshabitado. Pero la lógica no podía disponer del asunto así tan fácilmente. ¿Y qué, si después de todo, había algo de verdad en el fantástico relato del anciano…?
+
+No era un pensamiento placentero, y Armstrong trató de no pensar en eso con mucho detenimiento. Pero sabía que si lo abandonaba seguiría haciendo presa de su mente. La única manera de vencer los temores imaginarios era hacerles frente audazmente y ahora tendría que hacerlo.
+
+Su argumento más fuerte era la completa esterilidad en este mundo y su extrema desolación, pese a que, en contra de esto, uno podría oponer muchos contraargumentos, como bien lo había hecho el anciano empleado. El Hombre había vivido en este planeta durante veinte años y muchas partes estaban aún sin explorar. Nadie podía negar que los túneles de los desiertos eran algo inquietantes, pero todo el mundo creía que eran cavidades volcánicas. No obstante, por supuesto, la vida se arrastraba con frecuencia dentro de tales lugares. Recordó, con un estremecimiento, los pólipos gigantes que habían atrapado a los primeros exploradores de Vargon III.
+
+Nada era definitivo. Supongamos, para seguir con esos argumentos, que allí se admitiera la existencia de vida. ¿Y con eso qué?
+
+La gran mayoría de las formas de vida del Universo eran completamente indiferentes al Hombre. Algunas, por supuesto, como los seres gaseosos de Alcoran o los errantes reticulados ondulatorios de Shandaloon, ni siquiera podían detectarlo, y le atravesaban o le rodeaban como si no existiera. Otras eran apenas inquisidoras, algunas embarazosamente amistosas. En verdad, había pocas que atacaran sin provocación.
+
+De todas maneras, el cuadro que pintara el viejo empleado era horrendo. Allá atrás, en el cómodo y bien iluminado salón de fumar, con las bebidas pasando alrededor, había sido bastante fácil reírse del relato. Pero aquí en la oscuridad, a millas de cualquier establecimiento humano, era muy diferente.
+
+Fue casi un alivio cuando tropezó de nuevo fuera de la ruta y tuvo que palpar con sus manos hasta que la encontró una vez más. Parecía un terreno muy áspero y la ruta era escasamente distinguible de las rocas de alrededor. En pocos minutos, sin embargo, estuvo nuevamente a salvo en su camino.
+
+Era desagradable ver con qué rapidez sus pensamientos volvían al mismo inquietante tema. Claramente le estaba preocupando más de lo que se molestaba en admitir.
+
+Le consoló este hecho: había sido bastante obvio que nadie en la Base había creído la historia del anciano. Las preguntas y las burlas se lo probaron. En ese momento se rió tan fuerte como el que más. Después de todo, ¿cuálerala evidencia? Una silueta opaca, apenas vista en la oscuridad, que muy bien podría haber sido una roca de extraña formación. Y el curioso ruido rítmico que tanto había impresionado al viejo… de noche cualquiera podría imaginarse tales sonidos si estuviera lo suficientemente excitado. Si hubiera sido hostil, ¿por qué la criatura no se acercó más? «Porque tenía miedo de mi luz», dijo el viejo. Bueno, era bastante plausible: explicaría por qué no se había visto nada a la luz del sol. Tal criatura debía vivir bajo tierra, subiendo sólo de noche… ¡maldición!, ¡por qué se estaba tomando tan seriamente los delirios de ese viejo idiota! Armstrong tomó una vez más el control de sus pensamientos. Si seguía de esta forma, se dijo a sí mismo enfadado, pronto estaría viendo y oyendo una completa colección de monstruos.
+
+Había un factor, por supuesto, que echaba inmediatamente por tierra todo el ridículo relato. Era realmente muy simple; se lamentó por no haberlo pensado antes. ¿De qué viviría una criatura como ésa? No había ni una pizca de vegetación en todo el planeta. Se rió al pensar que el duende podía ser arrojado tan fácilmente… y en el mismo instante se sintió molesto consigo mismo por no reírse en voz alta. Si estaba tan seguro de su razonamiento, ¿por qué no silbar, o cantar, o hacer algo para levantar el espíritu? Se hizo la pregunta a sí mismo con claridad, como una prueba a su hombría. Medio avergonzado, tuvo que admitir que aún estaba asustado…, asustado porque «podría haber algo de eso, después de todo». Pero al menos su análisis le había hecho algún bien.
+
+Habría sido mejor si hubiera dejado todo así, aceptando a medias su argumento. Pero una parte de su mente estaba aún ocupada en destruir su cuidadoso razonamiento. Lo consiguió con tal éxito, que cuando recordó los seres plantas de Xantil Mayor, la impresión fue tan desagradable que se detuvo como muerto.
+
+En realidad, los seres-plantas de Xantil no eran de ninguna manera horribles. Eran, de hecho, criaturas extremadamente bellas. Pero lo que las hacía ahora aparecer tan deprimentes era el conocimiento de que podían vivir sin comida durante períodos indefinidos. Toda la energía que necesitaban para sus extrañas vidas la extraían de la radiación cósmica… y aquí era casi tan intensa como en cualquier lugar del Universo.
+
+Apenas hubo pensado un ejemplo cuando otros se apiñaron en su mente y recordó la forma de vida de Trántor Beta, que era la única conocida capaz de utilizar la energía atómica directamente. Aquélla también había vivido en un mundo extremadamente desierto, muy parecido a éste…
+
+La mente de Armstrong se estaba partiendo rápidamente en dos porciones diferentes, cada una tratando de convencer a la otra sin lograrlo por completo. No se dio cuenta de lo desmoralizado que estaba hasta que se encontró conteniendo la respiración por miedo a que ésta le ocultara cualquier sonido proveniente de la oscuridad circundante. Enfadado, limpió su mente de la basura que se había estado acumulando allí y volvió una vez más al problema inmediato.
+
+No había duda de que la carretera se elevaba lentamente, y la silueta del horizonte aparecía mucho más alta. La carretera comenzó a girar y de repente percibió grandes rocas a derecha e izquierda. Pronto sólo se pudo ver una franja del cielo, y la oscuridad se tornó, si era posible, aún más intensa.
+
+De alguna manera, se sentía más seguro con las paredes rocosas rodeándole: ello implicaba que estaba protegido excepto en dos direcciones. Además, la ruta había sido nivelada con más cuidado y era más fácil mantenerse en ella. Pero lo mejor de todo es que ahora sabía que la travesía estaba a medio completar.
+
+Por un momento, su ánimo comenzó a elevarse. Entonces, con una perversidad enloquecedora, su mente volvió otra vez a los viejos hábitos. Recordó que la aventura del anciano empleado había tenido lugar en el extremo alejado del Paso Carver… si es que alguna vez sucedió.
+
+Dentro de media milla, estaría otra vez a campo raso, fuera de la protección de estas rocas acogedoras. El pensamiento le pareció ahora doblemente horrible y entonces comenzó a sentir una sensación de desnudez. Podría ser atacado desde cualquier dirección, y estaría extremadamente indefenso…
+
+Hasta ahora, había conservado cierto autocontrol. Con mucha resolución había mantenido apartada su mente del único hecho que le daba un poco de color al relato del viejo… la única evidencia que había detenido las burlas allá en el repleto salón del campamento, y que produjo un repentino silencio en toda la compañía. Ahora, mientras se debilitaba la voluntad de Armstrong, recordó nuevamente las palabras que habían producido un escalofrío aún en el cálido confort del edificio de la Base.
+
+El pequeño empleado había insistido mucho sobre este punto. Nunca había oído ningún sonido de persecución proveniente de la opaca forma que percibió más que observó, en el límite de su luz. No había ningún golpeteo de garras o cascos sobre la roca, ni siquiera el sonido de piedras desplazadas. Era como si, así lo había declarado el anciano con su solemne modo de hablar, «como si la cosa que me seguía pudiera ver perfectamente en la oscuridad, y tuviera muchas patas o almohadillas y pudiera moverse suave y fácilmente sobre la roca…, como una oruga gigante o como una de las alfombras vivientes de Kralkor II».
+
+A pesar de que no había habido ningún ruido de persecución, el viejo captó varias veces un único sonido. Era tan fuera de lo común que su misma rareza lo hacía doblemente terrible. Era un débil pero persistente sonido acompasado.
+
+El viejo fue capaz de describirlo muy vivamente… demasiado vivamente para el gusto de Armstrong.
+
+—¿Escucharon alguna vez a un gran insecto cascando su presa con los dientes? —dijo—. Bueno, era igual que eso. Me imagino que un cangrejo hace exactamente el mismo ruido con sus pinzas al entrechocarlas. Era un sonido…, ¿cuál es la palabra?… Quitinoso.
+
+Al llegar a este punto, Armstrong recordó haberse reído bien fuerte. (Era extraño, cómo ahora todo volvía hacia él). Pero nadie más se había reído, pese a que antes habían sido rápidos en hacerlo. Sintiendo el cambio de tono, se serenó inmediatamente y le pidió al anciano que continuara con su cuento. ¡Cómo deseaba ahora no haberlo hecho!
+
+Fue rápidamente satisfecho. Al día siguiente, una partida de escépticos técnicos había ido a la tierra de nadie más allá del Paso Carver. No eran lo suficientemente escépticos como para ir sin armas, pero no tuvieron oportunidad de usarlas, porque no encontraron huellas de ningún ser viviente. Estaban los inevitables abismos y túneles, brillantes agujeros en los que la luz de las antorchas rebotaba indefinidamente hasta que se perdía en la distancia…, pero el planeta estaba acribillado de estos agujeros.
+
+Pese a que la expedición no encontró señales de nada, descubrió una cosa que no le gustó nada. Allá afuera, en la desierta e inexplorada región más allá del Paso se habían topado con un túnel aún más ancho que el resto. Cerca de la boca del túnel había una roca maciza, medio incrustada en la tierra. Y los costados de la roca estaban desgastados «como si se hubieran pasado como una enorme piedra de moler».
+
+No menos de cinco de los presentes había visto esta inquietante roca. Ninguno de ellos pudo explicarla satisfactoriamente como una formación natural, pero todavía se negaban a aceptar la historia del anciano. Armstrong no había preguntado si la habían examinado alguna vez. Se había producido un incómodo silencio. Entonces el gran Andrew Hargraves dijo: «¡Demonios, quién caminaría de noche hacia el Paso por pura diversión!», y lo dejó ahí. En realidad, no había otro registro de nadie que hubiera caminado de noche desde Port Sanderson hasta el campamento, o ni siquiera de día. Durante las horas de luz, ningún ser humano podía vivir a cielo abierto sin protección bajo los rayos del sol enorme y pálido que parecía llenar la mitad del firmamento. Y ninguno caminaría seis millas, vistiendo una armadura contra la radiación, si era posible conseguir el tractor.
+
+Armstrong sintió que estaba abandonando el Paso. Las rocas desaparecían a ambos lados, y la ruta ya no era tan firme y bien apisonada como antes. Estaba saliendo una vez más al campo raso, y en un no muy lejano lugar de la oscuridad estaba el enigmático pilar que podría haber sido utilizado para afilar monstruosos colmillos o garras. No era un pensamiento muy alentador, pero no se lo podía quitar de la cabeza.
+
+Sintiéndose ahora claramente preocupado, Armstrong hizo un gran esfuerzo por imponerse. Trataría de ser otra vez racional; pensaría en su trabajo, en la tarea que había realizado en el campamento…, en cualquier cosa menos en este lugar infernal. Por un rato, tuvo bastante éxito. Pero pasado un tiempo, con una persistencia enloquecedora, todo el cúmulo de sus pensamientos volvió al mismo punto. No podía apartar de su mente la imagen de esa roca inexplicable y sus aterradoras posibilidades. Una y otra vez se encontró preguntándose cuán lejos estaba, si ya la había pasado y si estaba a su derecha o a su izquierda…
+
+El terreno era otra vez bastante plano, y la carretera seguía tan recta como una flecha. Había un resplandor de consuelo: Port Sanderson no podía estar a mucho más de dos millas.
+
+Armstrong no tenía idea de cuánto tiempo había estado en la carretera. Desgraciadamente, su reloj no era luminoso y sólo podía conjeturar el paso del tiempo. Con suerte, el Canopus no partiría como mínimo hasta después de dos horas. Pero no podía estar seguro y ahora otro temor comenzó a invadirle…, el terror de llegar a ver una vasta constelación de luces elevándose suavemente hacia el firmamento y saber que toda su agonía mental había sido en vano.
+
+Ya no zigzagueaba tanto y parecía ser capaz de anticipar el borde de la carretera antes de tropezar fuera de ella. Era probable, y se animó al pensarlo, que estuviera caminando casi tan rápido como si tuviera una luz. Si todo iba bien, se aproximaría a Port Sanderson en treinta minutos…, un espacio temporal ridículamente pequeño. Cómo se reiría de sus temores cuando se paseara en su camarote reservado en el Canopus y sintiera aquel peculiar temblor cuando la fantástica aceleración arrojara la gran nave bien lejos de este sistema, de nuevo a las apiñadas nubes estelares cerca del centro de la Galaxia…, de vuelta a la Tierra misma, a la que no veía desde hacía tantos años. Un día, se dijo, realmente debería visitar la Tierra otra vez. Toda su vida se estuvo haciendo esta promesa, pero siempre hubo la misma respuesta…: falta de tiempo. ¡Era extraño, o no, que un planeta tan pequeño haya jugado una parte tan enorme en el desarrollo del Universo, que incluso haya llegado a dominar mundos mucho más sabios e inteligentes que él mismo!
+
+Los pensamientos de Armstrong eran de nuevo inofensivos y se sintió más tranquilo. El saber que se aproximaba a Port Sanderson era inmensamente reconfortante y deliberadamente mantuvo su mente ocupada con asuntos familiares, sin importancia. El Paso Carver estaba bien atrás, y con él esa cosa que ya no trataba de recordar. Un día, si alguna vez volvía a este mundo, visitaría el Paso a la luz solar, y se reiría de sus terrores. Dentro de veinte minutos se unirían a las pesadillas de su infancia.
+
+Fue casi unshock, aunque de los más placenteros que había conocido, cuando vio aparecer sobre el horizonte las luces de Port Sanderson. La curvatura de este pequeño mundo era muy engañosa: no parecía correcto que un planeta con un campo gravitatorio casi tan grande como el de la Tierra tuviera el horizonte al alcance de la mano. Un día, alguien tendría que descubrir qué había en el corazón de este mundo para darle una densidad tan grande. Quizá los numerosos túneles podrían ayudar…, fue un desafortunado giro de pensamiento, pero la cercanía de su meta ya le había despojado del terror. Además, la idea de que podría estar realmente en peligro parecía conferir a su aventura cierto gusto picante y un elevado interés. Ya nada le podría suceder, con diez minutos que le quedaban de andar y las luces de Port Sanderson a la vista.
+
+Pocos minutos más tarde, sus sentimientos cambiaron rápidamente cuando llegó a una repentina curva de la ruta. Se había olvidado de la grieta que causaba ese rodeo y que añadía una media hora más a su travesía. Bueno, ¿y con eso qué?, pensó tercamente. Una media milla extra no haría ahora ninguna diferencia… otros diez minutos, como máximo.
+
+Se sintió engañado cuando se desvanecieron las luces de la ciudad. Armstrong no se había acordado de la colina que bordeaba la ruta; quizá fuera sólo un monte bajo, apenas observable de día. Pero al ocultar las luces de Port Sanderson le había despojado de su primitivo talismán, dejándole a merced de sus temores. Irracionalmente, se lo dijo su inteligencia, comenzó a pensar qué horrible sería si ahora sucediese algo, estando tan cerca del fin del viaje. Por un momento entretuvo al peor de sus temores con promesas, deseando desesperadamente que reaparecieran las luces de la ciudad. Pero mientras los minutos pasaban lentamente, se dio cuenta de que el monte debía ser más grande de lo que se había imaginado. Trató de solazarse con la idea de que cuando la viera de nuevo, la ciudad estaría muy cerca, pero de alguna manera, ahora la lógica parecía haberle fallado. Porque de golpe se encontró condescendiendo a hacer algo que antes no hubiera hecho, ni aún en el desierto cerca del Paso.
+
+Se detuvo, se volvió lentamente, y escuchó conteniendo la respiración hasta que casi estallaron sus pulmones.
+
+El silencio era pavoroso, considerando que debía estar muy cerca de Port Sanderson. Con certeza, no había ningún sonido detrás de él. Por supuesto que no tendría que haber, se dijo enfadado. Pero sentía un inmenso alivio. La idea de ese débil y persistente sonido acompasado le había estado obsesionando durante la última hora.
+
+Tan familiar y amistoso fue el sonido que al fin le llegó que el desconcierto casi le hizo reír. Esparciéndose a través del aire tranquilo, proveniente de una fuente que claramente no distaba más de una milla, llegaba el sonido de un tractor-de-campo-de-aterrizaje, quizá una de las máquinas que cargaban al mismo Canopus. En cosa de segundos, pensó Armstrong, rodearía esta elevación y estaría a pocos cientos de yardas de Port Sanderson. El viaje estaba casi terminado. En pocos instantes, esta diabólica llanura no sería más que una pesadilla desdibujada.
+
+Pareció terriblemente injusto: tan poco tiempo, una fracción tan pequeña de vida humana, era todo lo que ahora necesitaba. Pero los dioses siempre fueron injustos con el Hombre y ahora estaban gozando de su pequeña broma. Porque no podía haber ningún error con respecto al repiqueteo de garras monstruosas en la oscuridad, «delante de él».
+
+THE END

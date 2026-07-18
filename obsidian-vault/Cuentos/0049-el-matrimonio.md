@@ -1,0 +1,31 @@
+---
+title: "El matrimonio"
+author: "Max Aub"
+source: 'https://lecturia.org/cuentos-y-relatos/max-aub-el-matrimonio/4275/'
+image: "0049-el-matrimonio.jpg"
+tags:
+  - cuento
+  - autor/max-aub
+---
+
+# El matrimonio
+
+Sinopsis: «El matrimonio» es un cuento corto de Max Aub publicado en 1955 en la colecciónCiertos cuentos, cuentos ciertos. Una anciana débil y enferma, se levanta con dificultad para despedirse de los objetos que han sido parte de su existencia durante más de cuarenta años. Sus familiares, sumidos en la tristeza, la observan en silencio mientras ella recorre la sala, tocando cada mueble y recordando su vida. En su despedida final, revela un secreto profundo que cambia la perspectiva sobre su matrimonio.
+
+Max Aub(Cuento completo)
+
+LA SALA era pequeña, pero muy amueblada: dos consolas, dos sillones, dos parejas dispares de sillas, dos vitrinas —la una alta, la otra baja, estrecha la primera, ancha al segunda—, dos cornucopias doradas y de edad dudosa, dos lámparas, la una colgando, la otra de pie. No había sofá, no cupo y descansaba frente a los pies de la cama, en el dormitorio.
+
+El pobre marido estaba hundido en un sillón. Su contrito cuñado estaba apoyado en el marco de la puerta que daba al recibidor. Su triste concuñada apenas se sostenía con las manos en la mesa. Todo estaba en penumbra. María se moría. María era la esposa, la prima de la cuñada; rondaba los sesenta años, tenía unas ojeras tremendas, unas ojeras que le comían toda la cara, que no dejaban nada para lo demás. De estatura regular, de corpulencia media, menos la cabellera larga y descolgada (el orgullo de la casa). Sobrevestía camisón, que debajo llevaba numerosas chambras y refajos superpuestos en vano intento de vencer el frío; no venía éste de las afueras, sino de la muerte evidentemente próxima. La casa olía a col frita: no era cosa de momento, la casa olía a col frita desde hacía más de cuarenta años; cuando el matrimonio empezó a vivir ahí.
+
+De pronto, en un arranque, la moribunda pudo con todos, nadie logró convencerla, ni sujetarla en la cama. Se levantó y se fue a la sala. Estaban todos muy conmovidos porque inmediatamente se dieron cuenta de que aquella mujer venía a despedirse —para siempre— de sus muebles, de todos los objetos que habían sido parte de su vida durante más de cuarenta años. El cuñado, largo bigote lacio, tiene los ojos enrojecidos y lacrimosos; desgracia no circunstancial pero, ahora, por vez primera —era una familia muy unida—, se daban cuenta de que en ese momento aquello estaba bien. Nadie se movía aparte de la futura muerta. Iba ahora de la vitrina pequeña a la vitrina grande, andaba con dificultad, pero sola. Había rechazado —todavía con fuerzas— cualquier ayuda. Andaba arrastrando las pantuflas que su esposo le regaló hacía diecisiete años, para la Navidad. Dicho sea en su favor, lo cierto era que las había gastado muy poco. Ponía las manos, las palmas de las manos, sobre los muebles, las dejaba allí, un momento, para luego arrastrarlas hasta el borde. Pasó frente a la ventana —que daba a un patio interior, pardo, oscuro— agarrándose al terciopelo verde pasado de los cortinones y llegó a la vitrina grande donde, tras unos cristalitos biselados, lucían unas porcelanas de leche brillante con filetes de oro; se quedó quieta mirándolas: eran de su abuela. Fue a la consola, pasando frente a su cuñado, al que miró y no vio, o no quiso ver, o no reconoció.
+
+En la consola —negra madera, blanco mármol—, además de dos floreros de cristal azul, estaba el retrato del hijo único y su mujer: un retrato ya viejo, hecho en Buenos Aires, donde estaban hacía muchos años, escribiendo poco y sin ganas.
+
+El pobre marido cambió de postura para seguirla con la mirada. Se daba cuenta de que de ahí a pocas horas, a lo sumo algunos días, se quedaría viudo. En su interior inexpresable siempre había sentido que acabaría viudo. La pobre señora seguía dando su última vuelta. Se paró frente a dos cuadros, dos cromos con marcos dorados: el uno representaba a Santa Ana, el otro una andaluza con peineta y mantilla blanca. Ambos tuvieron su pasadita de mano. Los tenía desde siempre. Era de lo único que había traído a aquella casa, no que fuese de condición inferior a su marido, pero, como era natural, él lo puso todo. Hacía más o menos cuarenta años que los veía como estaban colocados ahora: cada mañana, cada tarde, cada noche al ir de su cuarto al comedor o al revés, del comedor a su cuarto; que sentarse allí, en la sala, no lo hicieron mucho. Se quedó parada, vacilando. Su marido fue hacia ella, su cuñado dio un paso adelante. Pero la mujer rechazó la ayuda con indiscutible autoridad y siguió su ronda. Nadie se engañaba: se estaba muriendo. El esposo se quedó plantado cerca de ella, los pantalones caídos, por los tirantes desabrochados, sostenidos por la sola comba del vientre que tenía lo suyo, los pies en las pantuflas que su esposa le había regalado hacía dieciséis años, la cara abotagada, el bigote al garete, las manos encallecidas, las uñas negras de por sí. La enferma se había vuelto a detener frente a un espejo de marco negro desconchado. Un espejo con manchas, desteñido, medio muerto, donde las cosas se reflejaban distintas y con nubes. El pobre marido se creyó en la obligación de intervenir, mandar, recomendar —suave pero enérgico a la vez— que volviese a la cama. Su todavía esposa se le volvió cara a cara, lentamente, lo miró fijo durante un momento, que se hizo larguísimo al hombre, y luego —remontándose a una cima inesperada y feroz de desprecio— dejó caer unas palabras como un hacha.
+
+—¡Quieto! No te he querido nunca.
+
+Y se fue, todavía derecha, al dormitorio, a acostarse y morir en la cama donde había cohabitado más de cuarenta años con aquel señor. Fieles ambos como perros vigilados.
+
+FIN

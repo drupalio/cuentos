@@ -1,0 +1,33 @@
+---
+title: "Terapia de soledad"
+author: "Mario Benedetti"
+source: 'https://lecturia.org/cuentos-y-relatos/mario-benedetti-terapia-de-soledad/6301/'
+image: "0147-terapia-de-soledad.webp"
+tags:
+  - cuento
+  - autor/mario-benedetti
+---
+
+# Terapia de soledad
+
+Sinopsis: «Terapia de soledad» es un cuento de Mario Benedetti publicado en 1999 en el libroBuzón del tiempo. A través de una carta, una mujer relata su experiencia de aislamiento voluntario en una casa de campo, donde busca reencontrarse consigo misma. Alejada de su esposo y del bullicio urbano, reflexiona sobre el amor, la intimidad, el respeto mutuo y la capacidad restauradora de la soledad. Con una prosa íntima y contemplativa, el relato explora las tensiones entre el deseo de independencia y la necesidad de cercanía en una relación madura que atraviesa una pausa que parece necesaria.
+
+Mario Benedetti(Cuento completo)
+
+Querido mío: Aquí estoy, en mi isla, que no es exactamente eso, ya que no está rodeada de mar sino de vegetación, de árboles, de campo propiamente dicho. Pero es una isla en un sentido espiritual. Aunque tampoco es eso, ya que estoy rodeada de lejanas presencias y cercanas ausencias, del recuerdo de otros y de las corrientes de mi propia memoria. ¿Te parezco complicada? Puede ser. Bien sabés que de un tiempo a esta parte sentía la necesidad de aislarme, de reencontrarme con mi soledad perdida (¡Marcel Proust viejo y peludo!). Por suerte lo entendiste y te confieso que esa comprensión aumentó mi amor (y también mi respeto) hacia vos. Estoy convencida de que el respeto por la soledad del ser amado es una de las menos frecuentes pero más entrañables formas del amor, ¿no te parece?
+
+Creo que los diez años de bien llevado matrimonio precisaban de esta afirmación de nuestras dos identidades. Es un regalo del destino que seamos tan distintos, algo que nos habilita a descubrirnos casi a diario, a que cada uno celebre en su fuero interno el hallazgo del otro. Esto de «fuero interno» siempre me ha parecido una contradicción gastada, inadecuada e inútil. «Fuero» es tan parecido a «fuera» (ya sé que vienen de etimologías distintas) e «interno» tan cercano a «intimidad». Esa expresión, «fuero interno», ¿habrá querido expresar en sus orígenes una intimidad hecha pública, volcada hacia fuera, o sea lo contrario de lo que hoy significa?
+
+Pero retomo el hilo de mi sabia reflexión. Seré caótica pero no tarada. Una pregunta indiscreta: ¿cómo te sentís sin mí? ¿Rodeado, como es habitual, de trabajo, de amigos leales y desleales, y también de mujeres guapas y guapísimas? Dada esa circunstancia, tendría buenos motivos para mis celos. Pero para mi condena, no soy celosa. Ah, no te ilusiones, puedo serlo. Vos en cambio no tenés ninguna razón para los celos, ya que aquí no estoy rodeada de hombres guapos, sino de pinos, eucaliptus, ranas canoras, amaneceres y crepúsculos, y, en ocasiones, de un silencio nocturno tan compacto que a veces me despierta y hasta me desvela, tan habituados estamos al ruido enloquecedor, cercano o lejano, de las ciudades. Sólo en algunos insomnios me acompañan los grillos, cuya monotonía coral me los confirma como precursores del canto gregoriano. ¿No estarás celoso de los grillos, verdad? Te aclaro que su pequeñez los hace invisibles, así que ni siquiera sé si son guapos (como grillos, claro). Supongo que también entre ellos habrá cánones de belleza; que habrá grillos equivalentes a Robert Redford y otros feos como Peter Lorre.
+
+Lo cierto es que, dormida o despierta, he estado haciendo balance de mí misma. No te voy a contar, por ahora, cuál es el saldo. Para hacerlo, tengo que decírtelo en la cama, desnudo vos y desnuda yo, después de fornicar como Dios manda, mirándote a los ojos para que esos ojos tuyos me vayan comunicando tu respuesta o al menos tu comentario. Todavía creo (te lo dije hace mucho, cuando ya vivíamos juntos pero no habíamos cometido el pecado venial de casarnos) que nuestro mejor diálogo ha sido el de las miradas. Las palabras, consciente o inconscientemente, a menudo mienten, pero los ojos nunca dejan de ser veraces. Si alguna vez he pretendido mentir a alguien con la mirada, los párpados se me caen, bajan espontáneamente su cortina protectora, y ahí se quedan hasta que yo y mis ojos recuperamos la obligación de la verdad. Con las palabras todo es más complejo, pero aun así, si las palabras tratan de engañar, los ojos suelen desmentir a la boca.
+
+Retomando de nuevo el hilo conductor, te diré que la soledad es como un tónico y también una cura de modestia. Un tónico porque, con tanto tiempo y espacio para reflexionar, una va detectando qué sirve y qué no sirve en los recovecos del alma propia. Y cura de modestia, porque en la estricta soledad no tienen cabida los halagos fallutos, ni los mimos a la vanidad, ni siquiera (no es mi caso) el perdón de los confesionarios.
+
+Mi soledad está además poblada de pájaros. Siempre he sido una analfabeta en cuanto a ornitología, de modo que jamás pude ni podré diferenciar el canto de una calandria del de un zorzal, el monólogo de un mirlo del de un jilguero, y en este tramo de mi vida no pienso especializarme en ciencia pajarera, de modo que he decidido ponerles nombres. Verbigracia: a uno de esos cantautores alados lo llamo Fabricio; a otro, Segismundo; a otro, Venancio; a otro más, Rigoberto. Lo cierto es que cuando los llamo por los nombres de mi particular nomenclatura, ellos me responden con una parrafada de trinos.
+
+… Querido: retomo esta carta una semana después de la parrafada de trinos. Ya llevo más de un mes en mi isla verde. Se me ocurre que ya he reflexionado lo suficiente y además he empezado a extrañarte de una forma casi enfermiza. Así como antes sentí la imperiosa necesidad de un aislamiento, ahora tengo una añoranza terrible de tus manos, de tu boca, de tu abrazo, de tu cuerpo en fin. Confío, compañero, que con estos conmovedores llamados no se le vaya a llenar el tafanario (aclaro que este sinónimo de culo lo aprendí ayer) de papelitos, eh.
+
+Llegaré el lunes. Te aviso con tiempo suficiente como para que desalojes de nuestra confortable cama doble a cualquier intrusa y su cuerpo del delito. Te lo digo en broma, claro. O no. Te lo digo en serio. A desalojar, a desalojar, con música de Viglietti. Te anticipo que esta temporada de soledad me ha vuelto muy apetitosa. Besos y besos, de tu NATALIA.
+
+FIN

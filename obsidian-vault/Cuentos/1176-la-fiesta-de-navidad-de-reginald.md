@@ -1,0 +1,43 @@
+---
+title: "La fiesta de Navidad de Reginald"
+author: "Juan Pablo Guevara"
+source: 'https://lecturia.org/cuentos-y-relatos/saki-la-fiesta-navidad-reginald/1238/'
+image: "1176-la-fiesta-de-navidad-de-reginald.webp"
+tags:
+  - cuento
+  - autor/juan-pablo-guevara
+---
+
+# La fiesta de Navidad de Reginald
+
+En «La fiesta de Navidad de Reginald» (Reginald’s Christmas Revel), relato publicado en 1904, Saki nos presenta al ingenioso y mordaz Reginald, quien narra con ironía sus desventuras durante unas navidades en casa de los Babwold, una familia tan solemne como excéntrica. Forzado a asistir por compromiso familiar, el protagonista observa con agudo sarcasmo los absurdos rituales de la velada: un comandante obsesionado con sus cacerías, actividades sociales tediosas y una anfitriona cuya seriedad roza lo grotesco. Con su mordaz humor, Reginald convierte la monotonía de la experiencia en una sátira brillante que cuestiona las convenciones sociales y la vacuidad de la vida burguesa.
+
+Saki (Hector Hugh Munro)(Cuento completo)
+
+Dicen (decía Reginald) que no hay nada más triste que la victoria salvo la derrota. Si alguna vez has pasado unas fiestas supuestamente felices con gente aburrida, quizá puedas considerar ese dicho. Nunca olvidaré las navidades que pasé en casa de los Babwold. La señora Babwold es pariente lejana de mi padre —una de esas señoras que acabas llamando prima—, y eso se consideró motivo suficiente para que yo tuviera que aceptar su invitación, más o menos la sexta vez que la hizo; aunque eso de que los hijos deban pagar los pecados de los padres… Espera, no encontrarás papel en ese cajón; ahí guardo viejos menús y programas de estreno.
+
+La señora Babwold tiene una personalidad bastante solemne, y nadie la ha visto sonreír, ni siquiera cuando dice cosas desagradables a sus amigas o escribe la lista de la compra. Disfruta de sus placeres tristemente. Un elefante en un durbar imperial[1]produce una impresión muy parecida. Su marido se dedica a la jardinería, aunque caigan chuzos de punta. Cuando un hombre sale de casa mientras diluvia para quitar orugas de los rosales, suelo pensar que su vida hogareña deja algo que desear; en cualquier caso, tiene que ser muy molesto para las orugas.
+
+Por supuesto, había más invitados. Había un tal comandante no sé cuántos que había cazado animales en Laponia, o algún lugar por el estilo; he olvidado qué eran, pero no por falta de recordatorio. Nos los servían fríos en casi todas las comidas, y él no dejaba de darnos detalles sobre lo que medían de un extremo al otro, como si creyera que íbamos a hacer con ellos ropa interior para el invierno. Yo lo escuchaba siempre con un embeleso que creía que me sentaba bien, y un día mencioné con la mayor modestia las dimensiones de un okapi que había cazado en las marismas de Lincolnshire. El comandante se puso de un hermoso color púrpura (recuerdo que en ese instante me dieron ganas de pintar el cuarto de baño de ese color), y creo que fue entonces cuando se dio cuenta de que yo no le gustaba. La señora Babwold adoptó su expresión de primeros auxilios a un accidentado, y le preguntó por qué no publicaba un libro de sus recuerdos cinegéticos; seríataninteresante. No recordó hasta más tarde que él ya le había regalado dos gruesos volúmenes sobre el tema, con su retrato y su autógrafo a modo de frontispicio y un apéndice sobre las costumbres del mejillón ártico.
+
+Por la noche era cuando dejábamos de lado las preocupaciones y pasatiempos del día y vivíamos de verdad. Las cartas se consideraban demasiado frívolas y un modo poco instructivo de pasar el tiempo, así que casi siempre jugábamos a lo que llamaban el juego del libro. Te ibas a la gran sala, me figuro que en busca de inspiración, y luego volvías a entrar con una bufanda alrededor del cuello y pinta de bobo, y se suponía que los demás tenían que adivinar que eras Wee MacGreegor[2]. Me resistí a semejante estupidez mientras no fue una descortesía, pero finalmente, en un momento de generosidad, consentí en disfrazarme de libro, aunque les advertí de que tardaría un rato. Esperaron casi cuarenta minutos, mientras yo jugaba a los bolos con unas copas de vino en compañía del chico de los recados; se juega con el corcho del champán, y gana el que tira más copas sin romperlas. Fui el ganador, cuatro de siete quedaron intactas; creo que William se puso demasiado nervioso. En el salón estaban bastante irritados por mi tardanza, y no parecieron calmarse cuando les expliqué que estaba «al final del pasillo[3]».
+
+—Nunca me ha gustado Kipling —fue el comentario de la señora Babwold, cuando cayó en la cuenta del título—. No vi nada ingenioso enLas lombrices de la Toscana… ¿o ese libro es de Darwin?
+
+Es cierto que estos juegos son muy educativos, pero, personalmente, prefiero el bridge.
+
+Se supone que teníamos que celebrar la Navidad siguiendo la vieja tradición inglesa. La gran sala estaba llena de corrientes de aire, pero parecía el lugar idóneo para el festejo, y estaba decorada con abanicos japoneses y farolillos chinos, lo que le daba un aire inglés muy antiguo. Una joven de voz susurrante nos deleitó con un largo recitado sobre una niña que moría o hacia algo igual de trillado, y después el comandante nos hizo una descripción muy vívida de su lucha con un oso herido. En mi fuero interno deseé que los osos ganaran a veces en tales ocasiones; al menos ellos no irían luego pavoneándose por ahí. Antes de que pudiéramos recuperarnos, se nos obsequió con la lectura del pensamiento de un joven del que uno sabía por intuición que tenía una buena madre y un sastre mediocre; el tipo de joven que habla sin parar mientras come puré, y se alisa el pelo con recelo, como si éste fuera a devolverle el golpe. La lectura del pensamiento fue todo un éxito; él anunció que la poesía ocupaba el pensamiento de nuestra anfitriona, y ella reconoció que tenía en mente una de las odas de Austin[4]. Algo que no era ningún disparate. Imagino que en realidad daba vueltas a si un pescuezo de cordero y un poco de pudín de pasas frío bastarían para la cena del servicio al día siguiente. El colmo del desenfreno fue sentarse a jugar al halma[5]progresivo, con chocolate con leche para los ganadores. Me han educado con esmero, y no me gustan los juegos de ingenio que se premian con chocolate con leche, así que me inventé un dolor de cabeza y me retiré al dormitorio. Unos minutos antes me había precedido la señorita Langshan-Smith, una dama de lo más imponente, que siempre se levantaba a una hora intempestiva de la madrugada y daba la impresión de haber hablado con casi todos los gobiernos europeos antes del desayuno. En su puerta había pegado un papel con la petición firmada de que al día siguiente la despertaran a una hora especialmente temprana. Una oportunidad así no vuelve a presentarse en la vida. Tapé todo menos la firma con otra nota en la que escribí que, cuando leyeran esas palabras, ella habría puesto fin a una vida desperdiciada; y que pedía disculpas por las molestias que causaba, amén de expresar su deseo de un funeral militar. Instantes después reventé una bolsa de papel inflada y di un gemido teatral que habría podido oírse en el sótano. Luego seguí con mi intención inicial y me fui a la cama. El ruido que armó aquella gente al forzar la puerta de la buena mujer fue verdaderamente indecoroso; ella se resistió con heroicidad, pero creo que la estuvieron registrando en busca de balas casi un cuarto de hora, como si se tratara de un campo de batalla histórico.
+
+Detesto viajar el 26 de diciembre[6], pero de vez en cuando uno tiene que hacer cosas que le desagradan.
+
+[1]Ceremonias que los gobernantes británicos celebraban con gran pompa en Delhi, inspiradas en un ritual de la corte mogol en el siglo XVIII.
+
+[2]Protagonista de los artículos delGlasgow Evening Timesque publicaba el periodista John Joy Bell (1871-1934). Alcanzó tal popularidad que el autor acabó recogiendo sus andanzas en un libro.
+
+[3]En el original,At the End of the Passage[Al final del camino], título de un conocido relato de Rudyard Kipling.Passage, además de «camino», significa «pasillo».
+
+[4]Alfred Austin (1835-1913), poeta inglés casi olvidado en nuestros días.
+
+[5]Juego de tablero, no muy diferente de las damas.
+
+[6]Festivo en Gran Bretaña.

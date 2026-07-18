@@ -1,0 +1,249 @@
+---
+title: "El mal de ojo"
+author: "Mary Shelley"
+source: 'https://lecturia.org/cuentos-y-relatos/mary-shelley-el-mal-de-ojo/25739/'
+image: "0517-el-mal-de-ojo.webp"
+tags:
+  - cuento
+  - autor/mary-shelley
+---
+
+# El mal de ojo
+
+Sinopsis:«El mal de ojo» (The Evil Eye) es un cuento de Mary Shelley, publicado en 1829 enThe Keepsakey recogido después enTales and Stories(1891). Ambientado en los Balcanes bajo la dominación otomana, narra la historia de Dmitri, un temido bandido albanés al que se atribuye el poder sobrenatural de causar daño con la mirada. Su pasado trágico y su reputación despiertan el temor y la superstición en los habitantes de la región. Cuando un antiguo compañero llega solicitando su ayuda para recuperar una herencia familiar, Dmitri acepta participar en un plan que lo conducirá por un laberinto de aventuras donde la violencia, el honor y la sed de venganza amenazan con despertar fantasmas que parecían enterrados.
+
+Mary Shelley(Cuento completo)
+
+El salvaje albanés, con túnica hasta la rodilla,la cabeza envuelta en un chal y el fusil ornamentado,y vestiduras bordadas en oro, hermosas a la vista;el hombre de Macedonia con su bufanda carmesí.— Lord Byron.
+
+El moreota[1]Katusthius Ziani viajaba con fatiga y con temor de los salteadores a través del pachalato[2]de Yannina; y, sin embargo, no tenía motivo alguno para temer. Ya llegara, cansado y hambriento, a una aldea solitaria; ya se encontrara en los yermos deshabitados, súbitamente rodeado por una banda de klephts[3]; o bien, en los pueblos mayores, se sintiera intimidado al verse el único de su raza entre los salvajes montañeses y el turco despótico: en cuanto se anunciaba como pobratimo[4]de Dmitri del Mal de Ojo, todas las manos se tendían hacia él y todas las voces lo acogían con palabras de bienvenida.
+
+El albanés Dmitri era natural de la aldea de Korvo. Entre las salvajes montañas del distrito comprendido entre Yannina y Tepellen fluye la profunda y ancha corriente de Argyro-Castro, defendida al oeste por abruptos precipicios cubiertos de bosque y sombreada al este por elevadas montañas. La más alta de estas es el monte Trebucci; y en un romántico repliegue de aquella colina, recortada por minaretes y coronada por una cúpula que se alza entre un grupo de cipreses piramidales, se encuentra la pintoresca aldea de Korvo. Ovejas y cabras constituyen el tesoro aparente de sus habitantes; pero sus fusiles y yataganes[5], sus hábitos guerreros y, con ellos, la noble profesión del robo, son fuentes de riqueza aún mayores. Entre una raza célebre por su intrépido valor y su empresa sanguinaria, Dmitri sobresalía.
+
+Se decía que, en su juventud, aquel klepht era notable por una disposición más gentil y un gusto más refinado de lo habitual entre sus compatriotas. Había sido un errante y había aprendido artes europeas, de las cuales no se sentía poco orgulloso. Sabía leer y escribir griego, y a menudo llevaba un libro guardado junto a sus pistolas en el cinturón. Había pasado varios años en Scio[6], la más civilizada de las islas griegas, y se había casado con una joven esciota[7]. Se dice que los albaneses desprecian a las mujeres; pero Dmitri, al convertirse en esposo de Helena, se sometió a una norma más caballeresca y se hizo prosélito de un credo mejor. Con frecuencia regresaba a sus colinas natales y combatía bajo el estandarte del célebre Ali, para luego volver a su hogar insular. El amor del bárbaro domesticado era concentrado y ardiente, y algo más que eso: era una parte viva y palpitante de su corazón, la porción más noble de sí mismo, el molde más divino en el que su naturaleza áspera había sido refundida.
+
+A su regreso de una de sus expediciones albanesas encontró su hogar devastado por los mainotes[8]. Helena… le señalaron su tumba, pero nadie se atrevió a decirle cómo había muerto; su única hija, su hermosa niña pequeña, había sido robada; su tesoro de amor y felicidad había sido saqueado; aquella riqueza superior al oro se había convertido en desolación absoluta. Dmitri pasó tres años en vanos esfuerzos por recuperar a su descendencia perdida. Se expuso a mil peligros y soportó privaciones increíbles: desafió a la fiera en su guarida y al mainote en su puerto de refugio; los atacó y fue atacado por ellos. Llevaba como insignia de su audacia un profundo tajo que le cruzaba la ceja y la mejilla. En aquella ocasión habría muerto, de no ser porque Katusthius, al ver una refriega en la orilla y a un hombre abandonado por muerto, desembarcó de una sacoleva[9]moreota, se lo llevó consigo, lo cuidó y lo curó. Intercambiaron votos de amistad y, durante algún tiempo, el albanés compartió las labores de su hermano; pero estas eran demasiado pacíficas para su gusto, y regresó a Korvo.
+
+¿Quién habría podido reconocer, en aquel salvaje mutilado, al más apuesto de los arnaoots[10]? Sus hábitos siguieron el curso de su cambio de fisonomía: se volvió feroz y despiadado; solo sonreía cuando se entregaba a empresas peligrosas; había llegado a aquel peor estado del ánimo rufián, el de complacerse en la sangre. Envejeció en tales ocupaciones; su mente se volvió temeraria, su semblante más sombrío; los hombres temblaban ante su mirada, y mujeres y niños exclamaban con terror: «¡El Mal de Ojo!». La creencia se generalizó —él mismo la compartía— y se glorificaba en aquel temido privilegio; y cuando su víctima se estremecía y se marchitaba bajo la influencia mortal, la risa demoníaca con que saludaba aquella demostración de su poder abatía con mayor espanto el corazón desfalleciente del fascinado. Pero Dmitri sabía gobernar las flechas de su mirada, y sus camaradas lo respetaban aún más por su atributo sobrenatural, pues no temían que lo ejerciera contra ellos.
+
+Dmitri acababa de regresar de una expedición más allá de Prevesa. Él y sus camaradas iban cargados de botín. Mataron y asaron una cabra entera para su comida; bebieron hasta vaciar varios odres de vino; luego, alrededor del fuego del patio, se entregaron a las delicias del baile del pañuelo, rugiendo el coro mientras caían de rodillas y se impulsaban de nuevo, girando una y otra vez con una agilidad muy suya. El corazón de Dmitri estaba pesado; rehusó bailar y se sentó aparte, al principio acompañando el canto con su voz y su laúd, hasta que el aire cambió por otro que le recordó tiempos mejores: su voz se apagó, el instrumento cayó de sus manos y la cabeza se le hundió sobre el pecho.
+
+Al oír pasos extraños se incorporó de un salto; en la figura que tenía delante creyó reconocer a un amigo, y no se equivocaba. Con una exclamación de alegría dio la bienvenida a Katusthius Ziani, estrechándole la mano y besándolo en la mejilla. El viajero estaba fatigado, de modo que se retiraron a la propia casa de Dmitri, una cabaña pulcramente enyesada y encalada, cuyo suelo de tierra estaba perfectamente seco y limpio, y cuyas paredes se hallaban cubiertas de armas, algunas ricamente ornamentadas, y de otros trofeos de sus triunfos klephticos. Su anciana sirvienta encendió el fuego; los amigos se recostaron sobre esteras de juncos blancos mientras ella preparaba el pilaf y hervía carne de cabrito. Colocó ante ellos, sobre un bloque de madera, una brillante bandeja de estaño, y amontonó en ella tortas de maíz, queso de leche de cabra, huevos y aceitunas; una jarra de agua de su manantial más puro y un odre de vino sirvieron para refrescar y animar al viajero sediento.
+
+Después de la cena, el huésped habló del objeto de su visita.
+
+—Vengo a mi pobratimo —dijo— a reclamar el cumplimiento de su voto. Cuando te rescaté de los salvajes kakovougnis[11]de Boularias, me prometiste tu gratitud y tu fe; ¿reniegas de esa deuda?
+
+El ceño de Dmitri se ensombreció.
+
+—Mi hermano —exclamó— no necesita recordarme lo que debo. Dispón de mi vida: ¿en qué puede el klepht de las montañas ayudar al hijo del rico Ziani?
+
+—El hijo de Ziani es un mendigo —replicó Katusthius—, y perecerá si su hermano le niega ayuda.
+
+El moreota contó entonces su historia. Había sido criado como único hijo de un rico comerciante de Corinto. Con frecuencia había navegado como caravokeiri[12]en los barcos de su padre hacia Stamboul e incluso hasta Calabria. Años atrás había sido abordado y capturado por un corsario berberisco. Su vida desde entonces había sido aventurera, dijo; en verdad, había sido culpable: se había hecho renegado y había ganado el favor de sus nuevos aliados, no por un valor superior —pues era cobarde—, sino por los fraudes que enriquecen a los hombres. En medio de aquella carrera, cierta superstición lo influyó y lo llevó a regresar a su antigua religión. Escapó de África, vagó por Siria, cruzó a Europa, encontró ocupación en Constantinopla, y así pasaron los años. Al fin, cuando estaba a punto de casarse con una belleza fanariota[13], volvió a caer en la pobreza y regresó a Corinto para ver si las fortunas de su padre habían prosperado durante sus largas andanzas. Descubrió que, aunque habían aumentado prodigiosamente, estaban perdidas para él para siempre. Su padre, durante su prolongada ausencia, había reconocido como propio a otro hijo y, al morir un año antes, le había legado todo. Katusthius halló a aquel pariente desconocido, con su esposa y su hijo, en posesión de la herencia que esperaba. Cyril dividió con él, es cierto, los bienes de su padre; pero Katusthius aspiraba a todo y resolvió obtenerlo. Rumiaba mil proyectos de asesinato y venganza; con todo, la sangre de un hermano le era sagrada, y Cyril, amado y respetado en Corinto, solo podía ser atacado con gran riesgo. El hijo de Cyril era entonces un nuevo obstáculo. Como el mejor plan que se le ocurrió, se embarcó apresuradamente hacia Butrinto y acudió a reclamar el consejo y la ayuda del arnaoot cuya vida había salvado, de quien era pobratimo. No contó su historia de manera desnuda, sino que la aderezó; de modo que, si Dmitri hubiera necesitado el estímulo de la justicia —lo cual no era en absoluto necesario para él—, habría quedado convencido de que Cyril era un vil intruso y de que todo el asunto no era sino una impostura y una villanía.
+
+Toda la noche aquellos hombres discutieron diversos proyectos cuyo objetivo era que la riqueza del difunto Ziani pasara íntegra a manos de su hijo mayor. Al alba Katusthius partió, y dos días después Dmitri abandonó su hogar montañés. Su primer cuidado fue adquirir un caballo, largamente codiciado por su belleza y ligereza; proveyó cartuchos y rellenó su cuerno de pólvora. Sus arreos eran ricos, su vestimenta vistosa; sus armas relucían al sol. Su largo cabello caía liso desde debajo del chal enrollado en torno a su gorra hasta la cintura; un capote blanco y peludo colgaba de su hombro; el rostro estaba arrugado y curtido por la intemperie; la frente, surcada por la preocupación; los bigotes, largos y negros como el azabache; la cara, marcada por cicatrices; los ojos, salvajes y feroces. Todo su aspecto, no falto de cierta gracia bárbara, pero sobre todo sellado por la ferocidad y el orgullo del bandido, inspiraba —y no es de extrañar— en el griego supersticioso la creencia de que un espíritu sobrenatural del mal habitaba en su semblante, devastando y destruyendo. Ya preparado para el viaje, partió de Korvo, atravesando los bosques de Acarnania en su camino hacia la Morea.
+
+* * *
+
+—¿Por qué tiembla Zella y estrecha a su niño contra el pecho, como si temiera algún mal? —preguntó Cyril Ziani al regresar de la ciudad de Corinto a su morada rural.
+
+Era un hogar hermoso. Las colinas abruptas, cubiertas de olivos o de brillantes plantaciones de naranjos, dominaban las azules olas del golfo de Aegina. Un sotobosque de mirto esparcía a su alrededor un dulce perfume y sumergía sus hojas oscuras y brillantes en el propio mar. La casa de techo bajo estaba sombreada por dos enormes higueras, mientras viñedos y campos de cereal se extendían por la suave altiplanicie hacia el norte. Cuando Zella vio a su esposo, sonrió, aunque su mejilla aún estaba pálida y los labios temblorosos.
+
+—Ahora que estás cerca para protegernos —dijo—, aparto el temor; pero el peligro amenaza a nuestro Constans, y me estremece recordar que un Mal de Ojo se ha posado sobre él.
+
+Cyril alzó a su hijo.
+
+—¡Por mi cabeza! —exclamó—, hablas de algo funesto. Los francos llaman a esto superstición; pero seamos cautos. Su mejilla sigue rosada, sus bucles fluyen como oro. Habla, Constans; saluda a tu padre, mi valiente muchacho.
+
+Fue un temor de corta duración; ningún mal sobrevino y pronto olvidaron un incidente que sin causa había hecho temblar sus corazones. Una semana después Cyril regresó, como era su costumbre, tras embarcar un cargamento de pasas, a su retiro en la costa. Era una hermosa tarde de verano; la chirriante noria que irrigaba la tierra armonizaba con el último canto de la ruidosa cigarra; las ondulantes olas se deshacían casi en silencio entre los guijarros. Aquel era su hogar; pero ¿dónde estaba su hermosa flor? Zella no salió a recibirlo.
+
+Un criado señaló una capilla en una colina vecina, y allí la encontró: su hijo —de casi tres años— estaba en brazos de la nodriza; su esposa oraba con fervor mientras las lágrimas corrían por sus mejillas. Cyril preguntó con ansiedad el significado de aquella escena; pero la nodriza sollozaba, Zella seguía rezando y llorando, y el niño, por empatía, comenzó a llorar también. Aquello era demasiado para un hombre. Cyril salió de la capilla y se apoyó contra un nogal; su primera exclamación fue un dicho griego habitual: «¡Sea bienvenida esta desgracia, con tal de que venga sola!». Pero ¿qué mal había ocurrido? Aún no era visible; y, sin embargo, el maleficio es más fatal cuando permanece oculto.
+
+Él era feliz: una esposa encantadora, un hijo floreciente, un hogar pacífico, prosperidad y la perspectiva de riqueza; tales bendiciones eran suyas. ¿Con cuánta frecuencia, no obstante, emplea la Fortuna estos bienes como señuelos? Era un esclavo en una tierra esclavizada, un mortal sometido a los altos designios, y diez mil eran los dardos envenenados que podían lanzarse contra su cabeza maldita.
+
+Temblorosa y tímida, Zella salió de la capilla; su explicación no apaciguó sus temores. De nuevo el Mal de Ojo se había posado sobre su hijo, y una profunda malignidad se ocultaba sin duda bajo aquella segunda visita. El mismo hombre, un arnaoot de armas relucientes y atavío vistoso, montado en un corcel negro, surgió del encinar vecino y, cabalgando con furia hasta la puerta, detuvo bruscamente su caballo en el mismo umbral. El niño corrió hacia él; el arnaoot inclinó sobre él sus ojos siniestros.
+
+—Hermoso eres, brillante infante —exclamó—; tus ojos azules resplandecen, tus dorados cabellos son gratos a la vista; pero eres una visión tan deslumbrante como efímera… ¡mírame!
+
+El inocente alzó los ojos, lanzó un grito y cayó jadeante al suelo. Las mujeres se precipitaron para socorrerlo; el albanés clavó las espuelas a su caballo y, galopando velozmente a través de la pequeña llanura y luego por la ladera boscosa, pronto se perdió de vista. Zella y la nodriza llevaron al niño a la capilla, lo rociaron con agua bendita y, cuando recobró el aliento, suplicaron con fervor a la Panagia[14]que lo salvara del mal que lo amenazaba.
+
+Transcurrieron varias semanas; el pequeño Constans creció en inteligencia y hermosura; ningún daño había marchitado la flor del amor, y sus padres desterraron el temor. A veces Cyril se permitía bromear a expensas del Mal de Ojo; pero Zella consideraba de mal agüero reírse de ello y se santiguaba cada vez que se hacía alusión al suceso. Por aquel tiempo Katusthius visitó su morada.
+
+—Estoy de camino —dijo— a Stamboul, y he venido a saber si puedo servir a mi hermano en alguno de sus asuntos en la capital.
+
+Cyril y Zella lo recibieron con afecto cordial y se alegraron al percibir que el amor fraternal comenzaba a templar su corazón. Parecía lleno de ambición y esperanza: los hermanos hablaron de sus perspectivas, de la política de Europa y de las intrigas del Fanar; incluso los asuntos menores de Corinto fueron tema de conversación, así como la probabilidad de que, en breve y pese a su juventud, Cyril fuese nombrado codja-bashí[15]de la provincia. Al día siguiente Katusthius se dispuso a partir.
+
+—Un favor pide el exiliado voluntario —dijo—: ¿querrán mi hermano y mi hermana acompañarme durante unas horas en mi camino a Napoli, desde donde me embarco?
+
+Zella se resistía a abandonar su hogar, siquiera por breve tiempo; pero acabó dejándose persuadir, y los tres avanzaron juntos varias millas en dirección a la capital de la Morea. Al mediodía hicieron una comida bajo la sombra de una arboleda de robles y luego se separaron. De regreso a casa, los esposos se felicitaron por su vida tranquila y su dicha apacible, en contraste con los placeres solitarios y errantes del vagabundo. Estos sentimientos se intensificaron a medida que se acercaban a su morada y anticipaban la balbuciente bienvenida de su hijo idolatrado.
+
+Desde una altura contemplaron el fértil valle que era su hogar: se extendía en el lado meridional del istmo y dominaba el golfo de Aegina; todo aparecía verde, sereno y hermoso. Descendieron a la llanura, y allí una visión singular atrajo su atención. Un arado con su yunta de bueyes había sido abandonado a mitad del surco; los animales lo habían arrastrado hasta el borde del campo y trataban de reposar como su unión se los permitía. El sol ya tocaba su ocaso, y las copas de los árboles se doraban con sus rayos de despedida. Todo estaba en silencio; incluso la eterna noria se había detenido; ningún criado aparecía en sus faenas rústicas habituales. Desde la casa se oía con claridad una voz de lamento.
+
+—¡Mi hijo! —exclamó Zella.
+
+Cyril intentó tranquilizarla; pero se alzó otro gemido y él se precipitó hacia la casa. Ella desmontó y habría seguido tras él, pero se desplomó al borde del camino. Su esposo regresó.
+
+—Ánimo, amada mía —exclamó—; no descansaré ni de noche ni de día hasta que Constans nos sea devuelto. Confía en mí… ¡adiós!
+
+Con estas palabras espoleó su caballo y partió a toda prisa.
+
+Así se confirmaron sus peores temores; el corazón maternal, poco antes tan jubiloso, se convirtió en morada de la desesperación, mientras el relato de la nodriza sobre el triste suceso no hacía sino añadir nuevo horror al horror.
+
+Había sucedido así: el mismo extraño del Mal de Ojo apareció, no como antes, precipitándose sobre ellos con velocidad de águila, sino como tras una larga jornada; su caballo cojeaba y llevaba la cabeza abatida; el propio arnaoot estaba cubierto de polvo y parecía apenas capaz de sostenerse en la silla.
+
+—Por la vida de tu hijo —dijo—, da una copa de agua a quien desfallece de sed.
+
+La nodriza, con Constans en brazos, trajo un cuenco del líquido solicitado y se lo ofreció. Antes de que los labios resecos del extraño tocaran el agua, el recipiente cayó de sus manos. Las mujeres retrocedieron sobresaltadas; y él, al mismo tiempo, lanzándose hacia adelante, arrancó con brazo poderoso al niño de su abrazo. Ya ambos habían desaparecido: con rapidez de flecha atravesaron la llanura, mientras los gritos y clamores de auxilio reunían a todos los criados. Siguieron el rastro del raptor, y aún no había regresado ninguno. Al caer la noche volvieron uno a uno; nada tenían que contar: habían recorrido los bosques, cruzado las colinas, y ni siquiera lograron descubrir la ruta que había tomado el albanés.
+
+Al día siguiente Cyril regresó exhausto, demacrado y miserable; no había obtenido noticia alguna de su hijo. A la mañana siguiente partió de nuevo en su busca y no volvió en varios días. Zella pasó el tiempo penosamente: ora sentada en un abatimiento sin esperanza, ora subiendo a la colina cercana para ver si lograba distinguir el regreso de su esposo. No se le permitió permanecer mucho tiempo en aquella aparente calma: los criados, temblorosos, le advirtieron que se habían visto merodear las formas salvajes de varios arnaoots; ella misma divisó una figura alta, envuelta en un capote blanco y peludo, que rodeó el promontorio y, al verla, retrocedió; una noche, el resoplido y el pisoteo de un caballo la sobresaltaron, no del sueño, sino de su ilusoria sensación de seguridad. Miserable como estaba la madre despojada, se sentía casi indiferente al peligro personal; pero no se pertenecía a sí misma: pertenecía a un ser más querido que la vida; y el deber, así como el afecto hacia él, le imponían la necesidad de preservarse.
+
+Cyril regresó de nuevo: estaba más sombrío y abatido que antes; pero en su frente se advertía mayor resolución, en sus movimientos mayor energía; había obtenido una pista, aunque bien podía conducirlo a los abismos de la desesperación.
+
+Descubrió que Katusthius no había embarcado en Napoli. Se había unido a una banda de arnaoots que acechaba cerca de Vasilico y había marchado a Patras con el protoklepht[16]; desde allí zarparon juntos en un monoxylon[17]hacia las costas septentrionales del golfo de Lepanto; y no iban solos: llevaban consigo a un niño envuelto en un sueño pesado y letárgico. La sangre del desdichado Cyril se heló al pensar en los sortilegios y brujerías que probablemente se habían ejercido sobre su hijo. Habría seguido de inmediato a los ladrones, de no haberle llegado la noticia de que el resto de los albaneses había marchado hacia el sur, en dirección a Corinto. No podía lanzarse a una larga búsqueda errante por los yermos sin senderos de Epiro, dejando a Zella expuesta a los ataques de aquellos bandidos. Regresó para consultarlo con ella y trazar algún plan que garantizara su seguridad y prometiera éxito a sus esfuerzos.
+
+Tras cierta vacilación y discusión, se decidió que primero la conduciría a su hogar natal, consultaría con su padre sobre la empresa y se guiaría por su experiencia guerrera antes de precipitarse en el mismo foco del peligro. El rapto de su hijo podía ser solo un señuelo, y no era prudente que él, único protector del niño y de su madre, se adentrase sin cautela en la trampa.
+
+Zella, cosa extraña, pues sus ojos azules y su tez luminosa desmentían su origen, era hija de un mainote. Sin embargo, aunque los habitantes del cabo Tenaro sean temidos y aborrecidos por el resto del mundo, son célebres por sus virtudes domésticas y la firmeza de sus afectos privados. Zella amaba a su padre y el recuerdo de su hogar áspero y rocoso, del que había sido arrancada en una hora adversa. Vecinos cercanos de los mainotes, habitantes de la región más ruda e inculta de Maina, se encuentran los kakovougnis, una raza oscura y suspicaz, de figura rechoncha y baja, que contrasta vivamente con la expresión serena característica del mainote. Ambas tribus viven en perpetuas querellas; la estrecha morada cercada por el mar que comparten les ofrece a la vez refugio seguro frente al enemigo extranjero y todas las facilidades para la guerra montañesa interna.
+
+En una ocasión, durante un viaje de cabotaje, Cyril había sido empujado por la fuerza del temporal hacia la pequeña bahía en cuyas orillas se alza el pueblo de Kardamyla. La tripulación temió al principio caer en manos de los piratas; pero se tranquilizó al comprobar que estaban por completo absorbidos por sus disensiones domésticas. Una banda de kakovougnis sitiaba la roca fortificada que domina Kardamyla, bloqueando la fortaleza donde el capitano mainote y su familia se habían refugiado. Dos días transcurrieron así, mientras vientos furiosos y contrarios retenían a Cyril en la bahía.
+
+En la tercera tarde el vendaval occidental amainó y una brisa de tierra prometía librarlos de aquella peligrosa situación; cuando, ya de noche y a punto de embarcar en un bote desde la orilla, fueron llamados por un grupo de mainotes, y uno de ellos, un anciano de figura imponente, pidió parlamento. Era el capitano de Kardamyla, jefe de la fortaleza ahora atacada por sus implacables enemigos: no veía escapatoria —debía caer—, y su mayor deseo era salvar su tesoro y a su familia de manos de aquellos adversarios. Cyril accedió a recibirlos a bordo; la familia consistía en una madre anciana, una paramana[18]y una joven de gran hermosura, su hija.
+
+Cyril los condujo a salvo hasta Napoli. Poco después, la madre del capitano y la paramana regresaron a su pueblo natal, mientras que, con el consentimiento de su padre, la hermosa Zella se convirtió en esposa de su salvador. Desde entonces la fortuna del mainote había prosperado, y ocupaba el primer rango, como jefe de una gran tribu y capitano de Kardamyla.
+
+Hacia allí se dirigieron entonces los desdichados padres. Embarcaron en una pequeña sacoleva que descendió por el golfo de Aegina, rodeó las islas de Skyllo y Cerigo y el extremo de Tenaro propicios, alcanzaron el puerto deseado y llegaron a la hospitalaria mansión del viejo Camaraz. Este escuchó su relato con indignación; juró por su barba hundir su puñal en la mejor sangre de Katusthius e insistió en acompañar a su yerno en la expedición a Albania. No se perdió tiempo: el marino de cabellos grises, aún lleno de energía, apresuró todos los preparativos. Cyril y Zella se separaron; mil temores y mil horas de miseria se alzaron entre la pareja, hasta entonces partícipe de una felicidad perfecta. El mar embravecido y las tierras lejanas eran los menores de los obstáculos que los separaban; no querían temer lo peor; y, sin embargo, la esperanza —planta enfermiza— se marchitó en sus corazones cuando se desgarraron en un último abrazo.
+
+Zella regresó del fértil distrito de Corinto a sus áridas rocas natales. Sintió extinguirse toda alegría al contemplar, desde la costa escarpada, las velas menguantes de la sacoleva. Pasaron días y semanas, y ella perseveró en una espera solitaria y triste: jamás se unió a las danzas ni participó en las reuniones de sus compatriotas, que al caer la tarde se congregaban para cantar, contar historias y pasar el tiempo entre bailes y alegrías. Se recluía en la parte más solitaria de la casa paterna y miraba sin cesar, desde la celosía, el mar que se extendía debajo, o vagaba por la playa rocosa; y cuando la tempestad oscurecía el cielo y cada promontorio se tornaba púrpura bajo las sombras de las nubes de anchas alas, cuando el bramido de las olas golpeaba la orilla y las crestas blancas, vistas a lo lejos sobre la llanura del océano, parecían rebaños de ovejas recién esquiladas esparcidas por amplias praderas, no sentía ni el vendaval ni el frío inclemente, ni regresaba a casa hasta que sus criados la llamaban.
+
+Obedeciendo, buscaba refugio en su morada, pero no permanecía allí mucho tiempo; pues los vientos salvajes le hablaban y el océano tempestuoso reprochaba su quietud. Incapaz de dominar el impulso, se precipitaba fuera de su estancia en el acantilado y no recordaba, hasta llegar a la orilla, que había dejado sus papooshes[19]a mitad del sendero de la montaña, y que el velo olvidado y el vestido desordenado eran impropios para tal escenario. A menudo transcurrían incontables horas mientras aquella huérfana de la felicidad se apoyaba en una fría roca oscura; los riscos de frente baja se proyectaban sobre ella, las olas rompían a sus pies, sus bellos miembros se empapaban de salitre, sus trenzas se desordenaban al viento. Lloraba sin esperanza hasta que una vela aparecía en el horizonte; entonces secaba sus lágrimas, que fluían sin cesar, y fijaba sus grandes ojos en el casco que se aproximaba o en la vela que se desvanecía.
+
+Mientras tanto, la tormenta arrojaba las nubes en mil formas gigantescas y el mar tumultuoso se volvía cada vez más negro y más salvaje; su melancolía natural se veía acrecentada por el horror supersticioso: las Moirae[20], las antiguas Parcas de su suelo griego natal, aullaban en las brisas; apariciones que le hablaban de su hijo languideciendo bajo la influencia del Mal de Ojo y de su esposo, presa de alguna hechicería tracia —como las que aún se practican en el temido entorno de Larissa—, poblaban sus sueños rotos y cruzaban como sombras funestas sus pensamientos despiertos. Su lozanía había desaparecido; sus ojos habían perdido el brillo, sus miembros la redondez plena de la belleza; la fuerza la abandonaba mientras se tambaleaba hasta el lugar acostumbrado para vigilar, en vano, pero para siempre vigilar.
+
+¿Qué hay más terrible que la espera de malas noticias que no llegan? A veces, en medio de las lágrimas o, peor aún, de los jadeos convulsos de la desesperación, nos reprochamos influir en los destinos eternos con nuestras sombrías previsiones; entonces, si una sonrisa se insinúa en el labio tembloroso del doliente, queda detenida por una punzada de agonía. ¡Ay!, ¿no se tiñen de gris las trenzas oscuras de los jóvenes, no se surca de líneas de tristeza la mejilla plena de la belleza por los espíritus de tales horas? La miseria es una visitante más bienvenida cuando llega en su apariencia más sombría y nos envuelve en luto perpetuo, pues entonces el corazón deja de enfermar de esperanza defraudada.
+
+Cyril y el viejo Camaraz habían hallado grandes dificultades para doblar los numerosos cabos de la Morea durante su expedición costera desde Kardamyla hasta el golfo de Arta, al norte de Cefalonia y St. Mauro. Durante la travesía tuvieron tiempo de trazar sus planes. Como un grupo numeroso de moreotas viajando juntos podía atraer demasiada atención, resolvieron desembarcar a sus compañeros en distintos puntos y avanzar por separado hacia el interior de Albania; Yannina sería su primer punto de reunión. Cyril y su suegro desembarcaron en una de las más apartadas de las muchas caletas que recortan las costas sinuosas y abruptas del golfo. Otros seis, elegidos de la tripulación, llegarían por rutas distintas para reunirse con ellos en la capital.
+
+No temían por sí mismos; solos, pero bien armados y sostenidos por el valor de la desesperación, penetraron en los desfiladeros de Epiro. Ningún éxito los alentó: llegaron a Yannina sin haber hecho el menor descubrimiento. Allí se reunieron con sus compañeros, a quienes ordenaron permanecer tres días en la ciudad y luego avanzar por separado hacia Tepellene, adonde ellos mismos se dirigieron de inmediato. En el primer pueblo del camino, en la «monástica Zitza»[21], obtuvieron cierta información, no para orientar, pero sí para alentar sus esfuerzos. Buscaron reposo y hospitalidad en el monasterio situado en una verde colina, coronada por una arboleda de robles, inmediatamente detrás del pueblo. Quizá no exista en el mundo un lugar más hermoso o más romántico, resguardado por árboles agrupados y abierto a un vasto paisaje de colinas y valles, enriquecido por viñedos y salpicado de rebaños; mientras el Calamas, en lo profundo del valle, da vida a la escena, y las lejanas montañas azules de Zoumerkas, Sagori, Sulli y Acroceraunia, al este, oeste, norte y sur, cierran las diversas perspectivas.
+
+Cyril casi envidiaba a los caloyers[22]su quietud inerte. Recibieron a los viajeros con agrado y fueron cordiales, aunque sencillos en sus modales. Al conocer el objeto del viaje, simpatizaron vivamente con la angustia del padre y contaron con avidez todo lo que sabían. Dos semanas antes, un arnaoot —bien conocido por ellos como Dmitri del Mal de Ojo, célebre klepht de Korvo— y un moreota habían llegado trayendo consigo a un niño, un muchacho audaz, vivaz y hermoso, que, con firmeza impropia de su edad, reclamó la protección de los caloyers y acusó a sus compañeros de haberlo arrancado por la fuerza de sus padres.
+
+—¡Por mi cabeza! —exclamó el albanés—, un valiente palikar[23]: cumple su palabra, hermano; juró por la Panagia —pese a nuestras amenazas de arrojarlo por un precipicio como pasto de los buitres— de acusarnos ante los primeros hombres honrados que encontrase. Ni languidece bajo el Mal de Ojo ni se acobarda ante nuestras amenazas.
+
+Katusthius frunció el ceño ante tales elogios, y durante su estancia en el monasterio se hizo evidente que el albanés y el moreota disputaban acerca del destino del niño. El rudo montañés despojaba de toda severidad su semblante al contemplar al muchacho. Cuando el pequeño Constans dormía, se inclinaba sobre él, espantando con cuidado casi femenino las moscas y los mosquitos. Cuando hablaba, respondía con expresiones de afecto, lo conquistaba con regalos y le enseñaba, siendo aún tan niño, una mímica de ejercicios guerreros.
+
+Cuando el pequeño se arrodillaba y suplicaba a la Panagia que lo devolviera a sus padres, con la voz infantil temblorosa y las lágrimas corriéndole por las mejillas, los ojos de Dmitri se anegaban; se cubría el rostro con la capa, y su corazón le susurraba: «Así, quizá, oró mi hija. El cielo fue sordo… ¡ay!, ¿dónde está ahora?». Animado por tales signos de compasión —que los niños perciben con rapidez—, Constans le rodeaba el cuello con los brazos, le decía que lo amaba y que lucharía por él cuando fuese hombre, si lo llevaba de regreso a Corinto. Ante tales palabras Dmitri salía precipitadamente, buscaba a Katusthius y discutía con él, hasta que el hombre implacable lo detenía recordándole su juramento. Dmitri seguía jurando que no se dañaría un solo cabello de la cabeza del niño, mientras el tío, sin rastro de remordimiento, meditaba su destrucción. Las disputas que de ello surgieron fueron frecuentes y violentas, hasta que Katusthius, cansado de la resistencia, recurrió al engaño para lograr su propósito. Una noche abandonó el monasterio en secreto, llevándose consigo al niño.
+
+Cuando Dmitri supo de su huida, resultaba terrible incluso mirarlo; los buenos caloyers, instintivamente, aferraban cualquier trozo de hierro que encontraban a mano para conjurar el Mal de Ojo que fulguraba con ferocidad nativa e indómita. Presas del pánico, una veintena de ellos se precipitó hacia la puerta chapada en hierro que daba salida al monasterio; con fuerza de león, Dmitri los apartó, arrancó la hoja del portal y, con la rapidez de un torrente alimentado por el deshielo primaveral, se lanzó colina abajo: no es más veloz el vuelo de un águila, ni más resuelta la carrera de una fiera salvaje.
+
+Tal fue la pista que se ofreció a Cyril. Sería demasiado largo seguirlo en todas las etapas de su búsqueda posterior: él y el viejo Camaraz vagaron por el valle de Argyro-Castro y ascendieron el monte Trebucci hasta Korvo. Dmitri había regresado; había reunido una veintena de fieles camaradas y había partido de nuevo. Diversos eran los rumores sobre su destino y la empresa que meditaba.
+
+Uno de ellos condujo a nuestros aventureros a Tepellene y, desde allí, de vuelta hacia Yannina; y esta vez la fortuna volvió a favorecerlos. Pasaron una noche en la vivienda de un sacerdote, en el pequeño pueblo de Mosme, a unas tres leguas al norte de Zitza, y allí encontraron a un arnaoot que había quedado inutilizado por una caída del caballo; aquel hombre debía haber formado parte de la banda de Dmitri. Supieron por él que el albanés había seguido el rastro de Katusthius, acosándolo hasta obligarlo a refugiarse en el monasterio del profeta Elías, erigido sobre una elevada cumbre de las montañas de Sagori, a ocho leguas de Yannina. Dmitri lo había seguido y exigido la entrega del niño. Los caloyers se negaron, y el klepht, enardecido por una furia casi insensata, estaba ahora sitiando y golpeando el monasterio para obtener por la fuerza aquel objeto de sus afectos recién despertados.
+
+En Yannina, Camaraz y Cyril reunieron a sus camaradas y partieron para unirse a su aliado inconsciente. Dmitri, más impetuoso que un torrente de montaña o que las olas más feroces del océano, infundía terror en los corazones de los reclusos con sus ataques incesantes e intrépidos. Para animarlos a una mayor resistencia, Katusthius, dejando al niño en el monasterio, marchó al pueblo sagoriano más cercano para implorar ayuda al belouk-bashí[24]. Los sagorianos son un pueblo afable, sociable y benigno; alegres, francos e inteligentes, su valentía es reconocida incluso por los montañeses más incivilizados de Zoumerkas; sin embargo, entre ellos son desconocidos el robo, el asesinato y otros actos de violencia. Aquellas buenas gentes se indignaron profundamente al saber que una banda de arnaoots estaba asediando y golpeando el sagrado retiro de sus caloyers predilectos. Se reunieron en gallarda tropa y, llevando consigo a Katusthius, se apresuraron a expulsar a los insolentes klephts hacia sus ásperos refugios.
+
+Llegaron demasiado tarde. A medianoche, mientras los monjes oraban fervientemente por verse libres de sus enemigos, Dmitri y sus seguidores derribaron la puerta chapada en hierro y penetraron en el recinto sagrado. El protoklepht avanzó hasta las puertas del santuario y, colocando las manos sobre ellas, juró que venía a salvar, no a destruir. Constans lo vio; con un grito de alegría se soltó del caloyer que lo retenía y se lanzó a sus brazos: aquel fue triunfo suficiente. Con expresiones de sincero pesar por la perturbación causada, el klepht abandonó la capilla con sus hombres, llevándose consigo su presa.
+
+Katusthius regresó algunas horas después y defendió tan hábilmente su causa ante los bondadosos sagorianos, lamentando el destino de su pequeño sobrino entre aquellos hombres perversos, que estos se ofrecieron a seguirlo y, superiores en número, rescatar al niño de sus manos destructoras. Katusthius, encantado con la propuesta, instó a una partida inmediata. Al alba comenzaron a escalar las cumbres ya holladas por los zoumerkianos.
+
+Feliz por haber recuperado a su pequeño favorito, Dmitri lo sentó delante de sí en el caballo y, seguido por sus camaradas, avanzó por las elevadas montañas cubiertas de los robles de la antigua Dodona o, en las cumbres más altas, de oscuros y gigantescos pinos. Tras algunas horas de marcha desmontaron para reposar. El lugar elegido era el fondo de un barranco sombrío, cuyo aspecto se volvía aún más lúgubre por las amplias sombras de las oscuras encinas; un sotobosque enmarañado y la dispersión de rocas abruptas dificultaban el paso de los caballos. Se sentaron junto a un pequeño arroyo; dispusieron su frugal comida, y Dmitri atrajo al niño a comer con mil caricias.
+
+De pronto, uno de los hombres puestos de guardia anunció que una tropa de sagorianos, con Katusthius como guía, avanzaba desde el monasterio de san Elías; otro dio la alarma de que seis u ocho moreotas bien armados se aproximaban por el camino de Yannina. En un instante desapareció todo rastro del campamento. Los arnaoots comenzaron a trepar por las laderas, ocultándose tras las rocas y los gruesos troncos del bosque, aguardando a que sus perseguidores se internaran en medio de ellos. Pronto aparecieron los moreotas, rodeando el desfiladero por un sendero que solo permitía avanzar de dos en dos; caminaban despreocupados, ignorantes del peligro, hasta que un disparo silbó sobre la cabeza de uno de ellos y fue a incrustarse en la rama de un árbol, arrancándolos de su falsa seguridad.
+
+Los griegos, acostumbrados a aquel mismo modo de combate, buscaron también el amparo de las rocas, disparando desde detrás de ellas, disputándose con sus adversarios la posición más elevada, saltando de peña en peña y dejándose caer para disparar tan rápido como podían cargar. Solo un anciano permaneció en el sendero. El marino Camaraz había afrontado muchas veces al enemigo sobre la cubierta de su caïque[25]y aún se habría lanzado el primero en un abordaje; pero aquella guerra exigía demasiada agilidad. Cyril le gritó que se protegiera bajo una roca baja y ancha; el mainote agitó la mano.
+
+—No temas por mí —exclamó—; ¡sé cómo morir!
+
+Los valientes aman a los valientes. Dmitri vio al anciano permanecer firme, erguido, convertido en blanco de todas las balas, y salió de su refugio rocoso, ordenando a sus hombres que cesaran el fuego. Luego, dirigiéndose al enemigo, gritó:
+
+—¿Quién eres? ¿Por qué estás aquí? Si venís en paz, seguid vuestro camino. ¡Responde y no temas!
+
+El anciano se irguió aún más.
+
+—Soy un mainote y no sé temer. Toda Hellas tiembla ante los piratas del cabo Matapán, ¡y yo soy uno de ellos! No vengo en paz. ¡Mira! Tienes en tus brazos la causa de nuestra discordia. Soy el abuelo de ese niño. ¡Entrégamelo!
+
+Dmitri no habría cambiado tan bruscamente de expresión ni aun si hubiese sentido despertar una serpiente en su seno.
+
+—¡Descendencia de un mainote! —murmuró.
+
+Aflojó el brazo; Constans habría caído si no se hubiese aferrado a su cuello. Entretanto, ambos bandos descendieron de sus posiciones y se agruparon en el sendero inferior. Dmitri arrancó al niño de su abrazo; sintió que podía, con salvaje deleite, arrojarlo al precipicio… cuando, en el instante mismo en que vacilaba y temblaba bajo el exceso de su pasión, Katusthius y los sagorianos que iban en vanguardia se precipitaron sobre ellos.
+
+—¡Detente! —gritó el arnaoot enfurecido—. ¡Mira a Katusthius, contempla, amigo, a quien yo, empujado por destinos irresistibles, perjuré loca y malvadamente! Ahora cumplo tu deseo: ¡el niño mainote muere! ¡El hijo de la raza maldita será la víctima de mi justa venganza!
+
+Cyril, transportado por el terror, trepó a la roca y apuntó su mosquete, pero temía sacrificar a su hijo. El viejo mainote, menos tímido y más desesperado, tomó una puntería firme; Dmitri advirtió el gesto y arrojó contra él el puñal que ya alzaba contra el niño: el arma se hundió en su costado, mientras Constans, sintiendo relajarse el brazo de su antiguo protector, saltó a los brazos de su padre.
+
+Camaraz cayó, aunque la herida era leve. Vio cómo arnaoots y sagorianos se cerraban a su alrededor y cómo sus propios hombres eran hechos prisioneros. Dmitri y Katusthius se lanzaron ambos sobre Cyril, forcejeando por apoderarse del niño que gritaba. El mainote se incorporó: débil de cuerpo, pero fuerte de corazón; se interpuso ante el padre y el hijo y sujetó el brazo levantado de Dmitri.
+
+—¡Sobre mí —exclamó— descarga toda tu venganza! ¡Yo, de la raza maldita! En cuanto al niño, es inocente de tal origen. ¡Maina no puede jactarse de él como de un hijo!
+
+—¡Hombre de mentiras! —comenzó el arnaoot furioso—; ¡esa falsedad no te salvará!
+
+—No, por las almas de aquellos a quienes has amado, escucha —continuó Camaraz—; y si no pruebo mis palabras, ¡que yo y mis hijos muramos! El padre del niño es corintio; su madre, una joven de Scio.
+
+—¡Scio! —la sola palabra hizo que la sangre se retirara del corazón de Dmitri—. ¡Villano! —gritó, apartando de un golpe el brazo de Katusthius, alzado contra el desdichado Constans—. Yo protejo a este niño; ¡no oséis dañarlo! Habla, anciano, y no temas, si dices la verdad.
+
+—Hace quince años —dijo Camaraz—, rondaba con mi caïque la costa de Scio en busca de presa. Una cabaña se alzaba al borde de un bosque de castaños: era la morada de la viuda de un rico isleño, que vivía allí con su única hija, casada con un albanés entonces ausente. Se decía que la buena mujer ocultaba un tesoro en su casa; la joven misma sería un botín precioso: la aventura merecía el riesgo. Hicimos entrar la embarcación en una ensenada sombreada y, al ocultarse la luna, desembarcamos, deslizándonos bajo el amparo de la noche hacia la solitaria morada de aquellas mujeres.
+
+Dmitri llevó la mano a la empuñadura del puñal: ya no estaba allí; medio sacó una pistola del cinturón. El pequeño Constans, volviendo a confiar en su antiguo amigo, extendió sus manos infantiles y se aferró a su brazo. El klepht lo miró; a medias cedía al impulso de abrazarlo, a medias temía ser engañado; así que se volvió, cubriéndose el rostro con el capote, ocultando su angustia y dominando sus emociones hasta oír el relato completo. Camaraz prosiguió:
+
+—La escena se tornó en tragedia peor de la que había previsto. La joven tenía una hija; temió por su vida y luchó con los hombres como una tigresa defendiendo a sus crías. Yo estaba en otra estancia buscando el tesoro oculto, cuando un grito desgarrador rasgó el aire. Nunca había conocido la compasión antes; aquel grito me atravesó el corazón; pero ya era demasiado tarde: la pobre joven yacía en el suelo, con la corriente de la vida manando de su pecho. No sé por qué, pero me volví mujer en mi arrepentimiento por aquella belleza asesinada. Pensé llevarla a ella y a su hija a bordo, para ver si algo podía hacerse por salvarla, pero murió antes de que abandonáramos la orilla. Creí que preferiría su sepultura isleña y temí de veras que, si la llevaba lejos, pudiera convertirse en vampira y perseguirme; así que dejamos su cadáver para que los sacerdotes lo enterraran y nos llevamos a la niña, que tendría entonces unos dos años. Apenas sabía pronunciar palabras, salvo su propio nombre, que era Zella… ¡y ella es la madre de este muchacho!
+
+* * *
+
+Una sucesión de desembarcos en la bahía de Kardamyla había mantenido a la pobre Zella en vela durante muchas noches. Su asistente, desesperando de verla dormir de nuevo, había mezclado opio en los escasos alimentos que lograba persuadirla a tomar; pero no calculó el poder de la mente sobre el cuerpo, del amor sobre todo enemigo —físico o moral— que se le oponga. Zella yacía en su lecho, con el espíritu algo sosegado, pero el corazón despierto y los ojos abiertos. En plena noche, guiada por un impulso inexplicable, se arrastró hasta la celosía y vio una pequeña sacoleva entrar en la bahía; avanzó velozmente, favorecida por el viento, y desapareció de su vista tras un peñasco saliente. Pisó con ligereza el mármol de su cámara, se envolvió en un gran chal, descendió por el sendero rocoso y alcanzó la playa con pasos rápidos. La embarcación seguía invisible y estuvo a punto de creer que todo era fruto de su imaginación excitada; aun así, permaneció allí.
+
+Sentía un desfallecimiento en lo más hondo del pecho cada vez que intentaba moverse, y los párpados se le cerraban pese a su resistencia. El deseo de dormir se volvió al fin irresistible; se tendió sobre los guijarros, apoyó la cabeza en aquel duro y frío almohadón, se envolvió aún más en el chal y se entregó al olvido.
+
+Tan profundamente durmió bajo la influencia del opiáceo que durante muchas horas no advirtió cambio alguno en su situación. Poco a poco despertó y fue tomando conciencia de los objetos que la rodeaban: la brisa se sentía fresca y libre —así era siempre en aquella costa batida por las olas—; el murmullo del agua estaba cerca, había sonado en sus oídos cuando cedió al sueño; pero aquel no era su lecho de piedras ni aquel dosel el oscuro risco que solía cubrirla. De pronto alzó la cabeza: se encontraba en la cubierta de una pequeña embarcación que surcaba velozmente las olas del océano; una capa de martas servía de almohada a su cabeza; las costas del cabo Matapán quedaban a su izquierda, y la nave se dirigía de frente hacia el sol del mediodía. El asombro, más que el miedo, se apoderó de ella. Con mano rápida apartó la vela que la ocultaba de la tripulación: el temido albanés estaba sentado junto a ella, con su Constans acunado en los brazos. Lanzó un grito; Cyril se volvió al oírlo, y en un instante ella se halló estrechada en su abrazo.
+
+FIN
+
+[1]Moreota: Habitante de la Morea, nombre histórico del Peloponeso (Grecia). En el texto designa tanto el origen geográfico como una identidad cultural.
+
+[2]Pachalato:División administrativa del Imperio Otomano, gobernada por un pachá. Elpachalato de Yanninaera una región bajo dominio otomano.
+
+[3]Klepht / Kléftico:Bandolero guerrillero griego de las regiones montañosas durante la dominación otomana. Losklephtscombinaban bandidaje, resistencia armada y un código de honor propio.
+
+[4]En Grecia, especialmente en Iliria y Epiro, no es cosa infrecuente que personas del mismo sexo juren amistad; la Iglesia posee un ritual para consagrar este voto. Dos hombres así unidos son llamadospobratimi; las mujeres,posestrime.
+
+[5]Yatagán:Sable o cuchillo largo, curvo, característico del ámbito otomano y balcánico.
+
+[6]Scio (Quíos):Isla griega del Egeo, considerada en el siglo XIX una de las más cultas y refinadas del mundo griego.
+
+[7]Sciota / Esciota:Natural de Scio (Quíos).
+
+[8]Mainote: Habitante de Maina (o Mani), región montañosa del Peloponeso famosa por la independencia, el orgullo guerrero y las vendettas familiares.
+
+[9]Sacoleva:Embarcación pequeña de vela usada en el Mediterráneo oriental.
+
+[10]Arnaoot (Arnauta): Término usado en la época para referirse a los albaneses, especialmente a los montañeses armados, famosos por su ferocidad y vida guerrera.
+
+[11]Kakovougnis:Tribu o grupo montañés descrito como violento y hostil, enemigo tradicional de los mainotes. En el relato simbolizan la barbarie extrema.
+
+[12]Capitán de un barco mercante.
+
+[13]Fanariota:Miembro de la élite griega de Constantinopla (barrio del Fanar), influyente en la administración otomana y en la diplomacia.
+
+[14]Panagia:Título griego de la Virgen María (“La Santísima”), figura central de devoción popular.
+
+[15]Codja-bashí (Kodjabashi):Notable local o jefe administrativo cristiano bajo dominio otomano, encargado de la recaudación y del gobierno civil.
+
+[16]Protoklepht: Jefe o capitán principal de una banda deklephts.
+
+[17]Monoxylon:Embarcación tallada en un solo tronco (canoa primitiva).
+
+[18]Paramana:Mujer encargada de la crianza de un niño en el ámbito doméstico griego tradicional; nodriza o ama de confianza, ligada afectiva y permanentemente a la familia.
+
+[19]Papooshes:Calzado oriental ligero, similar a babuchas.
+
+[20]Moirae (Parcas):Las antiguas diosas del destino en la mitología griega, que gobiernan la vida y la muerte.
+
+[21]Byron,Childe Harold’s Pilgrimage, II, XLVIII.
+
+[22]Caloyer / Caloyerós:Monje ortodoxo, especialmente en monasterios rurales.
+
+[23]Palikar:Joven valiente o guerrero audaz; término cargado de admiración heroica.
+
+[24]Belouk-bashí:Jefe militar o autoridad local otomana, comandante de unbelouk(unidad armada).
+
+[25]Caïque:Pequeña embarcación costera del Mediterráneo oriental.
