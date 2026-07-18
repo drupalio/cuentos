@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/franz-kafka-un-artista-del-hambre/12001/
 
+
+**Imagen:** 0466-un-artista-del-hambre.webp
 ---
 
 Sinopsis:«Un artista del hambre» (Ein Hungerkünstler) es un cuento de Franz Kafka, publicado en 1922 en la revistaDie neue Rundschau. Narra la vida de un hombre que ha hecho del ayuno un espectáculo público. Encerrado en una jaula y vigilado para certificar su abstinencia, el ayunador es una atracción admirada por multitudes. Niños y adultos se detienen a observar su cuerpo consumido y su disciplina extrema. Sin embargo, incluso en el apogeo de su fama, pareciera que casi nadie comprende verdaderamente su arte ni cree del todo en la pureza de su sacrificio, desarrollado ante un público en ocasiones tan fascinado como escéptico.

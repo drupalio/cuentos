@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-la-verdad-sobre-el-caso-del-senor-valdemar/13255/
 
+
+**Imagen:** 0748-la-verdad-sobre-el-caso-del-señor-valdemar.jpg
 ---
 
 Sinopsis: «La verdad sobre el caso del señor Valdemar» (The Facts in the Case of M. Valdemar) es un cuento de Edgar Allan Poe que combina el horror con la especulación científica. Fue publicado en diciembre de 1845 enThe American ReviewyBroadway Journal. Un hombre fascinado por el hipnotismo decide explorar los límites de esta técnica en una situación extrema: el instante previo a la muerte. Para ello, recurre a su amigo Valdemar, un enfermo terminal. Rodeado de testigos, el investigador documenta con minuciosidad los efectos del experimento, que pronto adquiere un cariz inquietante y aterrador, revelando una dimensión para la cual nadie estaba preparado.

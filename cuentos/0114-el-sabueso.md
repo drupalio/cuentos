@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-el-sabueso/5813/
 
+
+**Imagen:** 0114-el-sabueso.jpg
 ---
 
 Sinopsis: «El sabueso» (The Hound) es un cuento de horror de H. P. Lovecraft, publicado en febrero de 1924 en la revistaWeird Tales. La historia sigue a dos aficionados a lo macabro, quienes buscan emociones extremas para aliviar su aburrimiento. Ambos son coleccionistas de artefactos esotéricos y practican la profanación de tumbas para obtener objetos raros y místicos. Durante una de sus expediciones en un cementerio holandés, desentierran un amuleto antiguo con la forma de un sabueso alado, ligado a rituales oscuros y nefastos descritos en el Necronomicón. Desde que lo poseen, una ola de hechos sobrenaturales se desata en torno a ellos.

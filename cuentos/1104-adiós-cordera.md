@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/leopoldo-alas-clarin-adios-cordera/12682/
 
+
+**Imagen:** 1104-adiós-cordera.webp
 ---
 
 Sinopsis: «¡Adiós, Cordera!» es un cuento de Leopoldo Alas (Clarín), publicado el 27 de julio de 1892 en el periódicoEl Liberal. Ambientado en una aldea asturiana, narra la entrañable relación entre dos niños, Rosa y Pinín, y una vieja vaca llamada Cordera, a la que cuidan y quieren como a un miembro más de su familia. En el tranquilo prado Somonte, los tres comparten una vida sencilla y apacible, marcada por la inocencia infantil y el ritmo pausado del campo. Pero la pobreza y las exigencias del mundo exterior impondrán decisiones que alterarán esa armonía.

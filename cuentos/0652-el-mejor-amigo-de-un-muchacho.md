@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-el-mejor-amigo-de-un-muchacho/20647/
 
+
+**Imagen:** 0652-el-mejor-amigo-de-un-muchacho.webp
 ---
 
 Sinopsis: «El mejor amigo de un muchacho» (A Boy’s Best Friend) es un cuento de Isaac Asimov, publicado en marzo de 1975 en la revistaBoys’ Life. La historia sigue a Jimmy, un niño que ha crecido en la Luna y cuya única compañía en sus juegos es Robutt, un perro robot diseñado para acompañarlo. Juntos exploran la superficie lunar, compartiendo una conexión especial. Un día, su padre le anuncia una sorpresa que ha llegado desde la Tierra, algo que podría cambiar su vida.

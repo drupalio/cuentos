@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bram-stoker-las-almas-gemelas/15800/
 
+
+**Imagen:** 0425-las-almas-gemelas.webp
 ---
 
 Sinopsis: «Las almas gemelas» (también traducido como «Los dualistas») es un cuento de terror y humor negro escrito porBram Stoker, publicado en noviembre de 1886 enThe Theatre Annual for 1887. La historia sigue a Harry y Tommy, dos niños inseparables cuyas travesuras se vuelven cada vez más macabras, llevándolos a descubrir una inquietante fascinación por la crueldad y la destrucción. Lo que comienza como juegos inocentes poco a poco se transforma en una espiral de violencia sin límites. Ambientada en un vecindario aparentemente tranquilo, a través de una narrativa llena de suspenso y horror, la historia revela la oscuridad que puede esconderse tras la inocencia infantil.

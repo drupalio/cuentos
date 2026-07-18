@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-el-sexo-de-los-angeles/10701/
 
+
+**Imagen:** 0527-el-sexo-de-los-ángeles.jpg
 ---
 
 Sinopsis:«El sexo de los ángeles», es un cuento corto deMario Benedetti, publicado en 1989 en la colecciónDespistes y franquezas, que explora una fascinante cuestión: la naturaleza del amor y la sexualidad de los ángeles. La narrativa sugiere que, a diferencia de los seres humanos, los ángeles no hacen el amor físicamente, dado que carecen de cuerpos. Sin embargo, se insinúa que celebran su amor de manera diferente, utilizando palabras.

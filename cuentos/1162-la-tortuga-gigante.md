@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-la-tortuga-gigante/925/
 
+
+**Imagen:** 1162-la-tortuga-gigante.webp
 ---
 
 Sinopsis: En «La tortuga gigante», cuento publicado enFray Mochoen 1916 y recogido luego enCuentos de la selva(1918), Horacio Quiroga relata la historia de un hombre que se traslada al monte para recuperarse de una enfermedad. Allí se dedica a la caza, pero un día, tras salvar a una tortuga gigante de las fauces de un jaguar, decide cuidarla. Lo que el hombre no sabía es que ese gesto de bondad le sería recompensado de una forma muy peculiar.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/haroldo-conti-la-balada-del-alamo-carolina/116/
 
+
+**Imagen:** 1444-haroldo-conti-la-balada-del-álamo-carolina.jpg
 ---
 
 A mi madre, doña Petrolina Lombardi de Conti,y a la ciudad de Chacabuco, mi pueblo.

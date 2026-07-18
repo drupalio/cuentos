@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-polaris/21370/
 
+
+**Imagen:** 1077-polaris.webp
 ---
 
 Sinopsis: «Polaris» es un relato de H. P. Lovecraft, escrito en 1918 y publicado en diciembre de 1920 en la revistaPhilosopher. Narra las inquietantes visiones de un hombre que, bajo la inmóvil luz de la estrella Polar, comienza a tener extraños sueños en los que contempla una ciudad antigua de mármol situada entre montañas desconocidas. Fascinado por la belleza y el misterio, el protagonista, a medida que se sumerge en este mundo onírico, se ve cada vez más atrapado entre dos realidades: la del sueño y la de la vigilia.

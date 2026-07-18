@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/sergio-ramirez-treblinka/14629/
 
+
+**Imagen:** 1212-treblinka.jpg
 ---
 
 En «Treblinka», relato de Sergio Ramírez, un antiguo empresario avícola, conocido como «el Midas del pollo frito», narra su transformación espiritual y moral que lo lleva a convertirse en un defensor de los derechos de los animales. Durante una conferencia, explica cómo su éxito en la industria avícola le reveló la crueldad inherente al trato y sacrificio de los animales, en especial de los pollos, comparando su sufrimiento con el de un campo de concentración. Con una nueva misión de vida, el conferenciante busca redimir sus pasados errores denunciando las atrocidades de la industria cárnica y promoviendo un cambio de conciencia en la sociedad.

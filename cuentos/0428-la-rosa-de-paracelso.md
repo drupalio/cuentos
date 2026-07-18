@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-la-rosa-de-paracelso/26219/
 
+
+**Imagen:** 0428-la-rosa-de-paracelso.webp
 ---
 
 Sinopsis:«La rosa de Paracelso» es un relato de Jorge Luis Borges, incluido en el libroLa memoria de Shakespeare, publicado en 1983. La historia presenta al célebre alquimista en su taller, donde recibe a un joven desconocido que aspira a convertirse en su discípulo. El aspirante, movido por el escepticismo, ofrece sus riquezas y total fidelidad a cambio de una prueba tangible de los poderes del maestro: la resurrección de una rosa a partir de sus cenizas. A través de un diálogo cargado de misticismo y filosofía sobre la fe y la naturaleza de la realidad, Paracelso confronta la incredulidad del joven, quien busca una evidencia física del sagrado Arte.

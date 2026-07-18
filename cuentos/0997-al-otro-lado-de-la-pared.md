@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ambrose-bierce-al-otro-lado-de-la-pared/6054/
 
+
+**Imagen:** 0997-al-otro-lado-de-la-pared.webp
 ---
 
 Sinopsis: «Al otro lado de la pared» (Beyond the Wall) es un cuento de Ambrose Bierce, publicado en diciembre de 1907 en la revistaCosmopolitan. La historia comienza con la visita de un hombre a su viejo amigo Mohun Dampier una noche de tormenta en San Francisco. Al llegar a la sombría y solitaria casa donde vive Dampier, el visitante se percata de que su antiguo compañero ha experimentado cambios inquietantes. En la penumbra de una torre azotada por el viento y la lluvia, un golpe en la pared despierta su curiosidad. Intrigado, escucha con atención el relato de su amigo, que le revela un recuerdo doloroso relacionado con aquella misteriosa señal.

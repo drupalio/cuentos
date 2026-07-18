@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gustavo-adolfo-becquer-la-promesa/13479/
 
+
+**Imagen:** 1042-la-promesa.jpg
 ---
 
 Sinopsis: «La promesa» es una leyenda castellana de Gustavo Adolfo Bécquer publicada el 12 de febrero de 1863 enLa América. Narra la historia de amor y honor entre Margarita y Pedro, quienes mantienen una relación secreta. Ambientada en la España medieval, Margarita se enfrenta a la partida de Pedro, quien debe unirse al conde de Gómara en una cruzada contra los infieles en Sevilla. Pedro le pide que no se preocupe, le promete que volverá y que juntos irán a vivir en las tierras conquistadas a los sarracenos. Como todos los habitantes de la ciudad, Margarita va con sus hermanos a ver la partida del ejército, en ese momento descubre un secreto que sellará para siempre el destino de los amantes.

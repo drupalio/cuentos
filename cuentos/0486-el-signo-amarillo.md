@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-w-chambers-el-signo-amarillo/25883/
 
+
+**Imagen:** 0486-el-signo-amarillo.webp
 ---
 
 Sinopsis:«El signo amarillo» (The Yellow Sign) es un cuento de Robert W. Chambers, publicado en 1895 dentro de la colecciónThe King in Yellow. Mientras pinta un retrato, un artista se ve perturbado por la presencia de un misterioso hombre en el patio de la iglesia vecina. El rostro del hombre —blanquecino, hinchado y repugnante—, le causa una fuerte impresión, que parece contaminar incluso su obra. Por su parte, su modelo, Tessie, le cuenta un sueño recurrente, en el que un misterioso cochero transporta un ataúd en una lúgubre carroza fúnebre. La impresión de la muchacha es inmensa cuando descubre que el hombre de la iglesia es el mismo que aparece en sus sueños.

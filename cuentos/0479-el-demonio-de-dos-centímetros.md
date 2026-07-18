@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-el-demonio-de-dos-centimetros/5447/
 
+
+**Imagen:** 0479-el-demonio-de-dos-centímetros.webp
 ---
 
 Sinopsis:«El demonio de dos centímetros» (The Two-Centimeter Demon) es un cuento de Isaac Asimov, publicado en 1988 como parte de la colecciónAzazel. Un escritor (alter ego de Asimov) relata cómo conoció a George Bitternut, un hombre excéntrico que afirma poseer un pequeño demonio llamado Azazel. Este diminuto ser, de apenas dos centímetros, tiene poderes sobrenaturales que George utiliza, según él, para ayudar a otros. Con un tono humorístico y satírico, Asimov teje una trama donde los intentos de «mejorar» la vida de los demás mediante la magia desencadenan resultados inesperados y a menudo irónicos.

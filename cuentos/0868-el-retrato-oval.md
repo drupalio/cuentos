@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-el-retrato-oval/5469/
 
+
+**Imagen:** 0868-el-retrato-oval.jpg
 ---
 
 Sinopsis: «El retrato oval» (The Oval Portrait) es un cuento de terror gótico de Edgar Allan Poe, publicado en abril de 1842 enGraham’s Magazine. Un hombre herido y su criado se refugian en un castillo abandonado en los Apeninos. Durante la noche, el protagonista se entretiene observando las extrañas pinturas de la habitación y leyendo un libro que las describe. Un cambio en la iluminación revela un retrato que había pasado desapercibido: el de una joven de belleza inquietante. Cautivado por su realismo, el hombre queda perturbado por la intensidad de la imagen, cuya historia comienza a desvelarse en las páginas del libro.

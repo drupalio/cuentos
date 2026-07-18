@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bram-stoker-la-profecia-gitana/15573/
 
+
+**Imagen:** 0829-la-profecía-gitana.webp
 ---
 
 Sinopsis: «La profecía gitana» (A Gipsy Prophecy) es un cuento de Bram Stoker, publicado el 26 de diciembre de 1885 en el semanarioThe Spirit of the Timesy más tarde recogido enDracula’s Guest and Other Weird Stories(1914). La narración sigue a Joshua Considine, un joven abogado recién casado, que disfruta de la calma hogareña junto a su esposa Mary. Durante una visita a un campamento gitano en compañía de su amigo Gerald Burleigh, se topa con una adivina que le hace un inquietante vaticinio que altera la armonía del matrimonio. Desde ese momento, la aparente calma de la vida doméstica comienza a resquebrajarse bajo el peso de la alarmante advertencia.

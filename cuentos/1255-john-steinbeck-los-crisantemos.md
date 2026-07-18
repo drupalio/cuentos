@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/john-steinbeck-los-crisantemos/8373/
 
+
+**Imagen:** 1255-john-steinbeck-los-crisantemos.jpg
 ---
 
 La niebla alta como franela gris del invierno aislaba el valle Salinas del cielo y del resto del mundo. Se aposentaba como una tapa sobre las montañas de alrededor y convertía el gran valle en un tarro cerrado. El arado mordía hondo la superficie del terreno amplio y llano del fondo y dejaba la tierra negra brillante como el metal allí donde clavaba las rejas. En las fincas del otro lado del río Salinas, al pie de la colina, los campos de rastrojos amarillentos parecían bañados por el sol frío y pálido, pero en diciembre la luz del sol no llegaba al valle. Los espesos grupos de sauces del río ardían con hojas afiladas y amarillas.

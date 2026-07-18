@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/oscar-castro-lucero/6382/
 
+
+**Imagen:** 1108-lucero.jpg
 ---
 
 Sinopsis:Luceroes un cuento de Óscar Castro, publicado en 1940 en el libroHuellas en la tierra. Narra un día en la vida de Rubén Olmos, un baqueano curtido por la montaña y el peligro, que cabalga junto a su fiel caballo Lucero a través de la cordillera andina. Mientras avanza por senderos solitarios y pasos arriesgados, el relato explora la profunda conexión entre el hombre y el animal, la dureza del entorno y la serenidad de quien ha hecho del riesgo su hogar. Durante su trayecto, Rubén se enfrenta a una decisión inesperada que pondrá a prueba su temple.

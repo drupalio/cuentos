@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/samanta-schweblin-mujeres-desesperadas/27450/
 
+
+**Imagen:** 0218-mujeres-desesperadas.webp
 ---
 
 Sinopsis:«Mujeres desesperadas» es un cuento de Samanta Schweblin, publicado en 2002 en el libroEl núcleo del disturbio. Felicidad es una mujer recién casada que, tras detenerse en un baño al borde de la ruta, descubre que ha sido abandonada por su esposo. Aturdida y aún con el vestido de novia puesto, conoce a Nené, una mujer cínica y amarga que parece llevar mucho tiempo en ese lugar. Nené también fue abandonada por su marido, y Felicidad pronto comprenderá que no es la única mujer marcada por ese destino.

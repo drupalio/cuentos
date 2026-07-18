@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-anochecer/8866/
 
+
+**Imagen:** 0162-anochecer.jpg
 ---
 
 Sinopsis: «Anochecer» (Nightfall) es un cuento de Isaac Asimov publicado en septiembre de 1941 en la revistaAstounding Science-Fiction. En el planeta Lagash, iluminado por seis soles, la noche es un fenómeno desconocido. Sin embargo, un grupo de astrónomos ha descubierto que pronto ocurrirá un eclipse total que dejará el planeta en tinieblas. Mientras se preparan para observar el fenómeno, crecen las tensiones entre los científicos y los fanáticos religiosos, que consideran el eclipse una señal apocalíptica.

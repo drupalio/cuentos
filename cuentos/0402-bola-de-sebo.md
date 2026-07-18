@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-bola-de-sebo/12139/
 
+
+**Imagen:** 0402-bola-de-sebo.jpg
 ---
 
 Sinopsis: «Bola de Sebo» (Boule de suif) es el relato más emblemático de Guy de Maupassant, el que marcó su ascenso al estrellato literario. Publicado en 1880, narra la fuga de un variopinto grupo de personas desde Ruan, en medio de los conflictos de la guerra franco-prusiana. Entre los personajes hay tres matrimonios de la alta sociedad, dos monjas, un revolucionario confeso y una prostituta de renombre, apodada Bola de Sebo. A lo largo del viaje, Bola de Sebo se revela como una figura tímida y generosa, desinteresadamente preocupada por el bienestar de sus compañeros. Sin embargo, a cambio, enfrenta el desdén, la humillación y la hipocresía.

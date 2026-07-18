@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/miguel-de-unamuno-el-espejo-de-la-muerte/3904/
 
+
+**Imagen:** 0225-el-espejo-de-la-muerte.webp
 ---
 
 Sinopsis:«El espejo de la muerte» es un cuento del escritor español Miguel de Unamuno, publicado en noviembre de 1911 en El Imparcial. Narra la historia de Matilde, una joven aquejada por una enfermedad que consume no solo su cuerpo, sino también su espíritu. A pesar de los esfuerzos de su madre por reanimarla, Matilde padece un profundo desgano que afecta su vida diaria y su relación amorosa con José Antonio, quien se distancia progresivamente. Mientras la primavera renueva todo a su alrededor, ella se siente cada vez más desconectada de la vida y del amor. Al mirarse en el espejo, Matilde contempla su deterioro físico, lo que la sumerge en una angustiosa desesperación existencial.

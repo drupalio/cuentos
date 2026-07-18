@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/nicomedes-guzman-pan-la-bota/697/
 
+
+**Imagen:** 0683-el-pan-bajo-la-bota.jpg
 ---
 
 Sinopsis:«El pan bajo la bota», relato del escritor chileno Nicomedes Guzmán publicado enUna moneda al río y otros cuentos(1954), narra la historia de Enrique, un niño que, tras una extenuante jornada de trabajo, regresa a su hogar y es recibido por su madre. Preocupada porque su esposo aún no ha llegado a casa, la mujer le pide a Enrique que vaya a la comisaría para averiguar su paradero. Enrique corre por las oscuras y frías calles de la ciudad en busca de su padre. Durante su travesía, aprenderá una dura lección sobre la vida.

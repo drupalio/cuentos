@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hector-camarillo-nuestro-invitado/18670/
 
+
+**Imagen:** 1180-nuestro-invitado.webp
 ---
 
 Sinopsis: «Nuestro invitado» es un inquietante cuento del escritor mexicano Héctor Camarillo, inédito hasta la fecha. La historia sigue a un joven cuya vida cambia radicalmente tras la llegada de un misterioso huésped a su hogar. La presencia del visitante, con su inquietante mirada y sonrisa tensa, transforma el ambiente familiar en un espacio opresivo, cargado de tensión y temor. A medida que la oscuridad se cierne sobre el protagonista, este enfrenta un creciente sentimiento de peligro y arrepentimiento, mientras busca respuestas en la fe y el apoyo de su abuela. Una narración cargada de suspense, misterio y terror psicológico, enviada por el autor como colaboración para Lecturia.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-la-tumba/25081/
 
+
+**Imagen:** 0455-la-tumba.webp
 ---
 
 Sinopsis:«La tumba» (La tombe) es un cuento de Guy de Maupassant publicado el 29 de julio de 1884 en la revista Gil Blas. En las primeras horas de la madrugada, el guardián del cementerio de Béziers se ve obligado a salir con su escopeta cuando su perro detecta una presencia sospechosa entre las tumbas. Lo que descubre lo deja atónito: un joven ha desenterrado el cadáver de una mujer que fue sepultada el día anterior. Tras ser arrestado y llevado ante la justicia, el hombre renuncia a toda defensa técnica y decide explicar con voz serena el profundo y devastador sentimiento que lo llevó a cometer ese acto desesperado.

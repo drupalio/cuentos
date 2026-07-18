@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/neil-gaiman-se-lo-podemos-hacer-al-por-mayor/24399/
 
+
+**Imagen:** 0319-se-lo-podemos-hacer-al-por-mayor.webp
 ---
 
 Sinopsis: «Se lo podemos hacer al por mayor» (We Can Get Them for You Wholesale) es un cuento de Neil Gaiman, publicado en la revistaKnaveen 1984. Peter Pinter es un hombre común, con una vida ordenada y sin sobresaltos. Solo tiene una debilidad: su afición a comprar cosas en oferta. Cuando descubre que su prometida lo engaña, se deja llevar por los celos y empieza a buscar discretamente a alguien que pueda «eliminar» a su rival. Su búsqueda lo conduce a una empresa peculiar que ofrece servicios inusuales, con promociones tentadoras que despiertan los impulsos ahorrativos de Pinter.

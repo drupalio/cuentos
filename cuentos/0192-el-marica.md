@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/abelardo-castillo-marica/957/
 
+
+**Imagen:** 0192-el-marica.jpg
 ---
 
 Sinopsis: «El marica» es un cuento deAbelardo Castillopublicado en 1959 y considerado pionero en la denuncia de la homofobia desde la literatura argentina. En el relato, el protagonista, que responde al nombre de Abelardo, recuerda su amistad con César, un chico tímido y diferente que siempre fue objeto de burla por parte de sus compañeros. La historia evoca la lucha interna de Abelardo, quien siente una mezcla de afecto y confusión hacia César y se debate entre defenderlo o unirse a las crueles bromas del grupo. A través de su narración, el protagonista expresa sus sentimientos de culpa y vergüenza por no haber sido más valiente en la relación con su amigo.

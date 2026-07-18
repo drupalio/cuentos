@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-potro-salvaje/15817/
 
+
+**Imagen:** 0819-el-potro-salvaje.webp
 ---
 
 Sinopsis: «El potro salvaje» es un cuento de Horacio Quiroga, publicado el 26 de marzo de 1922 en el diarioLa Nacióny luego incluido en el libroEl desierto(1924). Narra la historia de un joven caballo que llega desde el desierto a la ciudad, impulsado por su deseo de correr. Con una velocidad extraordinaria y un espíritu indomable, ofrece espectáculos espontáneos, guiado solo por su instinto y su necesidad de movimiento. A pesar de la indiferencia inicial del público, el potro se entrega por completo a su pasión, convencido de que algún día será comprendido y admirado.

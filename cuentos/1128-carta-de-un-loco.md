@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-carta-de-un-loco/11544/
 
+
+**Imagen:** 1128-carta-de-un-loco.webp
 ---
 
 Sinopsis:Carta de un loco(Lettre d’un fou) es un cuento del escritor francés Guy de Maupassant, publicado el 17 de febrero de 1885 en la revista Gil Blas. El relato adopta la forma de una carta escrita por un hombre atormentado que expone, con una claridad perturbadora, su progresiva alienación mental. A través de reflexiones filosóficas y científicas, cuestiona la percepción humana y la naturaleza de la realidad. Poco a poco, describe experiencias inquietantes que lo sumergen en un estado de terror y obsesión. Su reflexión lo lleva a confrontar el umbral que separa la razón del desvarío, sumergiendo al lector en una reflexión sobre la fragilidad de la conciencia y la omnipresencia de lo invisible.

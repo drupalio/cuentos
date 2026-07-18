@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stephen-king-el-baul/16501/
 
+
+**Imagen:** 0314-el-baúl.webp
 ---
 
 Sinopsis:«El baúl» (The Crate) es un cuento de suspense y horror sobrenatural escrito por Stephen King, publicado en 1979 en la revistaGallery. La historia sigue al profesor Dexter Stanley, cuya rutina académica en la universidad se ve interrumpida por un descubrimiento perturbador. Un conserje encuentra un antiguo baúl oculto debajo de una escalera en el edificio de ciencias. Intrigado por el hallazgo, Stanley investiga el origen del misterioso objeto, que parece provenir de una remota isla del Polo Sur y podría tener más de un siglo de antigüedad. Al decidir abrirlo, libera un oscuro secreto que desencadena una serie de eventos escalofriantes.

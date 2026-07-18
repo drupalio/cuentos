@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bram-stoker-el-entierro-de-las-ratas/21311/
 
+
+**Imagen:** 1097-el-entierro-de-las-ratas.webp
 ---
 
 Sinopsis: «El entierro de las ratas» (The Burial of the Rats) es un cuento de Bram Stoker, incluido en la colecciónDracula’s Guest and Other Weird Stories, publicada en 1914. Ambientado en los arrabales de París a mediados del siglo XIX, narra la perturbadora experiencia de un joven inglés que, impulsado por la melancolía y el tedio, decide explorar los oscuros sectores donde habitan quienes viven de la basura. Fascinado por este mundo marginal, se adentra en un laberinto de desperdicios, chozas y figuras siniestras. Lo que comienza como una curiosa excursión pronto se transforma en una experiencia inquietante, marcada por el peligro y el suspenso.

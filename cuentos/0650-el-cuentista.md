@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-el-cuentista/839/
 
+
+**Imagen:** 0650-el-cuentista.jpg
 ---
 
 Sinopsis:«El cuentista» (The Story-Teller) es un cuento de Saki (H. H. Munro), publicado en 1914 dentro del libroBeasts and Super-Beasts. En un caluroso vagón de tren, una mujer intenta mantener entretenidos a sus tres inquietos sobrinos. Para ello, les narra un cuento moralista que fracasa estrepitosamente, provocando aburrimiento y desinterés en los niños. Irritado por el alboroto, un hombre que también viaja en el vagón interviene y les cuenta su propia historia: un relato ingenioso y provocador que logra captar de inmediato la atención de su improvisada audiencia.

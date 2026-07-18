@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-una-noche-de-eden/12530/
 
+
+**Imagen:** 1152-una-noche-de-edén.jpg
 ---
 
 Sinopsis: Una noche de Edén, cuento de Horacio Quiroga, es un relato fantástico que narra el encuentro entre un escritor y Eva, la primera mujer según la tradición bíblica. Una noche, tras recibir una serie de llamadas misteriosas, el protagonista entabla una conversación telefónica con una voz femenina que afirma ser Eva. Durante su conversación el escritor le pide a Eva conocerse, a lo que ella accede, pero pone una condición.

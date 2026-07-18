@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/voltaire-mozo-cuerda-tuerto/959/
 
+
+**Imagen:** 1431-voltaire-el-mozo-de-cuerda-tuerto.jpg
 ---
 
 Nuestros dos ojos no vuelven mejor nuestra condición; uno nos sirve para ver los bienes, y el otro los males de la vida. Mucha gente tiene la mala costumbre de cerrar el primero, y muy pocos cierran el segundo; por eso hay tanta gente que preferiría estar ciega a ver todo lo que ve. ¡Felices los tuertos que sólo están privados de ese mal ojo que echa a perder todo lo que mira! Mesrur[1]es un ejemplo.

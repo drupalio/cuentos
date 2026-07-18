@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ricardo-piglia-el-laucha-benitez-cantaba-boleros/5430/
 
+
+**Imagen:** 1211-ricardo-piglia-el-laucha-benítez-cantaba-boleros.jpg
 ---
 
 Nunca llegaré a saber del todo si el Vikingo intentaba contarme lo que realmente sucedió esa madrugada en el club Atenas, o se quería sacar de encima la culpa o estaba loco. La historia de cualquier modo era confusa, deshilvanada: pedazos de su vida, el desconsolado saludo de guerra de los escandinavos y un estropeado recorte deEl Gráfico, envuelto en trapos, con la finísima y luminosa cara del Vikingo mirando la cámara de frente.

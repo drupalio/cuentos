@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/adolfo-bioy-casares-la-tarde-de-un-fauno/6292/
 
+
+**Imagen:** 1302-la-tarde-de-un-fauno.jpg
 ---
 
 Yo había dicho que las diferencias de temperamento que descubre cada cual entre hombres y mujeres, en definitiva, son las que descubre cada cual en el trato con su mujer y, en definitiva, son las que hay entre cualquiera y su prójimo.

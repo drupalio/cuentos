@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/john-steinbeck-la-brevisima-historia-de-la-humanidad/28371/
 
+
+**Imagen:** 0034-la-brevísima-historia-de-la-humanidad.webp
 ---
 
 Sinopsis:«La brevísima historia de la humanidad» (The Short-Short Story of Mankind) es un cuento del escritor estadounidense John Steinbeck, publicado en abril de 1958 en la revistaPlayboy. En una fría cueva, una familia prehistórica sobrevive sin fuego, con poca comida y cada vez menos miembros. Joe regresa herido y cuenta que un grupo vecino se ha comido a su hermano Al. Pese a ello, advierte que esos forasteros dominan el uso de redes y comen mejor, por lo que propone unirse a ellos para sobrevivir. Los viejos William y Bert se oponen con firmeza: defienden su autoridad y prefieren aferrarse a sus costumbres antes que mezclarse con extranjeros.

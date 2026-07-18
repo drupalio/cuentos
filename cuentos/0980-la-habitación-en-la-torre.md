@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/e-f-benson-la-habitacion-en-la-torre/21623/
 
+
+**Imagen:** 0980-la-habitación-en-la-torre.webp
 ---
 
 Sinopsis:«La habitación en la torre» (The Room in the Tower) es un cuento de E. F. Benson, publicado en enero de 1912 enPall Mall Magazine. Relata la inquietante experiencia de un hombre acosado durante años por un sueño recurrente: la visita a una casa misteriosa, la silenciosa recepción de una familia desconocida y el anuncio implacable de que le han asignado una habitación en una antigua torre. Sin embargo, un día, lo que hasta entonces había sido solo una visión onírica comienza a manifestarse en su vida real con una precisión cada vez más desconcertante.

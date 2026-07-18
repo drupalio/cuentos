@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/patricia-highsmith-lo-que-trajo-el-gato/5488/
 
+
+**Imagen:** 0372-lo-que-trajo-el-gato.webp
 ---
 
 Sinopsis: «Lo que trajo el gato» (Something the Cat Dragged In) es un relato de intriga y misterio de Patricia Highsmith, incluido en la colecciónThe Black House(1981). Michael y Gladys Herbert disfrutan de una apacible tarde junto a sus invitados en su casa de la campiña inglesa, cuando su gato, Portland Bill, irrumpe con un macabro hallazgo: los restos de un cadáver. Este descubrimiento trastoca la tranquilidad del grupo, que se ve obligado a enfrentar un dilema moral sobre qué hacer con los restos: ¿deberían informar a la policía o manejar la situación por su cuenta? La historia, cargada de suspense y humor negro, explora las reacciones humanas ante lo insólito y los dilemas morales que surgen en situaciones inesperadas.

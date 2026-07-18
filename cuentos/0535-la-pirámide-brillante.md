@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-machen-la-piramide-brillante-2/25459/
 
+
+**Imagen:** 0535-la-pirámide-brillante.webp
 ---
 
 Sinopsis:«La pirámide brillante» (The Shining Pyramid) es un cuento de Arthur Machen, publicado en mayo de 1895 enThe Unknown World. Mr. Vaughan visita en Londres a su amigo Dyson para pedirle ayuda con un inquietante misterio: cerca de su casa en el campo han aparecido extraños dibujos hechos con puntas de flecha prehistóricas, que cambian cada noche formando figuras enigmáticas. Vaughan teme que sean señales de ladrones interesados en su valiosa colección de plata antigua. Dyson, intrigado por estos símbolos inexplicables, decide acompañar a Vaughan a su remota propiedad en las colinas galesas para investigar estos fenómenos y descubrir quién o qué los está creando.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/manuel-rivas-la-lengua-de-las-mariposas/25942/
 
+
+**Imagen:** 0478-la-lengua-de-las-mariposas.webp
 ---
 
 Sinopsis:«La lengua de las mariposas» (A lingua das bolboretas) es un emotivo cuento del escritor gallego Manuel Rivas, publicado en 1995 en la colección¿Qué me queres, amor?En un pueblo de la España rural en los años treinta, Pardal es un niño aterrorizado ante su ingreso a la escuela, que imagina como un lugar de castigo y sufrimiento. El primer día, una humillante situación parece confirmar sus peores temores. Sin embargo, don Gregorio, su maestro de rostro bondadoso y métodos suaves, transforma gradualmente la experiencia del niño. A través de lecciones fascinantes sobre el mundo y la naturaleza, Pardal pasa del miedo a la curiosidad, descubriendo el placer del aprendizaje y el conocimiento.

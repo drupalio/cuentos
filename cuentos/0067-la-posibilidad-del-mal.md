@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/shirley-jackson-la-posibilidad-del-mal/28229/
 
+
+**Imagen:** 0067-la-posibilidad-del-mal.webp
 ---
 
 Sinopsis:«La posibilidad del mal» («The Possibility of Evil») es un cuento de la escritora estadounidense Shirley Jackson, publicado el 18 de diciembre de 1965 enThe Saturday Evening Post. Miss Adela Strangeworth, una respetable anciana de setenta y un años, vive en un pequeño pueblo donde todos la conocen por su casa impecable, sus modales delicados y sus célebres rosales. Convencida de que debe proteger la pureza moral de la comunidad, observa con atención a sus vecinos, siempre alerta ante cualquier señal de inquietud o desorden. Pero detrás de su apariencia amable, Miss Strangeworth cultiva una costumbre secreta que está envenenando la vida del pueblo.

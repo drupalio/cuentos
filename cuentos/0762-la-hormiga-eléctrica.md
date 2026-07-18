@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-la-hormiga-electrica/5351/
 
+
+**Imagen:** 0762-la-hormiga-eléctrica.webp
 ---
 
 Sinopsis: «La hormiga eléctrica» (The Electric Ant) es un relato de ciencia ficción escrito por Philip K. Dick, publicado enThe Magazine of Fantasy and Science Fictionen octubre de 1969. La historia sigue a Garson Poole, un exitoso empresario que despierta en un hospital tras un accidente con su nave. Para su sorpresa, Poole descubre que no es humano, sino una «hormiga eléctrica», un androide orgánico que había vivido convencido de ser una persona real. Este impactante hallazgo lleva a Poole a cuestionar no solo la naturaleza de su existencia, sino también la realidad que percibe a su alrededor.

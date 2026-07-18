@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ruben-dario-el-rubi/28217/
 
+
+**Imagen:** 0070-el-rubí.webp
 ---
 
 Sinopsis:«El rubí» es un cuento del escritor nicaragüense Rubén Darío, publicado el 9 de junio de 1888 en el diarioLa Libertad Electorale incluido ese mismo año en el libroAzul…. Un gnomo, indignado al enterarse de que un químico francés ha logrado fabricar rubíes artificiales, convoca a los suyos en su deslumbrante morada subterránea, donde Puck, el travieso espíritu, les presenta una de aquellas piedras falsas. Ante el escándalo general, el gnomo más anciano toma la palabra y promete revelar el verdadero origen del rubí, nacido de una historia de deseo, encierro y dolor bajo la superficie de la Tierra.

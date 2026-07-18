@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-axolotl/2551/
 
+
+**Imagen:** 0441-axolotl.webp
 ---
 
 Sinopsis:«Axolotl» es un cuento de Julio Cortázar, publicado en 1956 en la colecciónFinal del juego. Relata la obsesión de un hombre con los axolotl —unos anfibios originarios de México también conocidos como ajolotes—, que observa día tras día en un acuario de París. Fascinado por su quietud y sus ojos, el protagonista siente una conexión profunda con estas criaturas, percibiendo en ellas una presencia misteriosa y una humanidad latente.

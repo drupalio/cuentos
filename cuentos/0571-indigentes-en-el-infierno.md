@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/orson-scott-card-indigentes-en-el-infierno/25498/
 
+
+**Imagen:** 0571-indigentes-en-el-infierno.webp
 ---
 
 Sinopsis:«Indigentes en el infierno» (Homeless in Hell) es un cuento de Orson Scott Card, publicado en 2001 en la web oficial del autor y luego recopilado en la antologíaKeeper of Dreams(2008). Un hombre fallecido en un accidente descubre que ni el cielo ni el infierno son como esperaba. Rechazado por el cielo, se encuentra con que el verdadero infierno es un club exclusivo reservado solo para los grandes criminales de la historia. Los pecadores comunes deben conformarse con vagar eternamente por las calles de la Tierra, en un plano invisible para los vivos, condenados a una existencia sin hogar ni propósito. Cuando parece resignado a cumplir su condena en este limbo, conoce a un famoso personaje que lo recluta para una peculiar misión.

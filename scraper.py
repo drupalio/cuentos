@@ -89,7 +89,12 @@ def scrape_story(url):
         else:
             story_text = ""
 
-        return {"title": title, "author": author, "url": url, "text": story_text}
+        img_url = None
+        og_image = soup.find("meta", property="og:image")
+        if og_image:
+            img_url = og_image.get("content")
+
+        return {"title": title, "author": author, "url": url, "text": story_text, "image_url": img_url}
     except Exception as e:
         return None
 
@@ -98,10 +103,38 @@ def sanitize_filename(name):
     name = re.sub(r'\s+', '-', name)
     return name[:100].lower()
 
+def get_image_ext(url):
+    ext = os.path.splitext(urlparse(url).path)[1].lower()
+    return ext if ext in (".jpg", ".jpeg", ".png", ".gif", ".webp") else ".jpg"
+
+def download_image(url, filepath):
+    try:
+        resp = session.get(url, timeout=30)
+        resp.raise_for_status()
+        with open(filepath, "wb") as f:
+            f.write(resp.content)
+        return True
+    except Exception:
+        return False
+
 def save_story(story, index):
-    filename = f"{index:04d}-{sanitize_filename(story['title'])}.md"
+    basename = f"{index:04d}-{sanitize_filename(story['title'])}"
+    filename = f"{basename}.md"
     filepath = os.path.join(OUTPUT_DIR, filename)
-    md = f"# {story['title']}\n\n**Autor:** {story['author']}\n\n**Fuente:** {story['url']}\n\n---\n\n{story['text']}"
+
+    img_filename = None
+    if story.get("image_url"):
+        img_ext = get_image_ext(story["image_url"])
+        img_filename = f"{basename}{img_ext}"
+        img_path = os.path.join(OUTPUT_DIR, img_filename)
+        if not download_image(story["image_url"], img_path):
+            img_filename = None
+
+    md = f"# {story['title']}\n\n**Autor:** {story['author']}\n\n**Fuente:** {story['url']}"
+    if img_filename:
+        md += f"\n\n**Imagen:** {img_filename}"
+    md += f"\n\n---\n\n{story['text']}"
+
     with open(filepath, "w", encoding="utf-8") as f:
         f.write(md)
     return filepath

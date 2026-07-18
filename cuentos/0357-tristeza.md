@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-tristeza/4194/
 
+
+**Imagen:** 0357-tristeza.jpg
 ---
 
 Sinopsis:«Tristeza» (Tоска) es un cuento de Antón Chéjov, publicado el 27 de enero de 1886 enLa Gaceta de San Petersburgo. Narra una noche invernal en la vida de Iona Potápov, un cochero envejecido y silencioso que arrastra una pena profunda tras la reciente muerte de su hijo. Mientras recorre las calles nevadas en busca de pasajeros, intenta hablar con quienes suben a su trineo, pero nadie parece dispuesto a escucharlo. En medio del bullicio indiferente de la ciudad, Iona se enfrenta a su soledad, buscando una voz que acoja su dolor y le devuelva algo de consuelo.

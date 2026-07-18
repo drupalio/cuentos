@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/neil-gaiman-nieve-cristal-manzanas/14866/
 
+
+**Imagen:** 0298-nieve-cristal-manzanas.jpg
 ---
 
 Sinopsis:«Nieve, cristal, manzanas» (Snow, Glass, Apples) es un inquietante relato publicado en 1994, en el que Neil Gaiman reinterpreta el clásico de Blancanieves desde una perspectiva gótica y siniestra. La narradora es una joven de origen humilde que, tras ser elegida por el rey como esposa, se convierte en reina. En el castillo conoce a la hija del monarca, una niña de apariencia angelical pero comportamiento perturbador. A medida que transcurre el tiempo, la reina comienza a sospechar que la princesa oculta una naturaleza peligrosa, y toma una decisión drástica para proteger su reino.

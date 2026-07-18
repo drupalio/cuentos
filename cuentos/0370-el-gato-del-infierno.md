@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stephen-king-el-gato-del-infierno/16983/
 
+
+**Imagen:** 0370-el-gato-del-infierno.webp
 ---
 
 Sinopsis: «El gato del infierno» (The Cat from Hell) es un perturbador relato de Stephen King, publicado en la revista Cavalier en junio de 1977. La historia sigue a Halston, un experimentado asesino a sueldo, contratado por Drogan, un anciano adinerado con un oscuro pasado en la industria farmacéutica. Su insólito encargo: matar a un gato que, según Drogan, ha sido responsable de la muerte de tres personas cercanas y amenaza con acabar con él. Aunque escéptico, Halston acepta el trabajo atraído por la recompensa, sin imaginar que el felino es mucho más peligroso y extraño de lo que parece.

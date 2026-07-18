@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/charles-dickens-fantasmas-de-navidad/17598/
 
+
+**Imagen:** 0544-fantasmas-de-navidad.webp
 ---
 
 Sinopsis:«Fantasmas de Navidad»(Christmas Ghosts) es una narración de Charles Dickens publicada enA Christmas Tree(1850), construida a partir de una serie de microrrelatos de atmósfera invernal y misteriosa, en el que un narrador ya fallecido evoca historias navideñas de fantasmas. El relato principal transporta al lector a una vieja mansión donde un hombre, tras una velada festiva, se enfrenta a fenómenos sobrenaturales cuando en su dormitorio irrumpe el espectro de una joven para sentarse junto al fuego. A partir de esta inquietante escena, Dickens entrelaza relatos que unen lo nostálgico con lo inquietante, reflejando el encanto de las historias navideñas en la Inglaterra victoriana.

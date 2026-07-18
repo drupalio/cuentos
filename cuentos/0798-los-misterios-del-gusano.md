@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stephen-king-los-misterios-del-gusano/16213/
 
+
+**Imagen:** 0798-los-misterios-del-gusano.webp
 ---
 
 Sinopsis: «Los misterios del gusano» (Jerusalem’s Lot) es un relato deStephen Kingpublicado en 1978 en el libroNight Shift. A través de cartas y entradas de diario, se narra la inquietante experiencia de Charles Boone, un hombre que se muda a la mansión Chapelwaite, que ha heredado de un primo fallecido. La casa, situada en un promontorio aislado de Maine, está envuelta en rumores y supersticiones. Acompañado por su leal asistente Calvin McCann, Charles empieza a notar sucesos extraños y perturbadores en la mansión y sus alrededores. Al investigar el oscuro pasado de su familia, descubre el pueblo abandonado de Jerusalem’s Lot y un misterioso libro titulado «De Vermis Mysteriis». La atmósfera ominosa de la mansión y del pueblo sugiere la presencia de algo malvado y ancestral que se oculta en las sombras, amenazando con despertar.

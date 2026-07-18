@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ernest-hemingway-el-fin-de-algo/5426/
 
+
+**Imagen:** 1319-ernest-hemingway-el-fin-de-algo.jpg
 ---
 
 Antes, Hortons Bay era un pueblo de madereros y leñadores. Ninguno de sus habitantes se salvaba del ruido de las grandes máquinas de un aserradero que había junto al lago. Pero un año se acabaron los troncos para aserrar. Entonces, las goletas de los madereros anclaron en la bahía y cargaron y se llevaron toda la madera amontonada en el corral. Desmantelaron el gran aserradero de toda la maquinaria transportable, que los mismos hombres que habían trabajado allí embarcaron en una de las goletas. La embarcación se alejó por el lago llevando las dos grandes sierras, el aparato que arrojaba los troncos contra las sierras circulares giratorias y todas las ruedas, correas y herramientas que cabían en ese enorme cargamento de madera. La bodega abierta estaba tapada con lona y de un modo hermético. Una vez henchidas las velas, el barco empezó a navegar por el lago, llevándose todo lo que había hecho del aserradero, un aserradero, y de Hortons Bay, un pueblo.

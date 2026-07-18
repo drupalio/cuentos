@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/samanta-schweblin-mariposas/24496/
 
+
+**Imagen:** 0332-mariposas.webp
 ---
 
 Sinopsis:«Mariposas» es un cuento corto de Samanta Schweblin, publicado en 2008 en la antologíaLa furia de las pestes. Un grupo de padres aguarda la salida de sus hijos frente a la escuela. Calderón, uno de ellos, conversa animadamente con otro mientras observa el portón cerrado. En medio de la espera, con la intención de sorprender a su hija, atrapa una mariposa que se ha posado en su brazo. Pero al apretarla demasiado, la daña sin querer. Desde entonces, algo fuera de lo común comienza a insinuarse en el ambiente.

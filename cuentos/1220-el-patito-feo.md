@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hans-christian-andersen-el-patito-feo/6339/
 
+
+**Imagen:** 1220-el-patito-feo.jpg
 ---
 
 «El patito feo», cuento corto del escritor danés danés Hans Christian Andersen, narra la historia de un patito que, al nacer, es notablemente diferente de sus hermanos. Desde el inicio, enfrenta dificultades y es objeto de burla y rechazo por parte de su familia y de los otros animales debido a su apariencia inusual. Sintiéndose marginado y desplazado, el patito emprende un viaje solitario, enfrentándose a diversas situaciones y desafíos en busca de un lugar donde pueda sentirse aceptado y valorado. A lo largo de su viaje, el patito experimenta tanto momentos difíciles como descubrimientos significativos sobre sí mismo y el mundo que lo rodea, llevándolo a un sorprendente desenlace. La historia es un emotivo relato sobre la búsqueda de identidad, la superación del rechazo y la importancia de la autoaceptación. Entre los cuentos infantiles «El patito feo» destaca como uno de los más clásicos. Desde su publicación ha conmovido a numerosas generaciones de lectores en todo el mundo.

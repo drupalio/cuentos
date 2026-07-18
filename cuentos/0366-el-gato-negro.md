@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-gato-negro/1129/
 
+
+**Imagen:** 0366-el-gato-negro.webp
 ---
 
 Sinopsis: «El gato negro» (The Black Cat) es un cuento de terror psicológico de Edgar Allan Poe, publicado el 19 de agosto de 1843 enThe Saturday Evening Post. Narrado en primera persona, relata la historia de un hombre que, desde su infancia, ha sentido un profundo afecto por los animales, en especial por su gato Pluto (Plutón). Sin embargo, el abuso del alcohol transforma gradualmente su carácter, llevándolo a la violencia y la perversidad. A medida que su comportamiento se degrada, la relación con el animal se torna sombría y obsesiva, a la vez que el protagonista comienza a revelar los abismos más oscuros de su mente atormentada.

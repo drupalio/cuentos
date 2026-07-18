@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roberto-fontanarrosa-la-observacion-de-los-pajaros/6400/
 
+
+**Imagen:** 1281-la-observación-de-los-pájaros.jpg
 ---
 
 Uno abre la puerta y sale a la calle con un infierno escarbándole las entrañas. Afuera, la siesta del domingo transcurre silenciosa y quieta, como si no pasara nada. Y no pasa nada, hermano, no pasa nada. Si después de todo, es apenas un partido más. Un partido más entre los miles de partidos que han jugado los clásicos equipos rosarinos. ¿O acaso uno piensa o alguien se acuerda de cómo salieron en el primer partido del año ’75? ¿O en el segundo? Ni uno mismo lo sabe. Ni se acuerda. Son emociones momentáneas, pasajeras. Intensas pero fugaces. Un dolor profundo, una alegría enceguecedora pero que al día siguiente ya se va, desaparece sin dejar huellas físicas visibles, como la varicela. Seguro que no hay casi nadie en la cancha. Casi vacío el Parque.

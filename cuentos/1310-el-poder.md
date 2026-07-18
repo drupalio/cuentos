@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fredric-brown-el-poder/5959/
 
+
+**Imagen:** 1310-el-poder.jpg
 ---
 
 El Poder llegó repentinamente a Larry Snell, salido de la nada e inesperadamente. Cómo y por qué lo tuvo, nunca lo supo. Vino a él; eso es todo.

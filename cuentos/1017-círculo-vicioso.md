@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-circulo-vicioso/4060/
 
+
+**Imagen:** 1017-círculo-vicioso.webp
 ---
 
 Sinopsis: «Círculo vicioso» (Runaround) es un cuento de Isaac Asimov, publicado en marzo de 1942 en la revistaAstounding Science-Fiction, y más tarde recogido enI, Robot(1950). Ambientado en Mercurio, narra una misión crítica emprendida por los ingenieros Powell y Donovan, quienes enfrentan una emergencia cuando Speedy, un robot avanzado enviado a recolectar selenio, no regresa. Atrapados en un planeta hostil y dependientes del éxito de la misión para sobrevivir, los protagonistas deberán aplicar sus conocimientos sobre las leyes de la robótica para comprender el extraño comportamiento del robot y hallar una solución antes de que sea demasiado tarde.

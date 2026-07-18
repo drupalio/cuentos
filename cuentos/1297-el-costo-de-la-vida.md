@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/carlos-fuentes-el-costo-de-la-vida/6364/
 
+
+**Imagen:** 1297-el-costo-de-la-vida.jpg
 ---
 
 A Fernando Benitez

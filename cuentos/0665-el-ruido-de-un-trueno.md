@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-el-ruido-de-un-trueno/2415/
 
+
+**Imagen:** 0665-el-ruido-de-un-trueno.webp
 ---
 
 Sinopsis:«El ruido de un trueno»(A Sound of Thunder) es un cuento de Ray Bradbury, publicado el 28 de junio de 1952 en la revistaCollier’sy recogido luego en el libroThe Golden Apples of the Sun(1953). En un futuro donde los viajes temporales son posibles, una empresa organiza safaris al pasado. Eckels, un cliente entusiasmado, paga una suma considerable para unirse a una expedición que lo llevará millones de años atrás, con el fin de cazar un Tyrannosaurus rex. Antes de partir, se le advierte con firmeza: debe seguir estrictamente las instrucciones; cualquier mínimo error puede tener consecuencias irreversibles.

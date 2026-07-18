@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-una-estatua-para-papa/5495/
 
+
+**Imagen:** 0582-una-estatua-para-papá.webp
 ---
 
 Sinopsis:«Una estatua para papá» (A Statue for Father) es un cuento de ciencia ficción de Isaac Asimov publicado enSatellite Science Fictionen febrero de 1959. A través de la voz del hijo de un científico visionario, relata la fascinante historia de un descubrimiento accidental que revolucionó a la humanidad. El padre, un físico obstinado y apasionado por los viajes en el tiempo, trabaja incansablemente en su investigación, enfrentándose a burlas y al desinterés de la comunidad científica. Aunque los cronotúneles no funcionan como esperaba, un golpe de suerte trae consigo algo extraordinario: un puente entre el pasado y el presente. Este hallazgo, que inicialmente parece un modesto paso adelante, termina por cambiar la historia de formas inesperadas.

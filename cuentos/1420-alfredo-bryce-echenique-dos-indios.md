@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alfredo-bryce-echenique-dos-indios/1262/
 
+
+**Imagen:** 1420-alfredo-bryce-echenique-dos-indios.jpg
 ---
 
 Hacía cuatro años que Manolo había salido de Lima, su ciudad natal. Pasó primero un año en Roma, luego, otro en Madrid, un tercero en París y finalmente había regresado a Roma. ¿Por qué? Le gustaban esas hermosas artistas en las películas italianas, pero desde que llegó no ha ido al cine. Una tía vino a radicarse hace años, pero nunca la ha visitado y ya perdió la dirección. Le gustaban esas revistas italianas con muchas fotografías en colores; o porque cuando abandonó Roma la primera vez, hacía calor como para quedarse sentado en un Café, y le daba tanta flojera tomar el tren. No sabía explicarlo. No hubiera podido explicarlo, pero en todo caso, no tenía importancia.

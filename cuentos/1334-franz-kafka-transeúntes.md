@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/franz-kafka-transeuntes/5135/
 
+
+**Imagen:** 1334-franz-kafka-transeúntes.jpg
 ---
 
 CUANDO uno sale a caminar de noche por una calle, y un hombre, visible desde muy lejos —porque la calle es empinada y hay luna llena—, corre hacia nosotros, no le detenemos, ni siquiera si es débil y andrajoso, ni siquiera si alguien corre detrás de él gritando; le dejamos pasar.

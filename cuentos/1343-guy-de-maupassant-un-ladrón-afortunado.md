@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-un-ladron-afortunado/4472/
 
+
+**Imagen:** 1343-guy-de-maupassant-un-ladrón-afortunado.jpg
 ---
 
 ESTABAN sentados en el comedor de un hotel de Barbizón.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/flannery-oconnor-un-hombre-bueno-es-dificil-de-encontrar/2274/
 
+
+**Imagen:** 0857-un-hombre-bueno-es-difícil-de-encontrar.webp
 ---
 
 Sinopsis: «Un hombre bueno es difícil de encontrar» (A Good Man Is Hard to Find) es un cuento de Flannery O’Connor, publicado en 1953. Una familia del sur de Estados Unidos emprende un viaje de vacaciones hacia Florida. Durante el trayecto, la abuela entretiene a sus nietos con historias de su juventud. Cautivados, los niños insisten en desviarse del camino para visitar una antigua plantación que la abuela menciona en sus relatos. A pesar de la resistencia del padre, él finalmente cede ante la presión familiar y toma un camino rural indicado por su madre. Esta decisión aparentemente inocua llevará al grupo a un inesperado encuentro con el destino.

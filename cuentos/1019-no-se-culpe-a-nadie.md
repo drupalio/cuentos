@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-no-se-culpe-a-nadie/6348/
 
+
+**Imagen:** 1019-no-se-culpe-a-nadie.webp
 ---
 
 Sinopsis:«No se culpe a nadie» es un cuento de Julio Cortázar, publicado en 1964 en el libroFinal del juego. Narra la historia de un hombre que, apurado por una cita con su esposa, intenta ponerse un pulóver azul. La tarea, aparentemente trivial, se convierte en una experiencia cada vez más frustrante y angustiosa, mientras lucha con la prenda en una habitación en penumbra. El relato, narrado con precisión minuciosa y una tensión creciente, transforma un acto cotidiano en una pesadilla absurda, en la que la ansiedad se apodera del protagonista a medida que pierde el control sobre su cuerpo y el entorno.

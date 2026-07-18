@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-amargura-tres-sonambulos/620/
 
+
+**Imagen:** 0163-amargura-para-tres-sonámbulos.jpg
 ---
 
 Sinopsis:«Amargura para tres sonámbulos» es un cuento de Gabriel García Márquez, publicado en 1949 en el periódicoEl Espectadore incluido en el libroOjos de perro azul(1974). Narra la historia de una misteriosa mujer mayor que, aquejada por un profundo dolor, se abandona en un rincón de su casa, donde comienza a desvanecerse y a perder poco a poco contacto con la realidad. Sus tres compañeros de vivienda asisten, impotentes, a su progresivo deterioro físico y mental, incapaces de intervenir ni de comprender del todo lo que ocurre. A través de escenas breves y recuerdos fragmentarios, el relato muestra cómo esa presencia inmóvil va alterando la vida de la casa, hasta convertir la convivencia en una espera cargada de desasosiego dentro de un entorno que parece suspendido en el tiempo.

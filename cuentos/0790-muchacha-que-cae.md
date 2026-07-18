@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/dino-buzzati-muchacha-que-cae/3055/
 
+
+**Imagen:** 0790-muchacha-que-cae.webp
 ---
 
 Sinopsis: «Muchacha que cae» (Ragazza che precipita) es un cuento surrealista y alegórico del escritor italiano Dino Buzzati, publicado originalmente en elCorriere della Serael 16 de marzo de 1963. La historia sigue a Marta, una joven de 19 años que se lanza desde lo alto de un rascacielos en un vuelo interminable. Mientras cae, Marta se cruza con varios personajes que la observan con curiosidad y hasta interactúan con ella, halagándola y ofreciéndole distracciones. Al principio, Marta se siente fascinante y deseada, pero pronto se da cuenta de que no es la única en caer y que el interés que despertó en los demás se desvanece gradualmente, dejándola cada vez más sola en su descenso.

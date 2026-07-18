@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/almudena-grandes-mozart-y-brahms-y-corelli/23470/
 
+
+**Imagen:** 0845-mozart-y-brahms-y-corelli.webp
 ---
 
 Sinopsis: «Mozart, y Brahms, y Corelli» es un cuento de Almudena Grandes, publicado en 2005 en el libroEstaciones de paso. Narra la historia de Tomás, un tímido adolescente madrileño de dieciséis años que estudia violín. Junto a sus amigos comienza a frecuentar la Casa de Campo, donde conoce a Fernanda, una mujer deslumbrante que ejerce la prostitución y cuya presencia despierta en él una intensa fascinación. A partir de ese encuentro, Tomás vivirá una experiencia estética profunda que transformará su forma de comprender la música y su propia identidad.

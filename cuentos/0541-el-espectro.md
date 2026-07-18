@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-espectro/4234/
 
+
+**Imagen:** 0541-el-espectro.webp
 ---
 
 Sinopsis:«El espectro» es un cuento fantástico de Horacio Quiroga publicado enEl Hogaren julio de 1921. La historia sigue a Guillermo Grant, amigo íntimo del famoso actor de cine mudo Duncan Wyoming. Cuando Duncan le presenta a su esposa Enid, una bellísima actriz, Guillermo queda instantáneamente cautivado por ella, pero su lealtad inquebrantable hacia su amigo le impide expresar sus sentimientos. Tras la prematura muerte de Duncan, Guillermo y Enid comienzan una relación apasionada. Sin embargo, el estreno póstumo de «El páramo», la última película de Duncan, desencadena una serie de acontecimientos sobrenaturales que ponen a prueba su amor y su cordura.

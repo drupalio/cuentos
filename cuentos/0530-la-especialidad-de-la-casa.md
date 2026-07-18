@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stanley-ellin-la-especialidad-de-la-casa/25723/
 
+
+**Imagen:** 0530-la-especialidad-de-la-casa.webp
 ---
 
 Sinopsis:«La especialidad de la casa» (The Specialty of the House) es un cuento de Stanley Ellin, publicado en mayo de 1948 enEllery Queen’s Mystery Magazine. Costain, un empleado de oficina, es invitado por su jefe, Laffler, a cenar en «Sbirro», un misterioso restaurante subterráneo. El establecimiento, iluminado con faroles de gas y decorado con mobiliario antiguo, impone normas estrictas: no sirve alcohol, prohíbe el tabaco, ofrece un menú único sin opción de elección y solo admite clientela masculina. Laffler, cliente devoto desde hace una década, promete a Costain una experiencia culinaria excepcional, reservada únicamente para quienes saben apreciar la verdadera esencia de la buena mesa.

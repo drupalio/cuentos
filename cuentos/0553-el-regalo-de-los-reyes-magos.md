@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/o-henry-el-regalo-de-los-reyes-magos/4590/
 
+
+**Imagen:** 0553-el-regalo-de-los-reyes-magos.webp
 ---
 
 Sinopsis:«El regalo de los Reyes Magos» (The Gift of the Magi) es un cuento de O. Henry publicado enThe New York Sunday Worldel 10 de diciembre de 1905. Cuenta la historia de Delia y Jim, una pareja joven y humilde que vive en un modesto apartamento. En vísperas de Navidad y con apenas un dólar y ochenta y siete centavos ahorrados tras grandes esfuerzos, Delia se desespera por comprar un regalo digno para su marido. Movida por el amor, toma una decisión que supone un gran sacrificio personal. La emotiva y sencilla narración explora el valor del amor desinteresado y los sacrificios que se hacen por aquellos a quienes más se ama.

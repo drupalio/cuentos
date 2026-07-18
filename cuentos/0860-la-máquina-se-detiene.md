@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/e-m-forster-la-maquina-se-detiene/23440/
 
+
+**Imagen:** 0860-la-máquina-se-detiene.webp
 ---
 
 Sinopsis:«La máquina se detiene»(The Machine Stops) es un cuento de ciencia ficción escrito por E. M. Forster, publicado en 1909 en la revistaThe Oxford and Cambridge Review. La historia transcurre en un futuro distópico, donde la Tierra ha quedado devastada y la humanidad vive bajo tierra, en completo aislamiento. Las personas habitan celdas individuales, sin contacto físico, y se comunican exclusivamente por videoconferencia. Todo lo provee una inmensa Máquina, que regula cada aspecto de la vida. Vashti, ferviente defensora de este sistema, recibe un mensaje de su hijo Kuno: ha transgredido las normas y necesita verla en persona para contarle algo que no puede transmitir por medios mecánicos.

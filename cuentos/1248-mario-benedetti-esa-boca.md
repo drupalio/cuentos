@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-esa-boca/8229/
 
+
+**Imagen:** 1248-mario-benedetti-esa-boca.jpg
 ---
 
 Su entusiasmo por el circo se venía arrastrando desde tiempo atrás. Dos meses, quizá. Pero cuando siete años son toda la vida y aún se ve el mundo de los mayores como una muchedumbre a través de un vidrio esmerilado, entonces dos meses representan un largo, insondable proceso. Sus hermanos mayores habían ido dos o tres veces e imitaban minuciosamente las graciosas desgracias de los payasos y las contorsiones y equilibrios de los forzudos. También los compañeros de la escuela lo habían visto y se reían con grandes aspavientos al recordar este golpe o aquella pirueta. Sólo que Carlos no sabía que eran exageraciones destinadas a él, a él que no iba al circo porque el padre entendía que era muy impresionable y podía conmoverse demasiado ante el riesgo inútil que corrían los trapecistas. Sin embargo, Carlos sentía algo parecido a un dolor en el pecho siempre que pensaba en los payasos. Cada día se le iba siendo más difícil soportar su curiosidad.

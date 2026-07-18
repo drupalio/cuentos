@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gustavo-adolfo-becquer-la-ajorca-de-oro/6149/
 
+
+**Imagen:** 0464-la-ajorca-de-oro.jpg
 ---
 
 Sinopsis:«La ajorca de oro» es un relato de Gustavo Adolfo Bécquer, publicado el 28 de marzo de 1861 enEl Contemporáneo. En la antigua y misteriosa ciudad de Toledo, Pedro Alfonso de Orellana se enamora apasionadamente de María Antúnez, una mujer caprichosa de belleza hipnótica. Dominada por un deseo obsesivo, ella confiesa a Pedro un anhelo imposible: poseer la ajorca de oro que adorna el brazo de la Virgen del Sagrario en la catedral. Consumido por su amor y dispuesto a todo por complacerla, Pedro desafía sus miedos y supersticiones y se interna de noche en el majestuoso y aterrador templo para robar la valiosa joya.

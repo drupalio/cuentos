@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fredric-brown-algo-verde/24935/
 
+
+**Imagen:** 0404-algo-verde.webp
 ---
 
 Sinopsis: «Algo verde» (Something Green) es un cuento de Fredric Brown, publicado en 1951 dentro de la colecciónSpace on My Hands. Narra la historia de McGarry, un explorador espacial que lleva años varado en Kruger III, un planeta inhóspito dominado por tonos rojos y violetas. Sobrevive recorriendo selvas hostiles, armado con una pistola solar y acompañado por Dorothy, una pequeña criatura que reposa en su hombro y le sirve de compañía. Aislado, aferrado al recuerdo de la Tierra y del color verde que allí abundaba, McGarry sueña con hallar piezas para reparar su nave y regresar al único mundo que considera hogar.

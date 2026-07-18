@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/carlos-fuentes-la-muneca-reina/13814/
 
+
+**Imagen:** 0113-la-muñeca-reina.jpg
 ---
 
 Sinopsis: «La muñeca reina» es un cuento del escritor mexicano Carlos Fuentes, publicado en 1964 en la colecciónCantar de ciegos. Mientras hace orden en su biblioteca, un hombre que descubre dentro de un libro una tarjeta escrita por una niña en la que dibujaba un mapa con su dirección. Este hallazgo hace que evoque a Amilamia, una niña que conoció hace varios años, cuando iba al parque a leer. Sorprendido por la nostalgia, el protagonista decide volver al parque y seguir las indicaciones del mapa para encontrar la casa de su vieja amiga.

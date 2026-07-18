@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-una-bofetada/4132/
 
+
+**Imagen:** 0581-una-bofetada.webp
 ---
 
 Sinopsis:«Una bofetada» es un cuento de Horacio Quiroga, publicado enFray Mochoel 28 de enero de 1916 y recogido luego en la colecciónEl salvaje(1920), que narra una historia de violencia y venganza en los obrajes del Alto Paraná. Acosta, un inescrupuloso mayordomo, trafica caña entre los peones del vaporMeteoro, provocando un caos que se reprime con brutalidad. Cuando el orden se restablece, Korner, el despiadado patrón, incapaz de responsabilizar a Acosta, vuelca su ira sobre un mensú elegido como chivo expiatorio: lo ata al mástil y lo abofetea ante los demás, gesto que inaugura un conflicto latente que se prolongará durante años.

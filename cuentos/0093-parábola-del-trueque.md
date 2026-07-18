@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-jose-arreola-parabola-del-trueque/816/
 
+
+**Imagen:** 0093-parábola-del-trueque.jpg
 ---
 
 Sinopsis: «Parábola del trueque» es un cuento de Juan José Arreola, publicado en 1952 dentro del libroConfabulario. Un misterioso mercader llega al pueblo y lo recorre ofreciendo un insólito intercambio: esposas viejas por nuevas. La oferta, seductora y desconcertante, despierta un frenesí colectivo entre los hombres, que se lanzan a participar ansiosamente en el trueque. En medio del tumulto, el protagonista observa con inquietud el efecto de esta extraña transacción sobre su entorno y sobre su propia vida con Sofía, su esposa, que permanece ajena —aunque no del todo indiferente— a la conmoción general.

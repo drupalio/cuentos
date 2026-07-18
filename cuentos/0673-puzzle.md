@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-puzzle/722/
 
+
+**Imagen:** 0673-puzzle.webp
 ---
 
 Sinopsis:«Puzzle» es un cuento de Julio Cortázar escrito en 1938 y publicado por primera vez en 1994. Durante la noche, un hombre entra sigilosamente en una habitación, se acerca a la cama donde alguien duerme y, con un gesto preciso, hunde un cuchillo en el cuerpo. A partir de entonces, la tensión se instala en el departamento ante la desconcertante desaparición de Ralph. La policía investiga sin hallar pistas, mientras Rebeca, impasible, repite con inquietante firmeza que Ralph regresará.

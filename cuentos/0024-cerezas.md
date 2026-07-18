@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/osamu-dazai-cerezas/27752/
 
+
+**Imagen:** 0024-cerezas.webp
 ---
 
 Sinopsis:«Cerezas» (Ōtō) es un cuento autobiográfico del escritor japonés Osamu Dazai, publicado en mayo de 1948 en la revistaSekai. Un padre de familia, agobiado por sus responsabilidades e incapaz de ocuparse de las tareas domésticas, vive con su esposa y sus tres hijos pequeños en un hogar donde la tensión crece en silencio. La madre carga casi sola con el peso de la casa, mientras él recurre a las bromas y al alcohol para contener una angustia que no consigue expresar. Una noche de verano, una frase dicha casi al pasar deja al descubierto el cansancio y la fragilidad que agobian a la pareja.

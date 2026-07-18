@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elena-garro-hora/1265/
 
+
+**Imagen:** 0169-qué-hora-es.jpg
 ---
 
 Sinopsis: «¿Qué hora es?» es un cuento de la escritora mexicanaElena Garropublicado en 1964 en la revistaDiálogos. Narra la historia de Lucía Mitre, una misteriosa mujer que se hospeda en un lujoso hotel parisino. Al registrarse toma dos habitaciones, una para ella y otra para Gabriel Cortina, un hombre con quien espera reunirse. Lucía afirma que llegará en el vuelo de las nueve y cuarenta y siete minutos. Sin embargo, Gabriel no se presenta el primer día, por lo que Lucía se aísla en su cuarto, esperando.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elena-garro-la-semana-de-colores/6881/
 
+
+**Imagen:** 1257-la-semana-de-colores.jpg
 ---
 
 Don Flor le pegó al Domingo hasta sacarle sangre y el Viernes también salió morado en la golpiza.

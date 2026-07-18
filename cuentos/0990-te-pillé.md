@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-te-pille/13841/
 
+
+**Imagen:** 0990-te-pillé.jpg
 ---
 
 Sinopsis: «¡Te pillé!» (Gotcha!) es un cuento de Ray Bradbury publicado en agosto de 1978 en la revistaRedbook. Narra la historia de Beth y Charles, una pareja que vive un amor intenso y apasionado, sin restricciones. Todo parece perfecto hasta que Beth propone un nuevo juego llamado «Te pillé». Aunque Charles es escéptico, acepta participar. El juego comienza a medianoche. Charles se encuentra en la cama, y lo que se inicia como un pasatiempo lúdico pronto se convierte en una experiencia aterradora.

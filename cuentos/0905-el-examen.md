@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/richard-matheson-el-examen/23163/
 
+
+**Imagen:** 0905-el-examen.webp
 ---
 
 Sinopsis: «El examen» (The Test) es un cuento de Richard Matheson publicado en noviembre de 1954 en la revistaThe Magazine of Fantasy and Science Fiction. La historia transcurre en un futuro en el que se ha legalizado la eutanasia forzada y las personas mayores deben someterse a pruebas periódicas para determinar si merecen seguir viviendo. Tom Parker, un hombre de ochenta años, se prepara con la ayuda de su hijo, Less, para enfrentarse a su cuarto examen. La víspera, mientras repasa números y tareas simples, Tom lucha contra el deterioro de su mente y su cuerpo, mientras la tensión crece en la familia. Lo que está en juego no es solo una prueba, sino la vida misma.

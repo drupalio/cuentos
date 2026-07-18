@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-c-clarke-la-estrella/3911/
 
+
+**Imagen:** 0613-la-estrella.webp
 ---
 
 Sinopsis: «La estrella» (The Star) es un impactante cuento de ciencia ficción escrito por Arthur C. Clarke, publicado noviembre de 1955 enInfinity Science Fiction. La historia sigue a un sacerdote jesuita y astrofísico que, en una misión espacial, descubre los restos de una civilización extinguida por una catástrofe cósmica. Este hallazgo desafía profundamente su fe, llevándolo a cuestionar las creencias que siempre había dado por sentadas. A través de esta narrativa, Clarke explora la tensión entre la ciencia y la religión, planteando preguntas sobre el papel de Dios en el cosmos y la existencia humana. Un relato breve pero profundamente reflexivo.

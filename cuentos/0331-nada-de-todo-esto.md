@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/samanta-schweblin-nada-de-todo-esto/2510/
 
+
+**Imagen:** 0331-nada-de-todo-esto.webp
 ---
 
 Sinopsis: «Nada de todo esto» es un cuento de Samanta Schweblin, publicado en 2015 en el libroSiete casas vacías. La historia comienza con una madre y su hija que, tras perderse en un barrio residencial, quedan atrapadas con el coche en el jardín de una casa ajena. El incidente, aparentemente banal, se convierte en una situación incómoda y tensa que va desvelando una dinámica familiar inusual y profundamente inquietante. A medida que intentan resolver el problema, la actitud errática de la madre genera un conflicto que va más allá de lo anecdótico y toca fibras emocionales y secretos perturbadores.

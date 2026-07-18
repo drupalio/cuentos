@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-monologo-de-isabel-viendo-llover-en-macondo/18870/
 
+
+**Imagen:** 0614-monólogo-de-isabel-viendo-llover-en-macondo.webp
 ---
 
 Sinopsis:«Monólogo de Isabel viendo llover en Macondo» es un cuento de Gabriel García Márquez, publicado en 1955 en la revistaMitoy posteriormente incluido en el libroOjos de perro azul(1972). La narración sigue a Isabel, una mujer embarazada, mientras describe los efectos de un aguacero interminable que sumerge a Macondo en una atmósfera de tedio y melancolía. Con un lenguaje cargado de vívidas imágenes, Isabel relata cómo la naturaleza altera la rutina y aumenta la sensación de aislamiento y desesperanza. La historia captura la lucha silenciosa de los habitantes frente a un tiempo suspendido, marcado por la opresiva presencia de la lluvia.

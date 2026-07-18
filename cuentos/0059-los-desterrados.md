@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-los-desterrados/8218/
 
+
+**Imagen:** 0059-los-desterrados.jpg
 ---
 
 Sinopsis: «Los desterrados» es un cuento de Ray Bradbury publicado en 1950 enThe Magazine of Fantasy and Science Fictiony luego recogido en la colecciónThe Illustrated Man(1951). Marte se ha convertido en el refugio de escritores y personajes literarios prohibidos. Exiliados de una Tierra donde sus obras han sido censuradas y destruidas, estos seres sobreviven en el planeta rojo, conjurando hechizos y pesadillas para protegerse. Cuando un cohete terrestre se acerca con una tripulación científica y escéptica, el choque entre la razón y lo sobrenatural se vuelve inevitable. En un ambiente cargado de brujería y fantasmas, los astronautas enfrentan alucinaciones y terrores que desafían su cordura, mientras los exiliados se preparan para su última batalla por la supervivencia.

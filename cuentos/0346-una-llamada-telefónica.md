@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/dorothy-parker-una-llamada-telefonica/2441/
 
+
+**Imagen:** 0346-una-llamada-telefónica.webp
 ---
 
 Sinopsis: «Una llamada telefónica» (A Telephone Call) es un cuento de Dorothy Parker, publicado en enero de 1928 en la revistaThe Bookman. A través de un monólogo interior cargado de ansiedad, una mujer espera desesperadamente que el hombre que ama cumpla su promesa de llamarla. Mientras observa el reloj y lucha por no ceder a la tentación de marcarle, su mente divaga entre la esperanza, la súplica y la humillación. Con un estilo íntimo y directo, Parker retrata con agudeza la fragilidad emocional, el autoengaño y la intensidad del deseo no correspondido en una situación cotidiana, pero profundamente conmovedora.

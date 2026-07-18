@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-sur/541/
 
+
+**Imagen:** 0935-el-sur.jpg
 ---
 
 Sinopsis: «El Sur» es un cuento de Jorge Luis Borges, publicado originalmente en 1953 en el diarioLa Nacióny posteriormente incluido en la colecciónFicciones(1956). Relata la vida de Juan Dahlmann, un bibliotecario que, tras superar una grave enfermedad, viaja a una estancia familiar para recuperarse. A pesar de su herencia germánica, Dahlmann es profundamente argentino y emprende este viaje con la intención de reencontrarse con sus raíces y escapar de la rutina urbana. Sin embargo, una parada imprevista en su viaje lo lleva a conectar con el sur de Argentina de una manera que ni su imaginación más romántica habría podido predecir, sumergiéndolo en un profundo encuentro con su identidad y su destino.

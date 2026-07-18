@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/silvina-ocampo-la-boda/6697/
 
+
+**Imagen:** 0654-la-boda.webp
 ---
 
 Sinopsis:«La boda», cuento de Silvina Ocampo publicado en el libroLas invitadas(1961), narra la historia de Filomena, una joven que se ve forzada a contraer matrimonio con Armando, un hombre hacia quien no alberga sentimientos de amor. Este enlace, fruto de un malentendido, lejos de ser una unión de voluntades, es una capitulación ante las rígidas expectativas sociales que rodean a la protagonista. A través del relato, Ocampo critica a una sociedad que, mediante cánones estrictos, moldea y a menudo distorsiona el curso de la vida de los individuos, especialmente de las mujeres.

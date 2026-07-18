@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/patricia-highsmith-la-mayor-presa-de-ming/22446/
 
+
+**Imagen:** 0362-la-mayor-presa-de-ming.webp
 ---
 
 Sinopsis:«La mayor presa de Ming» (Ming’s Biggest Prey) es un cuento de Patricia Highsmith, publicado en 1975 en la colecciónThe Animal-Lover’s Book of Beastly Murder. Ambientada en Acapulco, la historia sigue a Ming, un gato refinado y observador que disfruta de una vida de lujo junto a su ama, Elaine. Acostumbrado al confort y al afecto exclusivo de su tutora, Ming percibe con desconfianza la intromisión de Teddie, un hombre que altera la calma de su entorno. A medida que la convivencia se vuelve más tensa, Ming observa con atención cada gesto, esperando el momento justo para reafirmar su lugar.

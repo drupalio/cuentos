@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-rulfo-la-cuesta-de-las-comadres/2302/
 
+
+**Imagen:** 0480-la-cuesta-de-las-comadres.jpg
 ---
 
 Sinopsis:«La Cuesta de las Comadres» es un cuento de Juan Rulfo, publicado en 1953 en la colecciónEl llano en llamas. Un hombre narra su vida en un paraje casi deshabitado, dominado durante años por los hermanos Torrico. Con un tono pausado, recuerda su relación con ellos y cómo fue testigo del éxodo silencioso de los pobladores, que abandonaron sus casas uno tras otro, internándose en el monte. Mientras los demás se van, él permanece cultivando su pequeño campo de maíz y frijol, viendo cómo la Cuesta se vacía, las casas se arruinan y el viento y los cuervos se adueñan del lugar.

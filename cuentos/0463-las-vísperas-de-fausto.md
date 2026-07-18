@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/adolfo-bioy-casares-las-visperas-de-fausto/6460/
 
+
+**Imagen:** 0463-las-vísperas-de-fausto.webp
 ---
 
 Sinopsis:«Las vísperas de Fausto» es un cuento del escritor argentino Adolfo Bioy Casares publicado en 1949 que reimagina el mito de Fausto en sus horas finales. Ambientado en la Alemania de 1540, el relato sigue al doctor Fausto, quien, tras haber vendido su alma al diablo veinticuatro años atrás, se enfrenta al inminente vencimiento del pacto. En una atmósfera opresiva y cargada de introspección, Fausto reflexiona sobre la vida, el arrepentimiento y la posibilidad de escapar de su destino. Acompañado únicamente por su fiel perro y su criado Wagner, el relato se desarrolla en un escenario lúgubre que presagia la inevitable confrontación con Mefistófeles.

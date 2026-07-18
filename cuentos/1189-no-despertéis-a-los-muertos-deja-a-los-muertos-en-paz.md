@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ernst-raupach-no-desperteis-a-los-muertos/14635/
 
+
+**Imagen:** 1189-no-despertéis-a-los-muertos-deja-a-los-muertos-en-paz.jpg
 ---
 
 «No despertéis a los muertos» (también traducido como “Deja a los muertos en paz”) de Ernst Raupach, es un inquietante relato gótico que explora las consecuencias de desafiar el orden natural e invocar las fuerzas sobrenaturales. Walter, un noble de Borgoña, pierde a su amada esposa Brunhilda y, consumido por el dolor, recurre a la magia negra para revivirla. Un brujo le advierte de los peligros de perturbar el descanso de los muertos, pero Walter, cegado por su pasión, ignora la advertencia y sigue adelante con su deseo de despertar a Brunhilda. Este acto insensato desencadena una serie de eventos trágicos, afectando no solo a Walter, sino también a todos a su alrededor.

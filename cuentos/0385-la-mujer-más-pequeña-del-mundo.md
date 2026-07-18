@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/clarice-lispector-la-mujer-mas-pequena-del-mundo/26487/
 
+
+**Imagen:** 0385-la-mujer-más-pequeña-del-mundo.webp
 ---
 
 Sinopsis:«La mujer más pequeña del mundo» (A menor mulher do mundo) es un cuento de Clarice Lispector, publicado en 1960 en el libroLaços de família. En las profundidades del África ecuatorial, el explorador francés Marcel Pretre descubre una tribu de pigmeos extraordinariamente diminutos y, entre ellos, a una mujer aún más pequeña: una figura humana de apenas cuarenta y cinco centímetros de altura, a quien bautiza como Pequeña Flor. Sorprendido por el hallazgo, el explorador decide estudiarla, mientras la noticia y la fotografía de la diminuta mujer se difunden en los periódicos, provocando diversas reacciones entre quienes contemplan su imagen.

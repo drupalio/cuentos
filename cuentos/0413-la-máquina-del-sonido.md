@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roald-dahl-la-maquina-del-sonido/4580/
 
+
+**Imagen:** 0413-la-máquina-del-sonido.webp
 ---
 
 Sinopsis: «La máquina del sonido» (The Sound Machine) es un cuento de ciencia ficción de Roald Dahl, publicado el 17 de septiembre de 1949 enThe New Yorker. Narra la historia de Klausner, un hombre solitario y obsesivo que construye un aparato capaz de captar sonidos inaudibles para el oído humano. Convencido de que el mundo está lleno de voces ocultas, prueba su invento en el jardín y hace un inquietante descubrimiento al observar cómo reaccionan las plantas. Su fascinación se convierte en una creciente perturbación a medida que se adentra en un mundo sonoro invisible que podría transformar radicalmente nuestra comprensión de la sensibilidad vegetal.

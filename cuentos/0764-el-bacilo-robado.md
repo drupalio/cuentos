@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-g-wells-el-bacilo-robado/5170/
 
+
+**Imagen:** 0764-el-bacilo-robado.jpg
 ---
 
 Sinopsis: «El bacilo robado» (The Stolen Bacillus) es un cuento de H. G. Wells, publicado el 21 de junio de 1894 enThe Pall Mall Budget. La historia comienza en el laboratorio de un bacteriólogo que muestra a un visitante un cultivo vivo del bacilo del cólera, explicándole su capacidad de devastar ciudades enteras. El visitante, fascinado por el poder destructivo del microorganismo, escucha atentamente mientras el científico describe las consecuencias de su propagación. Sin embargo, una distracción momentánea permite que el desconocido se marche apresuradamente, lo que desata una persecución frenética por Londres. A medida que la tensión aumenta, la historia toma un giro inesperado.

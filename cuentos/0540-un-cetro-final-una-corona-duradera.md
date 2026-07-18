@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-un-cetro-final-una-corona-duradera/17978/
 
+
+**Imagen:** 0540-un-cetro-final-una-corona-duradera.webp
 ---
 
 Sinopsis:«Un cetro final, una corona duradera» (A Final Sceptre, a Lasting Crown) es un cuento de Ray Bradbury publicado enThe Magazine of Fantasy and Science Fictionen octubre de 1969. La historia sigue a Harry Smith, un anciano que, en la víspera de Navidad, decide quedarse como el último habitante de Inglaterra, mientras el resto de la población emigra hacia climas más cálidos en busca de un verano eterno. En un paisaje desolado, su amigo Samuel Welles intenta persuadirlo de marcharse, pero Harry, lleno de nostalgia, se aferra a la idea de ser el guardián de una tierra cargada de historia, tradición y ecos del pasado.

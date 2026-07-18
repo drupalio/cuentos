@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-solitario/818/
 
+
+**Imagen:** 0859-el-solitario.webp
 ---
 
 Sinopsis:«El solitario»es uncuento de Horacio Quiroga, publicado el 30 de mayo de 1913 en la revistaFray Mocho, e incluido más tarde enCuentos de amor de locura y de muerte(1917). Narra la vida de Kassim, un talentoso joyero que destaca por su habilidad para engarzar piedras preciosas. Aunque es un hombre atento y trabajador, debe soportar la humillación constante por parte de su esposa, una mujer hermosa, ambiciosa e insatisfecha. Mientras Kassim dedica largas horas a fabricar joyas deslumbrantes, su mujer las codicia con una mezcla de deseo y rencor por no haberse casado con alguien más rico. Entre ambos se instala un clima de tensión creciente que se vuelve cada vez más insoportable.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/tove-ditlevsen-el-gato/20402/
 
+
+**Imagen:** 0382-el-gato.webp
 ---
 
 Sinopsis: «El gato» (Katten) es un cuento de la escritora danesa Tove Ditlevsen, publicado en 1952 en la colecciónParaplyen. La historia sigue la rutina diaria de una pareja que viaja en tren y comparte una vida monótona y estructurada. Sin hijos y con una relación marcada por la costumbre, la presencia de un gato callejero se convierte en el centro de una silenciosa disputa entre ellos. Mientras ella lo acoge con ternura, él lo rechaza con creciente resentimiento. En este ambiente de tensiones contenidas, el gato se transforma en un símbolo de los sentimientos reprimidos y del vacío que se ha instalado en su matrimonio.

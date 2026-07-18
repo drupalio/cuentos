@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/brian-aldiss-el-nuevo-papa-noel/17894/
 
+
+**Imagen:** 0589-el-nuevo-papá-noel.webp
 ---
 
 Sinopsis:«El nuevo Papá Noel» (The New Father Christmas) es un cuento de Brian Aldiss publicado enThe Magazine of Fantasy and Science Fictionen enero de 1958. Ambientado en el año 2388, narra la vida de Roberta y Robin, una anciana pareja que habita en los pisos superiores de una gigantesca fábrica. Cuando Roberta descubre que es Navidad, decide compartir la noticia con tres vagabundos que se esconden en el sótano de la fábrica, la cual sigue operando incansablemente. Sin embargo, al invitarlos a subir a su vivienda, desata una cadena de eventos que cambiarán para siempre el destino de los habitantes de este opresivo mundo mecanizado.

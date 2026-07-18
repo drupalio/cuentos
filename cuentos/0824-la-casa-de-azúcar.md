@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/silvina-ocampo-la-casa-de-azucar/5452/
 
+
+**Imagen:** 0824-la-casa-de-azúcar.webp
 ---
 
 Sinopsis: «La casa de azúcar» es un cuento de Silvina Ocampo publicado en 1959 en la colecciónLa furia. Narra la historia de una pareja de recién casados que se muda a una casa que parece nueva. La mujer, Cristina, es una persona profundamente supersticiosa y fóbica, lo que influye significativamente en su vida cotidiana. Su marido, tratando de apaciguar estas obsesiones, le oculta la verdadera historia de la casa. A medida que se instalan, empiezan a ocurrir sucesos inusuales que alteran gradualmente la dinámica de su relación y la percepción de su entorno.

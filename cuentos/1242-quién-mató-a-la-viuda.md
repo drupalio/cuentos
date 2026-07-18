@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-quien-mato-a-la-viuda/6182/
 
+
+**Imagen:** 1242-quién-mató-a-la-viuda.jpg
 ---
 
 La prensa le había dado al crimen una cobertura destacadísima, casi escandalosa. El hecho de que la señora de Umpiérrez (argentina, natural de Córdoba) fuera una viuda de primera clase y que además formara parte de lo que en el Río de la Plata se suele nombrar como Patria Financiera, conmovió a las variadas capas sociales (argentinas, uruguayas) de Punta del Este.

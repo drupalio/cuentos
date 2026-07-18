@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/dan-simmons-todos-los-hijos-de-dracula/22458/
 
+
+**Imagen:** 0972-todos-los-hijos-de-drácula.webp
 ---
 
 Sinopsis: «Todos los hijos de Drácula» (All Dracula’s Children) es un cuento de Dan Simmons, publicado en 1991 en la antologíaThe Ultimate Draculay galardonado con el premio Locus en 1992. Ambientado en la Rumania postrevolucionaria, la historia sigue a un grupo de expertos occidentales que viajan al país poco después de la caída de Ceaușescu, como parte de una misión humanitaria. Mientras recorren orfanatos, hospitales y ciudades devastadas, se enfrentan a una realidad brutal, marcada por el abandono, la miseria y el horror. Detrás de esta devastación, parece ocultarse una presencia antigua y siniestra que ha sobrevivido al paso del tiempo.

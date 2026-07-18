@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/yukio-mishima-el-muchacho-que-escribia-poesia/145/
 
+
+**Imagen:** 0828-el-muchacho-que-escribía-poesía.webp
 ---
 
 Sinopsis: «El muchacho que escribía poesía» (Shi o Kaku Shōnen) es un cuento del escritor japonés Yukio Mishima, publicado en 1954 en la revistaBungakukai. La historia sigue a un joven que encuentra en la poesía un refugio, utilizando la creación literaria como un medio para dar forma a sus emociones y comprender el mundo que lo rodea. Sin embargo, este proceso creativo lo aísla de la realidad, sumergiéndolo en un universo donde la belleza de las palabras se convierte en su único valor. El relato, con tintes autobiográficos, explora la tensión entre la realidad y la fantasía artística, revelando las complejidades de la mente de un joven poeta en formación.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/thomas-ligotti-la-ultima-fiesta-de-arlequin/27737/
 
+
+**Imagen:** 0171-la-última-fiesta-de-arlequín.webp
 ---
 
 Sinopsis:«La última fiesta de Arlequín» (The Last Feast of Harlequin) es un cuento del escritor estadounidense Thomas Ligotti, publicado en abril de 1990 enThe Magazine of Fantasy & Science Fiction. Un antropólogo especializado en la figura cultural del payaso viaja a la remota ciudad de Mirocaw atraído por un peculiar festival de invierno. Guiado por los crípticos apuntes de su antiguo profesor, el doctor Raymond Thoss, el protagonista se interna en las gélidas calles de la ciudad, teñidas por una inusual luz esmeralda, donde descubre la existencia de extraños individuos que habitan en la zona marginal. Fascinado por el espectáculo y movido por la curiosidad, el académico se entrega de lleno a las celebraciones sin reparar en que a veces hay realidades ocultas que conviene no despertar.

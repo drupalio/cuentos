@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-hijo/3704/
 
+
+**Imagen:** 0172-el-hijo.webp
 ---
 
 Sinopsis:«El hijo»es un cuento deHoracio Quiroga, publicado el 15 de enero de 1928 en el diarioLa Nacióny posteriormente recogido en el libroMás allá(1935). Ambientado en la selva de Misiones, Argentina, la historia se centra en la relación entre un padre viudo y su hijo de trece años, quienes habitan un entorno marcado por la belleza y los peligros de la naturaleza salvaje. El niño, apasionado por la caza y dotado de una notable habilidad y conocimiento del monte, sale una mañana con su rifle, prometiendo regresar a tiempo para el almuerzo. A lo largo del día, el relato sigue los pensamientos y emociones del padre, inmerso en una tensa espera por el regreso de su hijo.

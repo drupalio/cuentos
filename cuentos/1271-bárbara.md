@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-barbara/6782/
 
+
+**Imagen:** 1271-bárbara.jpg
 ---
 
 Durante diez años conservé la carta de Bárbara. La llevé una época en el bolsillo, con la esperanza de encontrar a alguien que me la tradujera. Luego la abandoné en un cartapacio, junto con otros papeles viejos. Una tarde al fin, presa de uno de esos súbitos accesos de destrucción, en los cuales uno pone una especie de ferocidad en aniquilar todas las huellas de su pasado, la rompí junto con lo que se rompe en estos casos: boletos de tren de algún largo viaje, facturas de un hotel donde fuimos dichosos, programas de teatro de alguna pieza olvidada. De Bárbara no quedó en consecuencia nada y nunca sabré qué cosa me decía en esa carta escrita en polaco.

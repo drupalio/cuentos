@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-martin-s-warnes-el-libro-negro-de-alsophocus/14284/
 
+
+**Imagen:** 1198-el-libro-negro-de-alsophocus.jpg
 ---
 
 En el cuentoEl Libro Negro de AlsophocusdeH.P. Lovecrafty Martin S. Warnes, un hombre encuentra un misterioso libro en una antigua librería al borde del río. Sumido en sus páginas mohosas, descubre fórmulas y conjuros prohibidos, escritos por un monje loco. Mientras profundiza en los oscuros secretos del libro, su identidad se disuelve y su mente es asaltada por visiones inefables. Campanadas ominosas y voces sibilantes lo atormentan, impulsándolo a trazar círculos de fuego e invocar entidades abominables. Viaja a través de abismos insondables y ciudades antediluvianas, enfrentando horrores cósmicos que desafían la cordura. Su realidad se distorsiona, atrapado en una espiral de locura y revelaciones profanas, mientras explora más allá de los límites del conocimiento humano, donde una horrorosa entidad lo espera.

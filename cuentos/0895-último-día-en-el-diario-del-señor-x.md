@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emiliano-gonzalez-ultimo-dia-en-el-diario-del-senor-x/14613/
 
+
+**Imagen:** 0895-último-día-en-el-diario-del-señor-x.jpg
 ---
 
 Sinopsis: «Último día en el diario del señor X» es un cuento del escritor mexicano Emiliano González, publicado en 1989 en el libroCasa de horror y de magia. La historia comienza con el hallazgo de una pequeña y misteriosa libreta en un parque, cuyos textos, escritos con una precisión microscópica, narran las vivencias cotidianas de un padre y su hijo. Todo parece normal hasta que la última entrada relata el encuentro con un enigmático anciano vestido de payaso que lleva una misteriosa caja de teatro. Lo que comienza como una curiosidad inofensiva durante un paseo familiar se convierte en una experiencia extraña, inquietante y cada vez más siniestra.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-el-dragon/15168/
 
+
+**Imagen:** 1137-el-dragón.webp
 ---
 
 Sinopsis: «El dragón» es un cuento de Ray Bradbury publicado en Esquire en agosto de 1955. Narra la historia de dos hombres que esperan junto a una hoguera en un desolado páramo nocturno, temerosos de la presencia de un dragón legendario que devora a los viajeros solitarios. La oscuridad y el frío aumentan su ansiedad mientras hablan sobre la aterradora bestia, descrita con ojos de fuego y aliento mortal. A medida que la noche avanza, los hombres se preparan para un inevitable enfrentamiento. Cuando el dragón aparece, se enfundan en sus armaduras y montan sus caballos, marchando hacia un inevitable choque con su destino.

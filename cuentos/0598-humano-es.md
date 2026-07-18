@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-humano-es/25254/
 
+
+**Imagen:** 0598-humano-es.webp
 ---
 
 Sinopsis:«Humano es» (Human Is) es un cuento de ciencia ficción escrito por Philip K. Dick y publicado en 1955 en la revistaStartling Stories. Jill es una mujer atrapada en un matrimonio con Lester Herrick, un esposo frío y emocionalmente maltratador, un científico extremadamente racional y entregado por completo a su trabajo. Sin embargo, tras ser enviado a una misión en el planeta Rexor IV, Lester regresa con una actitud completamente distinta: amable, afectuoso, casi irreconocible. Este cambio desconcierta a Jill, que comienza a preguntarse cuál es el verdadero motivo detrás de la transformación de su esposo.

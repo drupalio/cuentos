@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/john-cheever-el-nadador/84/
 
+
+**Imagen:** 0787-el-nadador.webp
 ---
 
 Sinopsis: «El nadador» (The Swimmer) es un cuento de John Cheever, publicado el 18 de julio de 1964 en la revistaThe New Yorkere incluido ese mismo año en la colecciónThe Brigadier and the Golf Widow. En un caluroso domingo de verano, Neddy Merrill pasa la tarde en casa de unos amigos cuando se le ocurre una idea peculiar: como muchas casas del condado tienen piscina y están relativamente conectadas entre sí, debería ser posible regresar a su hogar nadando a través de ellas. Sin embargo, lo que comienza como una experiencia lúdica e insólita acaba convirtiéndose en algo mucho más inquietante.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-alienacion/6926/
 
+
+**Imagen:** 0937-alienación.jpg
 ---
 
 Sinopsis: «Alienación» es un cuento del escritor peruano Julio Ramón Ribeyro, publicado en 1977 dentro del volumenSilvio en El Rosedal, parte deLa palabra del mudo, Tomo III. Narra la historia de Roberto López, un joven mestizo de Lima que, avergonzado de sus raíces, se obsesiona con parecer extranjero. Marcado desde niño por el desprecio y la humillación, emprende una transformación radical que lo lleva a modificar su aspecto, sus costumbres y su forma de hablar. En una Lima dividida por clases sociales y colores de piel, el protagonista persigue un sueño ajeno, convencido de que solo renunciando a su identidad podrá alcanzar el éxito y la aceptación.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-la-salud-de-los-enfermos/23892/
 
+
+**Imagen:** 0800-la-salud-de-los-enfermos.webp
 ---
 
 Sinopsis: «La salud de los enfermos» es un cuento de Julio Cortázar publicado en 1966 en el libroTodos los fuegos el fuego. La historia se centra en una familia que, con infinita dedicación y cuidado, protege a una madre enferma de cualquier sobresalto emocional. Para evitarle sufrimientos, los hijos y parientes mantienen una elaborada farsa cotidiana, ocultándole verdades dolorosas mediante cartas inventadas, visitas cuidadosamente planificadas y noticias manipuladas. En medio de esta red de afectuosos engaños, los personajes se enfrentan a las tensiones que genera mantener una mentira colectiva con amor, temor y resignación.

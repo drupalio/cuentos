@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-canto-del-cisne/5842/
 
+
+**Imagen:** 0890-el-canto-del-cisne.webp
 ---
 
 Sinopsis: «El canto del cisne» es un cuento de Horacio Quiroga publicado en 1921 en el libroAnaconda(aunque luego fue suprimido en ediciones posteriores). La historia explora la relación entre una joven llamada Celia y un cisne singularmente distante. Ambientado en un tranquilo lago de una quinta, el relato se centra en la extraña y persistente aversión que el cisne parece sentir hacia Celia. A pesar de sus intentos de acercamiento, el cisne siempre la esquiva. Sin embargo, en un apacible crepúsculo, Celia descubrirá la verdad que se esconde tras esa conducta.

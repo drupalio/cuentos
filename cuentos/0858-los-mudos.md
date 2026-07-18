@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/albert-camus-los-mudos/740/
 
+
+**Imagen:** 0858-los-mudos.webp
 ---
 
 Sinopsis: «Los mudos» (Les Muets) es un cuento de Albert Camus incluido en su colección L’Exil et le Royaume(1957). Ambientado en un taller de tonelería de una pequeña ciudad costera, el relato narra el regreso al trabajo de un grupo de obreros tras una huelga fallida. A través de la experiencia del protagonista, Yvars, Camus explora el sentimiento de derrota, la resignación y la amargura que embargan a los trabajadores. En su silenciosa sumisión, estos hombres revelan la deshumanización y el desgaste moral causados por las injusticias laborales y la indiferencia de los patrones. Se trata de un relato profundo que aborda la impotencia y el silencio como formas de resistencia ante un destino implacable.

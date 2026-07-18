@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-los-ojos-hacen-algo-mas-que-ver/6058/
 
+
+**Imagen:** 1303-los-ojos-hacen-algo-más-que-ver.jpg
 ---
 
 Después de cientos de miles de millones de años, pensó de súbito en sí mismo como Ames. No la combinación de longitudes de ondas que a través de todo el universo era ahora el equivalente de Ames, sino el sonido en sí. Una clara memoria trajo las ondas sonoras que él no escuchó ni podía escuchar.

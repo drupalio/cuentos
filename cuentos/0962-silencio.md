@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-silencio/14125/
 
+
+**Imagen:** 0962-silencio.jpg
 ---
 
 Sinopsis: En «Silencio» (Silence—A Fable), cuento de Edgar Allan Poe publicado en 1838 enBaltimore Book, un demonio narra una historia sobre una región desolada en Libia, junto al río Zaire. Esta tierra está marcada por un inquietante paisaje: un río enfermizo, gigantescos nenúfares y una selva oscura y agitada, todo sin calma ni silencio. Una noche, bajo una lluvia que se convierte en sangre, el demonio observa a un hombre majestuoso en una roca. Este hombre, solitario y melancólico, contempla el desolado paisaje. El demonio invoca los elementos para atormentarlo, sin embargo, a este hombre cansado de la gente y deseoso de estar solo, nada parece conmoverlo.

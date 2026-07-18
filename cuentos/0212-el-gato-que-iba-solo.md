@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/rudyard-kipling-el-gato-que-iba-solo/21721/
 
+
+**Imagen:** 0212-el-gato-que-iba-solo.webp
 ---
 
 Sinopsis:«El gato que iba solo» (The Cat That Walked by Himself) es un cuento de Rudyard Kipling, publicado en julio de 1902 enLadies’ Home Journal. En un tiempo remoto, cuando todos los animales y el propio ser humano eran aún salvajes, una mujer decide dejar atrás la vida nómada y construir un hogar. Poco a poco, varios animales se acercan a su caverna y sellan pactos que los vuelven domésticos. Solo uno de ellos se mantiene aparte: el gato, orgulloso y solitario, que observa desde la distancia y trama con astucia su propia manera de acercarse al fuego, sin renunciar a su independencia.

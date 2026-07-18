@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-el-planeta-imposible/19279/
 
+
+**Imagen:** 0461-el-planeta-imposible.webp
 ---
 
 Sinopsis:«El planeta imposible» (The Impossible Planet) es un cuento de ciencia ficción de Philip K. Dick, publicado en octubre de 1953 en la revistaImagination. La historia sigue al capitán Andrews y su tripulación, quienes reciben una inusual petición de una anciana de 350 años: viajar a la Tierra, el mítico planeta que se cree cuna de la humanidad. Aunque la ciencia ha descartado que la Tierra alguna vez existiera, la anciana está dispuesta a pagar una gran suma para cumplir su sueño, lo que despierta la codicia de Andrews.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/b-traven-canastitas-en-serie/28334/
 
+
+**Imagen:** 0045-canastitas-en-serie.webp
 ---
 
 Sinopsis:«Canastitas en serie» es un cuento del escritor alemán B. Traven, publicado en 1956 en el libroCanasta de cuentos mexicanos. Mr. Winthrop, un turista estadounidense de viaje por México, llega a un pequeño pueblo de Oaxaca y descubre a un campesino indígena que teje canastitas de fibras naturales, cada una de extraordinaria belleza. Fascinado por la calidad del trabajo y sorprendido por su bajo precio, compra varias piezas y pronto imagina una oportunidad de negocio. De regreso en Nueva York, ofrece las canastas como envoltorios de lujo para una confitería, convencido de que podrá convertir aquella artesanía única en una lucrativa empresa.

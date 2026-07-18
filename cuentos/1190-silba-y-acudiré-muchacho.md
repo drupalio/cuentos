@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/m-r-james-silba-y-acudire-muchacho/16917/
 
+
+**Imagen:** 1190-silba-y-acudiré-muchacho.webp
 ---
 
 «¡Silba y acudiré, muchacho!»(«Oh, Whistle, and I’ll Come to You, My Lad») es un clásico relato de fantasmas escrito por M. R. James, publicado en 1904 dentro de la colecciónGhost-Stories of an Antiquary. La historia sigue a Parkins, un profesor escéptico que decide pasar unos días en Burnstow, un tranquilo pueblo costero de Inglaterra, con el objetivo de perfeccionar su juego de golf y explorar las ruinas de un antiguo convento templario. Durante uno de sus paseos, descubre un misterioso silbato de bronce. Fascinado, se lo lleva y, al probarlo, desencadena una serie de extraños sucesos que pondrán a prueba sus firmes convicciones racionalistas.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-c-clarke-reencuentro/4127/
 
+
+**Imagen:** 0230-reencuentro.jpg
 ---
 
 Sinopsis:«Reencuentro» (Reunion) es un cuento breve de Arthur C. Clarke, publicado en 1971 en la antologíaInfinity Two. La historia se presenta como un mensaje interestelar enviado por una civilización avanzada que anuncia su inminente llegada a la Tierra. En tono sereno y cordial, los emisarios revelan un antiguo vínculo con la humanidad: hace millones de años colonizaron el planeta, antes de verse forzados a abandonarlo. Ahora, tras un largo distanciamiento evolutivo, regresan para restablecer el contacto. Su mensaje transmite una propuesta de reconciliación y ayuda, ofreciendo soluciones tecnológicas y revelaciones sobre un pasado compartido que la humanidad ha olvidado.

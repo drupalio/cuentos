@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/chuck-palahniuk-canibal/5419/
 
+
+**Imagen:** 1330-chuck-palahniuk-caníbal.jpg
 ---
 
 Aquí llega el capitán del Equipo Rojo. Y esto es lo que dice:

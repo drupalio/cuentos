@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-la-reticencia-de-lady-anne/2194/
 
+
+**Imagen:** 1244-saki-la-reticencia-de-lady-anne.jpg
 ---
 
 Egbert entró en el gabinete, espacioso y sucintamente iluminado, con el aire de un hombre que no está seguro de si se adentra en un palomar o en una fábrica de bombas y se halla preparado para ambas eventualidades. El insignificante altercado doméstico habido ante la mesa del almuerzo habíase disputado sin llegar a término definitivo y el problema era saber hasta qué punto lady Anne se hallaba en disposición de reiniciar o cesar las hostilidades. Su postura en el sofá, junto a la mesa del té, era de una rigidez un tanto artificiosa; en la penumbra de un atardecer de diciembre los quevedos de Egbert no le eran materialmente de gran utilidad para distinguir la expresión de su rostro.

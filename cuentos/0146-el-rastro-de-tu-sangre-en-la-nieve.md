@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-el-rastro-de-tu-sangre-en-la-nieve/5493/
 
+
+**Imagen:** 0146-el-rastro-de-tu-sangre-en-la-nieve.jpg
 ---
 
 Sinopsis: «El rastro de tu sangre en la nieve», cuento deGabriel García Márquezpublicado en la colecciónDoce cuentos peregrinos(1992), narra la historia de Nena Daconte y Billy Sánchez de Ávila, una pareja de recién casados que emprende un viaje por Europa. Durante su travesía, Nena descubre que una pequeña herida en su dedo, adquirida de manera inocente, no deja de sangrar. A medida que avanzan en su viaje, la búsqueda de atención médica para tratar esta aparentemente menor complicación se convierte en una urgente prioridad.

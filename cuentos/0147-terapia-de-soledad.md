@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-terapia-de-soledad/6301/
 
+
+**Imagen:** 0147-terapia-de-soledad.webp
 ---
 
 Sinopsis: «Terapia de soledad» es un cuento de Mario Benedetti publicado en 1999 en el libroBuzón del tiempo. A través de una carta, una mujer relata su experiencia de aislamiento voluntario en una casa de campo, donde busca reencontrarse consigo misma. Alejada de su esposo y del bullicio urbano, reflexiona sobre el amor, la intimidad, el respeto mutuo y la capacidad restauradora de la soledad. Con una prosa íntima y contemplativa, el relato explora las tensiones entre el deseo de independencia y la necesidad de cercanía en una relación madura que atraviesa una pausa que parece necesaria.

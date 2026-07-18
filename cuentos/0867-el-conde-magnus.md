@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/m-r-james-el-conde-magnus/15351/
 
+
+**Imagen:** 0867-el-conde-magnus.webp
 ---
 
 Sinopsis:«El conde Magnus»(Count Magnus) es un relato de terror gótico escrito por M. R. James y publicado en 1904 en el libroGhost Stories of an Antiquary. Narra la historia de Mr. Wraxall, un curioso viajero británico que explora una antigua mansión en Suecia mientras investiga para un libro. Durante su estancia, descubre un oscuro secreto relacionado con el antiguo propietario de la mansión, el conde Magnus, un hombre violento cuya vida estuvo marcada por el misterio y las artes oscuras. La curiosidad de Wraxall lo llevará a desenterrar secretos que pondrán a prueba su cordura y su seguridad personal.

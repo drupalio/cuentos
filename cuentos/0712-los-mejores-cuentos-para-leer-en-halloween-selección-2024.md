@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/los-mejores-cuentos-para-leer-en-halloween/17009/
 
+
+**Imagen:** 0712-los-mejores-cuentos-para-leer-en-halloween-selección-2024.webp
 ---
 
 Se acerca Halloween, y con él, la oportunidad perfecta para sumergirse en los relatos más escalofriantes de la literatura universal. En Lecturia, hemos preparado un especial conlos mejores cuentos para leer en Halloween, una colección de más de 80 historias seleccionadas de entre las más de 200 recomendaciones que nuestros amigos y seguidores nos dejaron en nuestra página enFacebook.

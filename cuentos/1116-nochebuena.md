@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-nochebuena/6584/
 
+
+**Imagen:** 1116-nochebuena.webp
 ---
 
 Sinopsis: «Nochebuena» (Nuit de Noël), publicado enGil Blasel 26 de diciembre de 1886, es un ingenioso y mordaz relato navideño de Guy de Maupassant. Enrique Templier, un escritor solitario, comparte con sus amigos la peculiar historia que lo llevó a aborrecer la Navidad. Una noche, incapaz de concentrarse por el bullicio festivo, decide abandonar su trabajo y buscar compañía para una cena improvisada en su apartamento. Vagando por las calles, encuentra a una joven encantadora y robusta que acepta su invitación. Sin embargo, lo que comenzó como una escapatoria jovial termina en una situación caótica, con visitas inesperadas y una emergencia sin precedentes.

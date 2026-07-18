@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-una-historia-inmoral/27057/
 
+
+**Imagen:** 0310-una-historia-inmoral.webp
 ---
 
 Sinopsis:«Una historia inmoral» es un cuento de Horacio Quiroga, publicado en diciembre de 1907 en la revistaNosotros. Durante un viaje en barco, un pequeño grupo de pasajeros pasa la noche compartiendo relatos incómodos y perturbadores. Entre ellos se encuentra Broqua, un hombre de apariencia tosca y modales directos que despierta cierta desconfianza en las mujeres del grupo. Cuando llega su turno de narrar, Broqua advierte que su historia «es un poco fuerte», lo que provoca la curiosidad y el recelo de los demás. Mientras la mujer más joven es apartada para preservar su inocencia, el resto queda expuesto a un relato cargado de tensiones morales que preferiría no escuchar.

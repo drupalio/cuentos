@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/oscar-wilde-crimen-lord-arthur-savile-una-reflexion-deber/982/
 
+
+**Imagen:** 0978-el-crimen-de-lord-arthur-savile.jpg
 ---
 
 Sinopsis: «El crimen de Lord Arthur Savile» (Lord Arthur Savile’s Crime) es un relato de Oscar Wilde publicado en 1891. Narra la historia de Lord Arthur Savile, un joven aristócrata que asiste a una elegante velada organizada por Lady Windermere. Durante la fiesta, un quiromante, el señor Podgers, le lee la mano y le predice que cometerá un asesinato. Este vaticinio trastorna profundamente a Lord Arthur, quien, sintiendo el peso del deber, decide que debe cumplir con su supuesto destino antes de casarse con su amada Sybil Merton. A partir de ese momento, Lord Arthur se embarca en una serie de intentos desesperados por cometer el crimen profetizado, enfrentándose a una serie de dificultades y reveses inesperados.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-el-otro-pie/4218/
 
+
+**Imagen:** 0048-el-otro-pie.jpg
 ---
 
 Sinopsis:«El otro pie» (The Other Foot) es un cuento de Ray Bradbury, incluido en su colecciónThe Illustrated Man(1951). Narra la historia de una comunidad negra en Marte que espera con tensión la llegada de un cohete desde la Tierra, el primero en veinte años y con un hombre blanco a bordo. Los habitantes de Marte, que habían huido de un pasado de discriminación racial y violencia en la Tierra, se enfrentan a sus recuerdos y a la tentación de invertir los roles de opresión al recibir a este nuevo visitante.

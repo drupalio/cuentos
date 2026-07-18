@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-no-lo-invento/26356/
 
+
+**Imagen:** 0408-no-lo-invento.webp
 ---
 
 Sinopsis:«No lo invento» es un cuento de Emilia Pardo Bazán, publicado en marzo de 1891 en la revistaNuevo Teatro Crítico. En el pueblecillo de Arfe, Pura —conocida como Puri la Casta— encarna el ideal femenino de virtud y recato que la comunidad admira. Hermosa y de carácter sencillo, acepta el cortejo de un joven honrado y de buena posición, fijándose pronto la fecha del matrimonio. Cuando falta poco para la boda, el novio cede a un arrebato de pasión y la besa impulsivamente. Poco después, la muchacha cae inexplicablemente enferma y muere. Devastado por la culpa, el joven acude de noche al cementerio para rezar ante la tumba de su amada, sin saber lo que está a punto de descubrir.

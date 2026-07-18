@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/william-faulkner-incendiar-establos/829/
 
+
+**Imagen:** 1372-william-faulkner-incendiar-establos.jpg
 ---
 
 El almacén en el que tuvo lugar la vista celebrada por el juez de paz apestaba bastante a queso. El chiquillo, acuclillado sobre el barril de los clavos, al fondo de un local atestado de gente, era sabedor de que olía a queso, y a unas cuantas cosas más: desde el asiento al que se había encaramado alcanzaba a ver las estanterías alineadas en las que se apilaban bien apretadas las formas sólidas, chaparras, dinámicas, de aquellas latas cuyas etiquetas leyó con el estómago, sin recurrir a unos rótulos que para su caletre nada significaban, fijándose en cambio en los diablos rojos y en la curvatura argentina de los peces,[1]todo lo cual, el queso de cuyo olor era consciente y la carne hermética, enlatada, cuyo olor creían percibir sus intestinos, le llegaba en rachas intermitentes y efímeras en medio de un constante efluvio, el olor y la sensación de tener un poco de miedo, más que nada por la desesperanza y por la tristeza, la vieja y feroz pulsión de la sangre. No alcanzaba a ver la mesa tras la que se había sentado el juez, frente al cual se encontraban de pie su padre y el enemigo de su padre («nuestro enemigo —pensó con la misma desesperanza—, ¡nuestro de los dos! ¡Tan suyo como mío! ¡Es mi padre!»), aunque sí los oía, u oyó más bien a los dos, porque su padre aún no había dicho ni palabra:

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elena-garro-el-anillo/8209/
 
+
+**Imagen:** 0401-el-anillo.webp
 ---
 
 Sinopsis:«El anillo» es un cuento de la escritora mexicana Elena Garro, publicado en 1964 en el libroLa semana de colores. La historia sigue a Camila, una mujer pobre que, al regresar de Cuernavaca, encuentra un anillo dorado en la calle. Sin sospechar su significado, lo lleva a casa y se lo regala a su hija Severina como un pequeño lujo en medio de la miseria. Sin embargo, el hallazgo pronto desencadena una serie de extraños acontecimientos que afectan a su familia. A medida que avanza la historia, el anillo parece estar ligado a fuerzas misteriosas que traerán desgracia y sufrimiento a quienes lo poseen.

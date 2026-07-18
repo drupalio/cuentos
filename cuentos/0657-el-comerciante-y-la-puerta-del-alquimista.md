@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ted-chiang-el-comerciante-y-la-puerta-del-alquimista/19545/
 
+
+**Imagen:** 0657-el-comerciante-y-la-puerta-del-alquimista.webp
 ---
 
 Sinopsis:«El comerciante y la puerta del alquimista» (The Merchant and the Alchemist’s Gate) es un relato de Ted Chiang, publicado en 2007 y ganador en 2008 de los premios Hugo y Nebula. Ambientado en el Bagdad medieval, narra la historia de Fuwaad ibn Abbas, un comerciante que, movido por la curiosidad, descubre una tienda con artefactos sorprendentes. El dueño de la tienda, el alquimista Bashaarat, le muestra una puerta capaz de transportar a quien la cruce veinte años en el tiempo. A través de relatos dentro del relato, Fuwaad aprende sobre el destino, la inevitabilidad del pasado y el poder del arrepentimiento.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-la-noche/4112/
 
+
+**Imagen:** 0286-la-noche.jpg
 ---
 
 Sinopsis: «La noche» (La nuit) es un cuento de Guy de Maupassant, publicado el 14 de junio de 1887 en el periódicoGil Blas. Narra la experiencia de un hombre que siente un amor profundo y visceral por la noche, símbolo para él de libertad, misterio y una vitalidad que el día le arrebata. Sin embargo, durante un paseo nocturno por París, la oscuridad que tanto adora comienza a tornarse opresiva. A medida que la ciudad se sumerge en un silencio absoluto, una inquietud creciente invade el ambiente y lo arrastra hacia una experiencia extraña y perturbadora.

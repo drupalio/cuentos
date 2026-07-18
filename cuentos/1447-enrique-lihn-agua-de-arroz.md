@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/enrique-lihn-agua-de-arroz/119/
 
+
+**Imagen:** 1447-enrique-lihn-agua-de-arroz.jpg
 ---
 
 Subió a la carrera los tres primeros pisos del edificio que lo absorbía con un dejo de hostilidad, como un arrendatario indeseable y luego, a semejanza de esos ágiles pasajeros que finalmente se resignan a perder el tren, enumeró los últimos tramos de la escalera con un lento paso evasivo. Sólo eran las once y media de la mañana, buena hora para un día domingo, pero no para él, ese día único.

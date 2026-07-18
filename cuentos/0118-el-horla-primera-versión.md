@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-el-horla-primera-version/14035/
 
+
+**Imagen:** 0118-el-horla-primera-versión.jpg
 ---
 
 Sinopsis: «El Horla» (L’Horla) es un famoso relato del escritor francés Guy de Maupassant, del que existen dos versiones. La primera, más breve, se publicó el 26 de octubre de 1886 en el periódicoGil Blas. En ella, un eminente alienista, el doctor Marrande, convoca a un grupo de colegas para escuchar a un paciente que asegura ser víctima de sucesos inexplicables en su casa junto al Sena. El insomnio, la debilidad física y extraños fenómenos domésticos alimentan en él la convicción de que una presencia invisible lo acecha y consume su energía. Su narración, precisa y angustiante, plantea un misterio que desafía la lógica y amenaza con quebrar su cordura.

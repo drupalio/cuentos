@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/poul-anderson-el-hombre-que-llego-temprano/25749/
 
+
+**Imagen:** 0009-el-hombre-que-llegó-temprano.webp
 ---
 
 Sinopsis:«El hombre que llegó temprano» (The Man Who Came Early) es un cuento de Poul Anderson, publicado en junio de 1956 enThe Magazine of Fantasy and Science Fiction. Un anciano granjero islandés del siglo X relata a un sacerdote cristiano la misteriosa llegada de un forastero que, tras una gran tormenta, apareció vagando por la playa. Vestido con ropas desconocidas y portando extraños artefactos, el recién llegado afirmaba provenir de mil años en el futuro y de una gran nación que aún no existía. Aunque escépticos y a veces tomándolo por loco, una familia decide acogerlo y brindarle cobijo. Agradecido, el hombre intenta adaptarse a esa sociedad primitiva mientras relata asombrosas historias sobre su tiempo.

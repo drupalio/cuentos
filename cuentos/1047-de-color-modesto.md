@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-de-color-modesto/6841/
 
+
+**Imagen:** 1047-de-color-modesto.webp
 ---
 
 Sinopsis: «De color modesto» es un cuento de Julio Ramón Ribeyro, publicado en 1964 en el libroLas botellas y los hombres. Narra la historia de Alfredo, un joven artista que asiste a regañadientes a una fiesta en el exclusivo barrio de Miraflores, donde se siente fuera de lugar entre adolescentes frívolos y adultos superficiales. Torpe para el baile y ajeno a los códigos sociales del lugar, Alfredo vaga de sala en sala buscando encajar, mientras el alcohol acentúa su incomodidad y desencanto. En medio de su deambular, un inesperado encuentro le ofrece la posibilidad de una conexión auténtica.

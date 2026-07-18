@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/haruki-murakami-sobre-el-encuentro-con-una-chica-cien-por-cien-perfecta-en-una-soleada-manana-del-mes-de-abril/2176/
 
+
+**Imagen:** 0235-sobre-el-encuentro-con-una-chica-cien-por-cien-perfecta-en-una-soleada-mañana-del-mes-de-abril.webp
 ---
 
 Sinopsis:«Sobre el encuentro con una chica cien por cien perfecta en una soleada mañana del mes de abril» (Shigatsu no aru hareta asa ni hyaku pāsento no onna no ko ni deau koto ni tsuite) es un cuento de Haruki Murakami, publicado en 1993 enZō no shōmetsu. Narra la historia de un hombre que, mientras deambula por las calles de Harajuku, se encuentra casualmente con una mujer que considera perfecta para él. No es que ella sea especialmente bella o llamativa: simplemente, el hombre está convencido de que es su mujer ideal. Sin embargo, pese a la intensidad de lo que siente y a la certeza de esa conexión, vacila, buscando las palabras para hablarle.

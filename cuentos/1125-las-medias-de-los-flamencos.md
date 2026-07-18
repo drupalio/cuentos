@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-las-medias-de-los-flamencos/6195/
 
+
+**Imagen:** 1125-las-medias-de-los-flamencos.jpg
 ---
 
 Sinopsis: «Las medias de los flamencos«, cuento de Horacio Quiroga publicado enFray Mochoen julio de 1916, relata una peculiar fiesta en el reino animal, donde las víboras organizan un baile al que asisten diversas especies. Los flamencos, sintiéndose menos engalanados que el resto, deciden ponerse medias coloradas, blancas y negras para impresionar a las víboras de coral. Después de un infructuoso intento por adquirirlas en tiendas, llegan donde la lechuza quien satisface el deseo de los flamencos con unas medias muy particulares, que cambiarán para siempre la vida de estas aves.

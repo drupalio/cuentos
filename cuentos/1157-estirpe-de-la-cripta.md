@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/clark-ashton-smith-estirpe-de-la-cripta/19467/
 
+
+**Imagen:** 1157-estirpe-de-la-cripta.webp
 ---
 
 Sinopsis: «Estirpe de la cripta» (The Nameless Offspring) es un cuento de Clark Ashton Smith publicado en junio de 1932 en la revistaStrange Tales of Mystery and Terror. Narra la historia de Henry Chaldane, quien, durante un viaje por la campiña inglesa, llega por casualidad a Tremoth Hall, una antigua mansión envuelta en una oscura leyenda familiar. Allí conoce a Sir John Tremoth, un hombre atormentado por un terrible secreto relacionado con su linaje.

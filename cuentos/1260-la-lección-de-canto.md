@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/katherine-mansfield-la-leccion-de-canto/6433/
 
+
+**Imagen:** 1260-la-lección-de-canto.jpg
 ---
 
 Desesperada, con una desesperación gélida e hiriente que se le clavaba en el corazón como una navaja traidora, la señorita Meadows, con toga y birrete y portando una pequeña batuta, avanzó rápidamente por los fríos pasillos que conducían a la sala de música. Niñas de todas las edades, sonrosadas a causa del aire fresco, y alborotadas con la alegre excitación que produce llegar corriendo a la escuela una espléndida mañana de otoño, pasaban corriendo, precipitadas, empujándose; desde el fondo de las aulas llegaba el ávido resonar de las voces; sonó una campaña, una voz que parecía la de un pajarillo llamó: «Muriel». Y luego se oyó un tremendo golpe en las escaleras, seguido de un clong, clong, clong. Alguien había dejado caer las pesas de gimnasia.

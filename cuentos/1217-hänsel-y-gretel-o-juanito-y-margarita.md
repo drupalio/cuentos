@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermanos-grimm-hansel-y-gretel/12984/
 
+
+**Imagen:** 1217-hänsel-y-gretel-o-juanito-y-margarita.jpg
 ---
 
 Hänsel y Gretel (o Juanito y Margarita) es un cuento de los hermanos Grimm que narra la historia de dos hermanos, hijos de un leñador empobrecido. Incapaz de alimentarlos, su mujer instiga al leñador a que se deshaga de los niños, abandonándolos en el bosque para que se los coman las fieras. El hombre accede, y así es como deja a sus dos hijos en medio del bosque, entregados a su suerte. Mientras tratan de hallar el camino de regreso, encuentran una casa hecha de dulces cuya dueña es una bruja. Los niños son capturados por la malvada bruja, quien espera darse un buen banquete con ellos. La astucia y el coraje de los niños serán puestos a prueba en una lucha por su supervivencia.

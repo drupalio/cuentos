@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-compensaciones/2472/
 
+
+**Imagen:** 1392-mario-benedetti-compensaciones.jpg
 ---
 
 Pedro Luis le llevaba un año a Juan Tomás, pero eran tan exactamente iguales que todos los tomaban por mellizos. Además, como Pedro Luis se había atrasado un año en primaria debido a una escarlatina con complicaciones, a partir de ese momento habían hecho juntos el resto del colegio, todo el liceo y los dos años de Preparatorios [que fue de Arquitectura] así que la gente se había habituado a verlos por partida doble. Tanto los compañeros de clase como los profesores, cuando se dirigían a uno u otro empezaban inquiriendo de cuál de los dos se trataba. Sus jugarretas en Preparatorios pasaron a integrar el folklore estudiantil: cuando preparaban los exámenes se repartían las materias, y de ese modo sólo estudiaban la mitad, ya que cada uno daba dos veces [una como Juan Tomás y otra como Pedro Luis] la misma asignatura. Así pasaban de año aplicando la ley del mínimo esfuerzo. Su solidaridad y colaboración fraternales llegaban a tales extremos que en más de una ocasión atendieron intermitentemente a alguna noviecita.

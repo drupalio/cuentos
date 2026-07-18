@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/sergio-pitol-victorio-ferri-cuenta-un-cuento/2075/
 
+
+**Imagen:** 0545-victorio-ferri-cuenta-un-cuento.webp
 ---
 
 Sinopsis:«Victorio Ferri cuenta un cuento», es un relato de Sergio Pitol, publicado en 1958 enCuadernos del unicornio. La historia sigue a Victorio, un joven que desde la enfermedad reflexiona sobre su sombría herencia familiar. A través de su voz, descubrimos la figura de su padre, un hombre cruel y despiadado, y la relación distante con su hermana Carolina, a quien desprecia. Mientras contempla la violencia y el miedo que dominan su entorno, Victorio se pregunta si algún día heredará la brutalidad de su padre y se convertirá en el demonio que todos temen, o si su final será diferente.

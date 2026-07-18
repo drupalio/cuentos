@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-la-siesta-del-martes-2/9204/
 
+
+**Imagen:** 0124-la-siesta-del-martes.jpg
 ---
 
 Sinopsis: «La siesta del martes», es un cuento de Gabriel García Márquez, publicado en 1962 en el libroLos funerales de la Mamá Grande. Una madre y su hija viajan en tren a un pequeño pueblo en un caluroso día de agosto. Vestidas de luto, llevan consigo un ramo de flores y una dignidad serena, a pesar de su pobreza evidente. Su destino es la casa cural, donde buscan las llaves del cementerio para visitar una tumba. A lo largo del relato, la atmósfera densa y los gestos contenidos revelan una historia de dolor, resistencia y orgullo en medio del juicio silencioso de una comunidad.

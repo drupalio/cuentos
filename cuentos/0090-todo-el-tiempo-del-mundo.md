@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-c-clarke-todo-el-tiempo-del-mundo/22418/
 
+
+**Imagen:** 0090-todo-el-tiempo-del-mundo.webp
 ---
 
 Sinopsis:«Todo el tiempo del mundo» (All the Time in the World) es un cuento de Arthur C. Clarke, publicado en julio de 1952 en la revistaStartling Stories. La historia comienza con la inesperada visita de una misteriosa mujer al apartamento de Robert Ashton, un ladrón refinado y cínico que vive al margen de la ley. La desconocida le ofrece un encargo insólito: robar una serie de piezas invaluables del Museo Británico, garantizándole total impunidad gracias a un misterioso aparato electrónico. Intrigado por la propuesta y seducido por la recompensa, Ashton acepta el desafío, sin imaginar el alcance real de la operación en la que está a punto de involucrarse.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stephen-king-la-expedicion/22480/
 
+
+**Imagen:** 0974-la-expedición.webp
 ---
 
 Sinopsis: «La expedición» (The Jaunt) es un inquietante cuento de ciencia ficción escrito por Stephen King, publicado en junio de 1981 enThe Twilight Zone Magaziney recopilado enSkeleton Crew(1985). Ambientado en un futuro donde el teletransporte ha revolucionado el mundo, narra la historia de Mark Oates y su familia, que se preparan para realizar un «salto» hacia Marte. Mientras esperan en la terminal, Mark decide distraer a sus hijos contándoles la historia del inventor del proceso, Victor Carune. Lo que comienza como una fascinante narración sobre este avance tecnológico pronto deja entrever secretos perturbadores que se esconden tras esta peculiar forma de viajar.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ana-maria-shua-como-una-buena-madre/26158/
 
+
+**Imagen:** 0259-como-una-buena-madre.webp
 ---
 
 Sinopsis:«Como una buena madre» es un cuento de la escritora argentina Ana María Shua, publicado en 2001 en el libro homónimo. Narra un día agobiante en la vida de una mujer que intenta cumplir con el ideal de “una buena madre” mientras enfrenta sola el caos doméstico provocado por sus tres hijos pequeños. El relato se centra en la tensión acumulada en el hogar, donde los berrinches, las travesuras peligrosas y las constantes exigencias infantiles ponen a prueba su paciencia y cordura, mientras una voz interna la juzga constantemente.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/charles-perrault-maese-gato-o-el-gato-con-botas/12765/
 
+
+**Imagen:** 0368-maese-gato-o-el-gato-con-botas.jpg
 ---
 
 Sinopsis: «Maese Gato o el Gato con Botas«, cuento de Charles Perrault publicado en 1697, narra la historia del hijo menor de un molinero que como única herencia recibe un gato. Aunque el joven se lamenta por la pobreza de su fortuna, el gato pronto se revela como un ser extraordinario, dotado de astucia e ingenio. Con la promesa de mejorar la suerte de su nuevo amo, el gato solicita un par de botas y un saco para emprender una serie de aventuras. A través de su inteligencia y varios artilugios, el gato se embarca en un plan para asegurar la fortuna y el futuro de su dueño, demostrando que a veces, los regalos menos impresionantes pueden resultar ser los más valiosos.

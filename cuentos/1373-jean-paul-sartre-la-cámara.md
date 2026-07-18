@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jean-paul-sartre-la-camara/671/
 
+
+**Imagen:** 1373-jean-paul-sartre-la-cámara.jpg
 ---
 
 La señora Darbedat tenía un “rahat-loukoum”[1] entre los dedos. Lo aproximó a sus labios con precaución y retuvo la respiración por temor de que se volase con su aliento el fino polvo de azúcar con que estaba salpicado: “Es de rosa”, se dijo. Mordió bruscamente en esa carne vidriosa y un perfume corrompido le llenó la boca. “Es curioso cómo afina las sensaciones la enfermedad.” Se puso a pensar en las mezquitas, en los orientales obsequiosos (había estado en Argel durante su viaje de bodas) y sus labios pálidos esbozaron una sonrisa; el “rahat- loukoum” también era obsequioso.

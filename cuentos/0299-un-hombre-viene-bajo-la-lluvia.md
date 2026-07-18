@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-un-hombre-viene-bajo-la-lluvia/12693/
 
+
+**Imagen:** 0299-un-hombre-viene-bajo-la-lluvia.jpg
 ---
 
 Sinopsis:«Un hombre viene bajo la lluvia» es un cuento de Gabriel García Márquez, publicado en la reedición de 1997 del libroOjos de perro azul. Narra la historia de una mujer que, durante las noches de tormenta, cree escuchar a un hombre acercarse a su casa. Con el tiempo, aprende a descifrar los sonidos de la lluvia y deja de esperar al visitante imaginario. Sin embargo, en una noche especialmente oscura y lluviosa, los pasos regresan. La atmósfera se vuelve densa y evocadora, mientras recuerdos del pasado emergen entre los murmullos del agua y el crujir de la vieja verja.

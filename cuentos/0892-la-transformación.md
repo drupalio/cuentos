@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mary-shelley-la-transformacion/15204/
 
+
+**Imagen:** 0892-la-transformación.webp
 ---
 
 Sinopsis: «La transformación» (Transformation), cuento gótico deMary Shelleypublicado en 1831, narra la historia de Guido, un joven genovés, apuesto, orgulloso y temerario que está comprometido con Julieta, una bella y angelical joven, hija de su tutor y mentor, el marqués Torella. Luego de derrochar su fortuna, Guido reclama a su prometida. Sin embargo, las condiciones que impone Torella para que se celebre el matrimonio hacen imposible la unión. Exiliado, solo y sin fortuna Guido piensa en cómo mejorar su situación, cuando conoce a un misterioso ser que le hará una oferta de riqueza y venganza que el ambicioso joven no podrá rechazar.

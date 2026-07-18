@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermann-hesse-caballero-hielo/1013/
 
+
+**Imagen:** 1225-el-caballero-sobre-el-hielo.jpg
 ---
 
 «El caballero sobre el hielo», cuento de Hermann Hesse, es una reflexiva narración ambientada en un pintoresco invierno en la Selva Negra, donde el protagonista y sus amigos disfrutan del patinaje sobre un río helado. A través de vívidas descripciones, Hesse captura la esencia de la juventud, con sus juegos, competiciones y la pura alegría de deslizarse sobre el hielo. Mientras sus amigos buscan la compañía de las chicas, el protagonista permanece ajeno a estos intereses, hasta que un acontecimiento inesperado despierta en él un tumulto de emociones desconocidas. La historia es un delicado relato sobre el despertar juvenil, la búsqueda del amor y el paso a la madurez, todo ello enmarcado en la belleza y la tranquilidad de un paisaje invernal.

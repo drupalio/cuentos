@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-al-pie-del-acantilado/13926/
 
+
+**Imagen:** 0992-al-pie-del-acantilado.jpg
 ---
 
 Sinopsis: «Al pie del acantilado» es un cuento deJulio Ramón Ribeyropublicado en 1964 enTres historias sublevantes. Narra la historia de un hombre y sus dos hijos, que se quedan sin hogar y se instalan en un balneario abandonado junto a la playa, bajo un acantilado. Con ingenio y utilizando los recursos que les ofrece el mar, comienzan a construir su nueva casa. En su empeño, reciben la ayuda de Samuel, un hábil y misterioso vagabundo que se une a ellos. Aunque al principio todo parece marchar bien, pronto descubrirán que la vida siempre presenta nuevos desafíos que deben afrontar con valentía y resiliencia.

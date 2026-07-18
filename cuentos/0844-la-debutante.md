@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/leonora-carrington-la-debutante/15630/
 
+
+**Imagen:** 0844-la-debutante.webp
 ---
 
 Sinopsis: «La debutante» (Le Débutant) es un cuento de Leonora Carrington, publicado en el libroLa Maison de la Peur(1938). La protagonista es una joven de alta sociedad, solitaria y desencantada, cuya única amiga es una hiena del zoológico. Desesperada por evitar su propio baile de debutante, la joven idea un plan insólito: intercambiarse con la hiena para que esta la reemplace en la fiesta. Con una atmósfera absurda, grotesca y cargada de humor negro, el relato de Carrington explora la rebelión contra las tradiciones y las rígidas convenciones sociales de su época.

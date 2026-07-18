@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roald-dahl-en-las-ruinas/23417/
 
+
+**Imagen:** 0862-en-las-ruinas.webp
 ---
 
 Sinopsis:«En las ruinas» (In the Ruins) es un perturbador cuento de Roald Dahl, inédito en español, publicado en junio de 1964 en elProgram of the World Book Fair. Ambientado en un paisaje devastado, la historia comienza cuando el narrador encuentra a un hombre en ropa interior, entregado a un macabro ritual de supervivencia. A su lado, un bolso médico y una jeringa revelan una inquietante rutina. Pronto, una niña pequeña se une a ellos, atraída por el humo de una fogata. En medio de los escombros, los tres personajes establecen un vínculo precario, mientras las reglas de la moralidad parecen haberse desvanecido junto con el mundo que conocían.

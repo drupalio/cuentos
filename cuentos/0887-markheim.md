@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-louis-stevenson-markheim/15228/
 
+
+**Imagen:** 0887-markheim.webp
 ---
 
 Sinopsis: «Markheim» es un cuento de Robert Louis Stevenson publicado en 1885 que fusiona lo policial con elementos de horror psicológico y sobrenatural. En Navidad, Markheim visita la tienda de un anticuario con la excusa de comprar un regalo, pero lo que verdaderamente pretende es robar la tienda. Tras salvar el obstáculo del anticuario, Markheim penetra en la casa y comienza una frenética búsqueda del dinero. Aunque se cree solo, Markheim pronto descubrirá que todos sus movimientos están siendo vigilados por un misterioso personaje, muy interesado en su vida y su crimen.

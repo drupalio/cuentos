@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-manuscrito-hallado-en-una-botella/6204/
 
+
+**Imagen:** 0757-manuscrito-hallado-en-una-botella.webp
 ---
 
 Sinopsis: «Manuscrito hallado en una botella» (MS. Found in a Bottle) es un cuento corto de Edgar Allan Poe, publicado el 19 de octubre de 1833 en elBaltimore Saturday Visiter. Narra la experiencia de un hombre anónimo que, insatisfecho con su vida y en busca de escape, se embarca en un navío que zarpa desde Batavia, Java, hacia un destino incierto. Aunque el viaje comienza sin contratiempos, una calma sobrenatural pronto se apodera del mar, presagiando una tempestad colosal que se desata abruptamente, sumiendo a la embarcación en el caos y el pánico.

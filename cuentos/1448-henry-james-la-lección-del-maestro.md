@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/henry-james-la-leccion-del-maestro/44/
 
+
+**Imagen:** 1448-henry-james-la-lección-del-maestro.jpg
 ---
 
 Le habían dicho que las señoras estaban en la iglesia, pero supo que no era así por lo que vio desde lo alto de las escaleras —descendían desde una gran altura en dos brazos, describiendo un círculo de un efecto encantador—, en el umbral de la puerta que, desde la larga y clara galería, dominaba el inmenso jardín. Tres caballeros, sobre la hierba, a cierta distancia, se hallaban sentados bajo los grandes árboles, mientras que la cuarta figura lucía un vestido rojo que destacaba como un «poco de color» entre el verde fresco e intenso. El sirviente había acompañado a Paul Overt hasta presentarle esta escena, después de preguntar si deseaba ir primero a su habitación. El joven declinó tal privilegio, consciente de no haber sufrido deterioro alguno con un viaje tan corto y fácil y siempre deseoso de adueñarse de inmediato, por su propia percepción, de un nuevo escenario. Permaneció allí un momento, con los ojos en el grupo y en el cuadro admirable: los amplios terrenos de una antigua casa de campo próxima a Londres —eso sólo lo mejoraba—, un espléndido domingo de junio.

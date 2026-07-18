@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/george-r-r-martin-el-hombre-de-la-casa-de-carne/17378/
 
+
+**Imagen:** 0631-el-hombre-de-la-casa-de-carne.webp
 ---
 
 Sinopsis:«El hombre de la casa de carne» (Meathouse Man) es un cuento de horror y ciencia ficción de George R. R. Martin, publicado en 1976 en la antologíaOrbit 18. Narra la historia de Greg Trager, un joven manipulador de cadáveres en el planeta industrial Skrakky, donde los cuerpos sin mente se utilizan para realizar trabajos pesados… y también para el placer. En un mundo distópico, marcado por la mecanización extrema y las relaciones vacías, Trager busca desesperadamente algo más: amor, sentido, conexión. Pero su anhelo choca una y otra vez con la crudeza del entorno y con su propia incapacidad para escapar del dolor.

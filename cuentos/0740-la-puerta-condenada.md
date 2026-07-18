@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-la-puerta-condenada/16826/
 
+
+**Imagen:** 0740-la-puerta-condenada.webp
 ---
 
 Sinopsis: «La puerta condenada» es un cuento deJulio Cortázarpublicado en 1956 en la colección Final del juego. La historia nos presenta a Petrone, un hombre de negocios que se hospeda en un sombrío hotel de Montevideo, recomendado por un conocido. A Petrone le agrada la tranquilidad del lugar, con pocas habitaciones ocupadas y una atmósfera silenciosa. Sin embargo, su estancia se torna inquietante cuando empieza a escuchar el misterioso llanto de un niño proveniente de la habitación contigua. A medida que los sonidos persisten, Petrone se siente cada vez más desconcertado y abrumado por la situación, hasta que una noche decide hacer algo para remediarlo.

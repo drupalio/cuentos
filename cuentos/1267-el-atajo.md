@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/adolfo-bioy-casares-el-atajo/7668/
 
+
+**Imagen:** 1267-el-atajo.jpg
 ---
 
 A las tres o cuatro horas de viaje, por la ruta interminablemente rectilínea, la vieja señora reblandecida, pero tan imperiosa como en sus mejores tiempos, ordena alchauffeur:«Agarre por el campo, corte camino».G. Messina,Desde el pescante.

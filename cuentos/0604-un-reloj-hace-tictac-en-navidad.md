@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/patricia-highsmith-un-reloj-hace-tictac-en-navidad/6592/
 
+
+**Imagen:** 0604-un-reloj-hace-tictac-en-navidad.webp
 ---
 
 Sinopsis:«Un reloj hace tictac en Navidad» (A Clock Ticks at Christmas), cuento de Patricia Highsmith publicado enMermaids on the Golf Course(1985),nos presenta a Michèle y Charles, un matrimonio parisino acomodado cuya vida da un vuelco tras un encuentro fortuito de Michèle con un niño humilde en vísperas de Navidad. Movida por el espíritu de generosidad de la temporada navideña, Michèle invita al niño a su casa y le ofrece ayuda. Sin embargo, la visita pone al descubierto tensiones y diferencias fundamentales en la pareja, que revelan sus distintas perspectivas sobre la caridad, la confianza y el valor de las las relaciones humanas.

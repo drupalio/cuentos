@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elena-garro-luna-de-miel/6786/
 
+
+**Imagen:** 0644-luna-de-miel.jpg
 ---
 
 Sinopsis:«Luna de miel», cuento deElena Garropublicado en 1997 en la colecciónEl accidente y otros cuentos inéditos, narra la historia de Eva y Vicente, una pareja que emprende un viaje de despedida a Puerto Vallarta. Vicente se prepara para partir a Italia por varios años, dejando a Eva atrás. Aunque viajan en el mismo vuelo y se hospedan en el mismo hotel, se evitan en los lugares públicos, ya que el suyo es un amor secreto y prohibido. A pesar de su deseo de compartir estos últimos días juntos, diversas circunstancias y personajes conspiran para mantenerlos separados.

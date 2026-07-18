@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/henry-kuttner-el-horror-de-salem/19382/
 
+
+**Imagen:** 0448-el-horror-de-salem.webp
 ---
 
 Sinopsis:«El horror de Salem» (The Salem Horror) es un cuento de Henry Kuttner, publicado en mayo de 1937 en la revistaWeird Tales. Narra la historia de Carson, un escritor que alquila una antigua casa en Salem para encontrar tranquilidad y terminar su novela. Pronto, descubre extraños ruidos en el sótano y una inquietante presencia en la casa, vinculada a una antigua bruja llamada Abigail Prinn. Movido por la curiosidad, Carson halla una habitación oculta llena de símbolos arcanos, sin sospechar el oscuro poder que aún mora allí. A medida que profundiza en su hallazgo, se verá atrapado en un horror inimaginable.

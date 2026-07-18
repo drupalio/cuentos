@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-jose-arreola-una-mujer-amaestrada/4520/
 
+
+**Imagen:** 1342-juan-josé-arreola-una-mujer-amaestrada.jpg
 ---
 
 … et nunc manet in te…

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-muere-un-hombre-cuidadoso/20037/
 
+
+**Imagen:** 0416-muere-un-hombre-cuidadoso.webp
 ---
 
 Sinopsis: «Muere un hombre cuidadoso» (A Careful Man Dies) es un cuento de Ray Bradbury, publicado en noviembre de 1946 enNew Detective Magazine. La historia sigue a Robert Douglas, un hombre que, debido a su hemofilia, ha aprendido a vivir con extrema precaución, evitando cualquier herida que pueda ser fatal. Su rutina meticulosa y su inteligencia lo han mantenido a salvo hasta ahora, pero algo ha cambiado. Recibe una misteriosa caja con una trampa mortal, lo que le hace darse cuenta de que alguien lo odia lo suficiente como para intentar asesinarlo. Desde ese momento, su mundo metódico se convierte en un juego de supervivencia contra un enemigo oculto.

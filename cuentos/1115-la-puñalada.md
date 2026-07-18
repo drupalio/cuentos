@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-la-punalada/5301/
 
+
+**Imagen:** 1115-la-puñalada.jpg
 ---
 
 Sinopsis: «La puñalada», cuento de Emilia Pardo Bazán publicado en 1901, narra la tumultuosa relación entre Claudia, una modistilla coqueta y vanidosa, y Onofre, un carpintero fuerte y apasionado, en un barrio donde su amor es bien conocido. A pesar de sus sentimientos mutuos, las circunstancias sociales y familiares obstaculizan que su relación prospere hacia algo más formal. Mientras Onofre muestra su amor con regalos y atenciones, Claudia se enfrenta a dilemas personales y presiones externas que la llevan a tomar decisiones que podrían alterar drásticamente el curso de sus vidas. Un relato crudo en el que se mezclan el amor, la ambición y los celos.

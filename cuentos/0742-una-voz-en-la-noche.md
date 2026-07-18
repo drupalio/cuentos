@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/william-hope-hodgson-una-voz-en-la-noche/24364/
 
+
+**Imagen:** 0742-una-voz-en-la-noche.webp
 ---
 
 Sinopsis:«Una voz en la noche» (The Voice in the Night) es un cuento de William Hope Hodgson, publicado en noviembre de 1907 enThe Blue Book Magazine. Durante una noche brumosa y sin estrellas en el Pacífico Norte, una goleta permanece inmóvil en medio del océano. De pronto, una voz inquietante irrumpe desde la niebla, llamando al barco con insistencia. Quien habla permanece en las sombras y se niega a acercarse a la luz. Su tono es desesperado y su petición, extraña. Los marineros, desconcertados, intentan entender quién es y qué misterio esconde esa figura invisible que rehúye ser vista.

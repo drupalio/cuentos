@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bertolt-brecht-la-herida-de-socrates/269/
 
+
+**Imagen:** 0896-la-herida-de-sócrates.jpg
 ---
 
 Sinopsis: En «La herida de Sócrates» (Der verwundete Sokrates), cuento publicado en  1948, Bertolt Brecht narra la experiencia del célebre filósofo ateniense Sócrates durante la batalla de Delio, en la primera fase de la guerra del Peloponeso. Mientras marcha hacia el combate, Sócrates se muestra escéptico sobre la estrategia militar y reflexiona sobre la naturaleza de la guerra y la defensa de la ciudad. En medio de la refriega, los atenienses emprenden la huida para escapar del ejército enemigo, pero una situación fortuita lleva a Sócrates a detener a sus compañeros en fuga y enfrentar a sus perseguidores. Como resultado, Atenas gana la batalla, y Sócrates es recordado no solo por su sabiduría, sino también por su valentía. Sin embargo, en su relato, Brecht ofrece una interpretación diferente sobre la situación y el verdadero motivo para admirar el valor de Sócrates.

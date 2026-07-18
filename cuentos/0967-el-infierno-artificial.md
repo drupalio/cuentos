@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-infierno-artificial/22553/
 
+
+**Imagen:** 0967-el-infierno-artificial.webp
 ---
 
 Sinopsis: «El infierno artificial» es un cuento de Horacio Quiroga, publicado por primera vez en 1917 en la edición original deCuentos de amor de locura y de muerte, aunque fue suprimido en ediciones posteriores del libro. La historia comienza en un cementerio solitario, donde un sepulturero, adicto al cloroformo, deambula entre las tumbas en busca de su dosis nocturna. Su errático andar lo conduce hasta un ataúd abierto, donde halla algo insólito: en el cráneo de un esqueleto, descubre un diminuto hombrecillo vivo y suplicante que clama por una sustancia que lo consume desde más allá de la muerte. Lo que sigue es un relato perturbador sobre la adicción, el deseo irrefrenable y los paraísos falsos que se tornan infiernos.

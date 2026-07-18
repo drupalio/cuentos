@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arturo-uslar-pietri-los-ganadores/6818/
 
+
+**Imagen:** 1276-los-ganadores.jpg
 ---
 
 Una vez el mundo se acabó por la sequía. Acaso, el último testigo fue un bibliotecario. Dejó de llover. Pasaban los meses y el cielo permanecía azul, limpio, seco. Toda la Primavera se fue sin que lloviera. Se esperaba, día por día, la llegada del aguacero. Se percibían algunas nubes estrechas y remolonas pero no terminaban de condensarse. Pasaban altas y sueltas sobre los campos enjutos. Se recordaba en los periódicos años anteriores de larga sequía. Pero a cada día que pasaba parecía que esta vez iba a ser peor.

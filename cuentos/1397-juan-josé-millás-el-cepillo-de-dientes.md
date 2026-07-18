@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-jose-millas-el-cepillo-de-dientes/2436/
 
+
+**Imagen:** 1397-juan-josé-millás-el-cepillo-de-dientes.jpg
 ---
 
 Querida Beatriz,

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-el-beso/11802/
 
+
+**Imagen:** 1161-el-beso.webp
 ---
 
 El cuento «El beso», de Guy de Maupassant, es un relato en formato epistolar publicado en 1882 en el que una peculiar tía ofrece sabios consejos sobre el amor y el arte de amar a su sobrina, afligida por el abandono de su esposo. A través de reflexiones sobre el poder del beso y la diplomacia en las relaciones, destaca la importancia del tacto y la moderación en la expresión del afecto, sugiriendo que la eficacia del amor radica en su sutileza y en el manejo cuidadoso de sus manifestaciones.

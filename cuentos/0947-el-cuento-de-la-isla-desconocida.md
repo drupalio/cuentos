@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-saramago-el-cuento-de-la-isla-desconocida/14325/
 
+
+**Imagen:** 0947-el-cuento-de-la-isla-desconocida.jpg
 ---
 
 Sinopsis: «El cuento de la isla desconocida» (O Conto da Ilha Desconhecida) es un relato del escritor portugués José Saramago, publicado en 1997. Narra la historia de un hombre que, con tenacidad y una extraña convicción, se presenta ante el rey para pedirle un barco con el que buscar una isla que aún no figura en los mapas. Su petición, insólita y persistente, hace ceder finalmente al rey, quien accede a entregarle una antigua carabela. A esta empresa se une inesperadamente la mujer de la limpieza del palacio, decidida a cambiar su destino. Juntos emprenden un viaje que es también una búsqueda interior, donde lo desconocido se confunde con el deseo de descubrirse a sí mismos.

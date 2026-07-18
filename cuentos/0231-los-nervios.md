@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-los-nervios/5218/
 
+
+**Imagen:** 0231-los-nervios.webp
 ---
 
 Sinopsis: «Los nervios» es un cuento de Antón Chéjov publicado el 8 de junio de 1885 en la revistaFragmentos. Narra la inquieta noche del arquitecto Dmitri Vaksin, quien, tras asistir a una sesión de espiritismo, repleta de historias lúgubres sobre fantasmas y enterrados vivos, regresa a su casa de campo, donde su esposa está ausente. En la semioscuridad de su dormitorio, su imaginación se desborda y comienza a percibir presencias extrañas que lo rodean. Presa del miedo, lucha por mantener la calma y busca desesperadamente compañía mientras la noche avanza lentamente.

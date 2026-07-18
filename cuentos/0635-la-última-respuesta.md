@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-la-ultima-respuesta/8919/
 
+
+**Imagen:** 0635-la-última-respuesta.jpg
 ---
 
 Sinopsis: «La última respuesta» (The Last Answer) es un cuento de Isaac Asimov, publicado en enero de 1980 en la revistaAnalog Science Fiction/Science Fact. La historia comienza con la muerte repentina de Murray Templeton, un físico ateo que, para su sorpresa, conserva la conciencia más allá de la vida. En ese estado extraño y etéreo, entabla un diálogo con una misteriosa Voz que parece trascender cualquier comprensión humana. El relato se adentra en una exploración filosófica sobre la eternidad, el conocimiento y el propósito de la existencia, mientras Templeton intenta comprender el sentido de su nueva realidad.

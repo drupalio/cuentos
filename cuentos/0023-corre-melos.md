@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/osamu-dazai-corre-melos/28380/
 
+
+**Imagen:** 0023-corre-melos.webp
 ---
 
 Sinopsis:«Corre, Melos» (走れメロス,Hashire Merosu) es un cuento del escritor japonés Osamu Dazai, publicado en mayo de 1940 en la revistaShinchō. Melos, un joven pastor de una aldea cercana a Siracusa, llega a la ciudad para comprar lo necesario para la boda de su hermana. Allí descubre que el rey Dionisio, consumido por la desconfianza, ha sembrado el terror entre sus súbditos y manda matar a quienes considera sospechosos. Indignado, Melos decide enfrentarse al tirano, pero es capturado y condenado a muerte. Antes de ser ejecutado, pide tres días de plazo para celebrar la boda y deja como rehén a su mejor amigo, el cantero Selinuntius. Si no regresa a tiempo, el rey lo matará en su lugar.

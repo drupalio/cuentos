@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-william-wilson-2/95/
 
+
+**Imagen:** 0678-william-wilson.webp
 ---
 
 Sinopsis:«William Wilson» es un relato gótico de Edgar Allan Poe, publicado enBurton’s Gentleman’s Magazineen octubre de 1839. La historia sigue a un hombre que adopta el seudónimo de «William Wilson» para contar su vida, marcada desde joven por un carácter impulsivo, conductas disolutas y un fuerte deseo de dominio sobre los demás. Durante su estancia en una escuela inglesa, enfrenta un desafío inesperado: un compañero con su mismo nombre que lo imita y lo iguala en habilidades de forma inquietante. A medida que pasan los años, la presencia de este doble se convierte en una sombra constante y amenazante, que desafía su voluntad y cuestiona su identidad.

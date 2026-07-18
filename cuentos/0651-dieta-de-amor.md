@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-dieta-de-amor/6425/
 
+
+**Imagen:** 0651-dieta-de-amor.jpg
 ---
 
 Sinopsis:«Dieta de amor» es un cuento de Horacio Quiroga, publicado en junio de 1917 en la revistaPlus Ultrae incluido luego en la colecciónAnaconda(1921). Un hombre se cruza en la calle con una joven que lo cautiva y, movido por la curiosidad, decide seguirla. Descubre que la muchacha es hija de un peculiar médico especializado en dietas. Aunque escéptico ante la profesión del padre, comienza a cortejarla hasta convertirse en su novio. Así ingresa al círculo íntimo del doctor Swindenborg, donde el amor se mezcla con estrictas costumbres alimenticias que pronto afectarán su cuerpo y su ánimo.

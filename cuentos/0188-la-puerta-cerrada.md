@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-donoso-la-puerta-cerrada/941/
 
+
+**Imagen:** 0188-la-puerta-cerrada.webp
 ---
 
 Sinopsis:«La puerta cerrada» es un cuento del escritor chileno José Donoso, publicado en 1959 en el libroCuentos de la generación del 50. Adela de Rengifo, viuda joven y pobre, se inquieta porque su hijo Sebastián duerme mucho más de lo normal: no por cansancio ni enfermedad, sino porque le gusta. A medida que el niño crece, esa inclinación se vuelve una vocación inexplicable. Sebastián confiesa que, aunque no recuerda sus sueños, sabe que en ellos lo aguarda una felicidad luminosa, oculta tras una puerta invisible que algún día espera abrir. Cada vez más apartado del mundo y ajeno a lo que los demás consideran una vida normal, se hunde en una búsqueda que su madre y quienes lo rodean no logran comprender.

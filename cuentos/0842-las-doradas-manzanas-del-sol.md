@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-las-doradas-manzanas-del-sol/15695/
 
+
+**Imagen:** 0842-las-doradas-manzanas-del-sol.webp
 ---
 
 Sinopsis: «Las doradas manzanas del sol» (The Golden Apples of the Sun), es un cuento corto deRay Bradburypublicado en 1953. A bordo del coheteCopa de Oro, un capitán y su tripulación se embarcan en una misión audaz: tocar el sol y robar un fragmento de su fuego eterno. Con un calor abrasador y temperaturas que desafían la imaginación, este viaje épico explora los límites de la ciencia, la valentía y la locura humana. A medida que el frío y el calor luchan por el control dentro de la nave, el destino de la tripulación pende de un hilo. Bradbury nos ofrece un relato deslumbrante que fusiona poesía y ciencia ficción en una aventura cósmica hacia el corazón del sol.

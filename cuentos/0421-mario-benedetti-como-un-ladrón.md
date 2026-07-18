@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-ladron-1947/521/
 
+
+**Imagen:** 0421-mario-benedetti-como-un-ladrón.jpg
 ---
 
 Yo vivía relativamente cómodo, acaso porque no se me había ocurrido creer en Dios. Ahora sé que muy pocos están en condiciones de aceptar esto que de tan sencillo es casi estúpido. Los más se imaginan que cada uno tiene la obligación de nacer con su pequeño dios. También se tiene el deber de nacer de cabeza y sin embargo siempre hay algún díscolo que nace de trasero.

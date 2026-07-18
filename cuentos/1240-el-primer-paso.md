@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-el-primer-paso/6554/
 
+
+**Imagen:** 1240-el-primer-paso.jpg
 ---
 
 Danilo pensó que si su madre no hubiera muerto, que si no fuera por esa riña donde perdió los dientes, que si no tuviera un solo terno verde, no tendría que estarse a esa hora en el bar, con el ojo clavado en el reloj de péndulo y el espíritu torturado por la espera. Pero a causa de todo ello, horas más tarde estaría instalado en un ómnibus, rumbo al norte del país, recostado en el hombro de Estrella. El arenal se divisaría desde la ventana, amarillo e interminable, como un paisaje lunar. Todo eso iba a suceder. Parecía mentira. Iba a suceder porque había perdido los dientes en una riña, porque Panchito lo había descubierto rondando sin un cobre por el billar.

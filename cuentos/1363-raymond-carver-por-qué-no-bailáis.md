@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/raymond-carver-por-que-no-bailais/3845/
 
+
+**Imagen:** 1363-raymond-carver-por-qué-no-bailáis.jpg
 ---
 
 Se sirvió otra copa en la cocina y miró los muebles del dormitorio, situados en la parte delantera de su jardín. Excepto el colchón desnudo y las sábanas a vivas rayas, que descansaban junto a dos almohadas sobre el chifonier, todo mostraba un aspecto muy semejante al que había tenido el dormitorio: mesilla de noche y pequeña lámpara a su lado de la cabecera, mesilla de noche y pequeña lámpara al otro lado, el de ella.

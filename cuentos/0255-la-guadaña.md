@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-la-guadana/12989/
 
+
+**Imagen:** 0255-la-guadaña.jpg
 ---
 
 Sinopsis:«La guadaña» (The Scythe) es un cuento de Ray Bradbury, publicado en julio de 1943 en la revistaWeird Tales. Relata la llegada de una familia agotada y hambrienta a una casa solitaria junto a un misterioso campo de trigo. Drew Erickson, el padre, descubre un testamento que le lega la propiedad, incluida una brillante guadaña. A medida que intenta reconstruir su vida en aquel lugar fértil y aparentemente providencial, el campo y la herramienta comienzan a revelar un propósito más profundo y oscuro. En un entorno cargado de simbolismo, Drew enfrenta una tarea que trasciende lo agrícola y lo arrastra hacia lo inevitable.

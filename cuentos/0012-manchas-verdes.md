@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-manchas-verdes/28439/
 
+
+**Imagen:** 0012-manchas-verdes.webp
 ---
 
 Sinopsis:«Manchas verdes» (Green Patches) es un cuento del escritor estadounidense de origen ruso Isaac Asimov, publicado originalmente con el títuloMisbegotten Missionaryen noviembre de 1950 en la revistaGalaxy Science Fiction. Una nave de exploración abandona el planeta de Saybrook después de estudiar su singular ecosistema, en el que todas las formas de vida parecen integrar una única conciencia biológica. Aunque la tripulación ha tomado rigurosas precauciones para evitar cualquier contaminación, una falla momentánea en la barrera de energía permite que una criatura se cuele a bordo. Oculta en la nave, contempla con compasión a los humanos, a quienes considera simples fragmentos de vida, y aguarda el regreso a la Tierra, donde se propone integrarlos a todos en una sola entidad viviente.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-todo-el-verano-en-un-dia/4082/
 
+
+**Imagen:** 0458-todo-el-verano-en-un-día.webp
 ---
 
 Sinopsis:«Todo el verano en un día» (All Summer in a Day) es un cuento de Ray Bradbury, publicado en marzo de 1954 en la revistaThe Magazine of Fantasy and Science Fiction. La historia transcurre en Venus, donde la lluvia cae sin cesar y el sol solo aparece durante una hora cada siete años. En una escuela subterránea, un grupo de niños espera ansiosamente ese momento único. Sin embargo, no todos ellos podrán vivir el acontecimiento de la misma manera. Un relato en el que Bradbury utiliza la ciencia ficción para plasmar la cruda realidad de la crueldad y el acoso escolar infantil.

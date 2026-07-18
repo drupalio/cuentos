@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/algernon-blackwood-la-muneca/13542/
 
+
+**Imagen:** 0751-la-muñeca.webp
 ---
 
 Sinopsis: «La Muñeca» (The Doll), cuento de Algernon Blackwood publicado en 1946, narra la historia del coronel Hymbers Masters, oficial retirado del Ejército de la India. Una noche, un misterioso hombre trae un paquete con la instrucción expresa de que le sea entregado al coronel en persona. Varios días después, el coronel descubre que el paquete contiene una muñeca y da la orden de que sea destruida. Sin embargo, la cocinera desatiende la instrucción y se la regala a Mónica, la hija del coronel, quien de inmediato se encariña con ella y la convierte en su compañera. A partir de ese momento, misteriosos sucesos empiezan a perturbar la vida en la residencia de los Masters.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-mar-afuera/2100/
 
+
+**Imagen:** 0832-mar-afuera.webp
 ---
 
 Sinopsis: «Mar afuera», cuento del peruano Julio Ramón Ribeyro incluido en la colecciónLos gallinazos sin plumas(1955), nos sumerge en el inquietante viaje de dos pescadores, Dionisio y Janampa, que se adentran en la oscuridad del océano. A medida que se alejan de la costa, la tensión entre ellos aumenta, revelando una historia marcada por la frustración y el rencor. Mientras avanza la narración, la atmósfera se vuelve más opresiva y el lector se ve envuelto en un relato lleno de suspense en el que el destino parece inevitable.

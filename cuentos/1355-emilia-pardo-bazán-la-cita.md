@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-la-cita/4230/
 
+
+**Imagen:** 1355-emilia-pardo-bazán-la-cita.jpg
 ---
 
 Alberto Miravalle, excelente muchacho, no tenía más que un defecto: creía que todas las mujeres se morían por él.

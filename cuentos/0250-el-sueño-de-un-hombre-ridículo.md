@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fiodor-dostoyevski-el-sueno-de-un-hombre-ridiculo/25998/
 
+
+**Imagen:** 0250-el-sueño-de-un-hombre-ridículo.webp
 ---
 
 Sinopsis:«El sueño de un hombre ridículo» (Son smeshnogo cheloveka) es un relato fantástico de Fiódor Dostoyevski, publicado en 1877 enDnevnik pisatelya(Diario de un escritor). En una lúgubre noche de noviembre en San Petersburgo, un hombre deambula absorto en sus pensamientos, sumido en una profunda crisis existencial. Convencido de que todo carece de sentido y hastiado de la vida, toma una determinación extrema. Sin embargo, el encuentro con una angustiada niña que le solicita ayuda lo deja inquieto y abre en él una fisura inesperada, que alterará su propósito y lo conducirá a una experiencia decisiva.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-la-isla-a-mediodia/5269/
 
+
+**Imagen:** 0531-la-isla-a-mediodía.webp
 ---
 
 Sinopsis:«La isla a mediodía» es un cuento de Julio Cortázar, publicado en 1966 en el libroTodos los fuegos el fuego. Relata la historia de Marini, un auxiliar de vuelo que tres veces por semana cruza a mediodía el cielo de una pequeña isla griega llamada Xiros. Desde la ventanilla del avión, Marini observa obsesivamente la isla rocosa y solitaria, con sus playas desiertas, casas plomizas y redes de pescadores secándose al sol. A medida que la isla se vuelve cada vez más nítida y deseable, el protagonista comienza a sentir que su vida cotidiana pierde sentido frente a la atracción irresistible de ese lugar aislado y misterioso.

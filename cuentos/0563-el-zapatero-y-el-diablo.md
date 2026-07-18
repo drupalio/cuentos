@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-el-zapatero-y-el-diablo/25506/
 
+
+**Imagen:** 0563-el-zapatero-y-el-diablo.webp
 ---
 
 Sinopsis:«El zapatero y el diablo» (Сапожник и нечистая сила) es un cuento de Antón Chéjov, publicado el 25 de diciembre de 1888 enLa Gaceta de Petersburgo. En la víspera de Navidad, Fiódor Nílov, un zapatero pobre, trabaja de noche para cumplir un encargo mientras se lamenta de su miseria y de la desigualdad entre ricos y pobres. Humillado y cansado de su suerte, se dirige a la casa de un extraño cliente, cuya actividad y apariencia despiertan inquietantes sospechas. Allí, impulsado por la envidia, Fiódor se enfrenta a una tentadora posibilidad de transformar su destino.

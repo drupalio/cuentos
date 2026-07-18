@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hanns-heinz-ewers-la-arana/15106/
 
+
+**Imagen:** 0456-la-araña.jpg
 ---
 
 Sinopsis: «La araña» (Die Spinne), es un inquietante relato de terror psicológico de Hanns Heinz Ewers, publicado en 1908 enDie Besessenen: Seltsame Geschichten. Narra la historia de Richard Bracquemont, un estudiante de medicina que se ofrece a investigar una serie de misteriosos suicidios ocurridos en la habitación número 7 de un pequeño hotel parisino. A medida que pasan los días, Richard desarrolla una extraña obsesión con una enigmática mujer que observa en la ventana del edificio de enfrente. Entre ambos se establece un hipnótico juego que se torna progresivamente más intenso y perturbador.

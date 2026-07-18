@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/cesar-vallejo-paco-yunque/4207/
 
+
+**Imagen:** 0051-paco-yunque.jpg
 ---
 
 Sinopsis:«Paco Yunque» es un conmovedor cuento del escritor peruano César Vallejo, publicado en 1951 enApuntes del Hombre. Paco Yunque es un niño que llega a su primer día en un nuevo colegio, donde se siente abrumado por el bullicio y la actividad de sus compañeros. Tímido y proveniente del campo, le cuesta habituarse a ese entorno desconocido. Su situación se vuelve aún más difícil cuando aparece en el salón Humberto Grieve, el hijo de los patrones de su madre, un niño caprichoso y autoritario. Desde ese momento, Paco deberá enfrentar una serie de abusos que lo exponen a la humillación y al aislamiento en un lugar donde nadie parece dispuesto a defenderlo.

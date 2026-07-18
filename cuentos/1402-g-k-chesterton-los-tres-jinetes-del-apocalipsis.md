@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/g-k-chesterton-los-tres-jinetes-del-apocalipsis/2357/
 
+
+**Imagen:** 1402-g-k-chesterton-los-tres-jinetes-del-apocalipsis.jpg
 ---
 
 La singular y a veces inquietante impresión que Mr. Pond me causaba, a pesar de su cortesía trivial y de su corrección, se vinculaba tal vez a alguno de mis primeros recuerdos y a la vaga sugestión verbal de su nombre. Era un viejo amigo de mi padre, un funcionario; y sospecho que mi imaginación infantil había mezclado de algún modo el nombre de Mr. Pond con el estanque del jardín. Pensándolo bien, se parecía extrañamente al estanque. Era, en general, tan sereno, tan regular y tan claro en sus habituales reflejos de la tierra, del cielo y de la luz del día como aquél. Y yo sabía, sin embargo, que había algunas cosas raras en el estanque del jardín. Una o dos veces al año el estanque parecía un poco distinto: una sombra fugaz o un destello interrumpía su lisa tranquilidad, y un pez o un sapo o alguna criatura más grotesca se mostraba al cielo. Y yo sabía que también en Mr. Pond había monstruos: monstruos mentales que emergían un instante a la superficie y luego se perdían. Tomaban las formas de observaciones monstruosas en medio de sus observaciones inofensivas y razonables. Algunos interlocutores pensaban que en la mitad de un diálogo juicioso se volvía loco. Pero también reconocían que regresaba a la cordura inmediatamente.

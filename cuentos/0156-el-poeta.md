@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermann-hesse-el-poeta/27792/
 
+
+**Imagen:** 0156-el-poeta.webp
 ---
 
 Sinopsis:«El poeta» («Der Dichter») es un cuento del escritor alemán Hermann Hesse, publicado el 2 de abril de 1913 en el periódicoDer Tag. Han Fook es un joven apuesto, instruido y prometido en matrimonio con una hermosa muchacha de buena familia. Aunque todo parece anunciarle una vida feliz, siente que su verdadero anhelo es alcanzar la perfección en el arte de la poesía. Una noche, durante la fiesta de los faroles, mientras contempla desde la orilla del río el resplandor de las luces sobre el agua, comprende que su destino lo aparta de la vida común. Entonces aparece un misterioso anciano que lo invita a seguirlo hasta su cabaña en las montañas para aprender el verdadero arte.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/clive-barker-terror/22882/
 
+
+**Imagen:** 0939-terror.webp
 ---
 
 Sinopsis: «Terror» (Dread) es un cuento del escritor británico Clive Barker, publicado en 1984 en la antologíaBooks of Blood: Volume II. La narración gira en torno a Stephen Grace, un joven estudiante que entabla amistad con Quaid, un hombre enigmático y provocador obsesionado con explorar la naturaleza del miedo. Fascinado por sus ideas, Stephen se ve arrastrado a un experimento filosófico que busca enfrentar a las personas con sus terrores más íntimos. Lo que comienza como una curiosa conversación académica se convierte en una inquietante exploración de los límites de la mente humana.

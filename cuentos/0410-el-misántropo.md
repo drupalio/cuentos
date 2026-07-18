@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/j-d-beresford-misantropo/1069/
 
+
+**Imagen:** 0410-el-misántropo.webp
 ---
 
 Sinopsis:«El misántropo» (The Misanthrope) es un cuento del escritor inglés J. D. Beresford, publicado en 1918 en el libroNineteen Impressions. Intrigado por las historias sobre un misterioso ermitaño que habita en el remoto islote de Gulland, un hombre decide viajar hasta allá. Ahí conoce a William Copley, quien ha elegido vivir aislado de la sociedad. Invitado a pasar una noche con él, el visitante se convierte gradualmente en confidente de Copley, que le revela la inquietante condición que lo aqueja: una particular capacidad de percepción que lo ha sumido en un profundo rechazo hacia la humanidad.

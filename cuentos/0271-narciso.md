@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/manuel-mujica-lainez-narciso/2187/
 
+
+**Imagen:** 0271-narciso.webp
 ---
 
 Sinopsis:«Narciso» es un cuento de Manuel Mujica Láinez, publicado en 1978 en el libroEl brazalete y otros cuentos. Serafín es un hombre solitario que habita un departamento miserable en compañía de varios gatos. Cada día al volver de la oficina, Serafín se sienta durante horas frente a un gran espejo heredado, que le devuelve la imagen de un muchacho hermoso y misterioso. Esta afición poco a poco se convierte en obsesión, mientras la suciedad y el abandono comienzan a apoderarse del lugar y Serafín lo descuida todo, incluidos sus gatos.

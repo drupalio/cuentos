@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/armando-cassigoli-un-recital-memorable/148/
 
+
+**Imagen:** 1446-armando-cassigoli-un-recital-memorable.jpg
 ---
 
 Este memorable, curioso y verídico acontecimiento, sucedió en Santiago, en la época presente y fue protagonizado por una pareja de inquietos jóvenes artistas, que —como ellos mismos decían— trataban de agitar el ambiente cultural de la patria “en pro de su desarrollo y difusión”.

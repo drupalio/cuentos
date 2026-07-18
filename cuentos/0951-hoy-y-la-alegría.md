@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-hoy-la-alegria/653/
 
+
+**Imagen:** 0951-hoy-y-la-alegría.webp
 ---
 
 Sinopsis: «Hoy y la alegría» es un cuento de Mario Benedetti publicado en 1949 en la colecciónEsta mañana. Al despertar, un hombre experimenta una sensación de alegría serena. Mientras pasa la mañana con su esposa e hijas, revive imágenes de la infancia y reconstruye en su mente escenas de un amor pasado que nunca llegó a consumarse plenamente. Movido por ese vaivén entre el recuerdo y la imaginación, sale a caminar por el parque y se encuentra con una mujer a la que no veía desde hacía años. Este encuentro activa viejas emociones y le permite enfrentarse a los recuerdos que había guardado durante tanto tiempo.

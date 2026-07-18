@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/nataniel-hawthorne-la-hija-de-rapaccini/15142/
 
+
+**Imagen:** 0307-la-hija-de-rapaccini.webp
 ---
 
 Sinopsis: La hija de Rapaccini (Rappaccini’s Daughter), cuento gótico Nathaniel Hawthorne, narra la historia de Giovanni Guasconti, un joven estudiante que llega a Padua y se instala en una modesta habitación con vista a un jardín misterioso. Este jardín pertenece al doctor Rapaccini, un científico renombrado por sus experimentos con plantas venenosas. Giovanni pronto se siente fascinado por Beatriz, la hermosa hija del doctor, que parece vivir en simbiosis con las extrañas plantas del jardín. A medida que Giovanni se acerca más a Beatriz, descubre que su belleza encierra un peligro mortal.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-posesion/24251/
 
+
+**Imagen:** 0760-posesión.webp
 ---
 
 Sinopsis: «Posesión» es un cuento de Emilia Pardo Bazán, publicado el 13 de mayo de 1895 en el periódicoEl Imparcial. Narra el encuentro entre un fraile dominico y Dorotea de Guzmán, una mujer acusada de estar poseída por el demonio y condenada a morir en la hoguera. En el calabozo, el religioso intenta conmoverla y arrancarla del poder de Satanás apelando a la misericordia divina, mientras ella, altiva y desafiante, le cuenta su historia. El diálogo, tenso y cargado de simbolismo, confronta la fe del fraile con la obstinación de Dorotea, insinuando una lucha espiritual de difícil resolución.

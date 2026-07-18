@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-el-pozo-de-la-vida/7535/
 
+
+**Imagen:** 1210-el-pozo-de-la-vida.webp
 ---
 
 «El pozo de la vida» es un relato alegórico deEmilia Pardo Bazán, publicado en 1905. La historia nos transporta a un desierto donde un hombre enfermo es abandonado en un oasis, junto al enigmático pozo de la vida. Las aguas de este pozo tienen la peculiaridad de que su sabor varía según quien las beba: mientras que para algunos son frescas y dulces, para otros resultan amargas e insoportables. A través de una narración vívida y poética, Pardo Bazán explora la subjetividad de la experiencia humana y la percepción de la realidad, tejiendo un relato introspectivo y de profundo corte existencial.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/henryk-sienkiewicz-janko-el-musico/28028/
 
+
+**Imagen:** 0109-janko-el-músico.webp
 ---
 
 Sinopsis:«Janko el músico» (Janko Muzykant) es un cuento del escritor polaco Henryk Sienkiewicz, publicado el 18 de julio de 1879 en el periódicoKurjer Warszawski. Janko es un niño enfermizo, hijo de una campesina pobre, que crece entre el hambre y la incomprensión de quienes lo rodean. Incapaz de cumplir bien las tareas que le encargan, posee una sensibilidad extraordinaria para la música: escucha melodías en el bosque, en el canto de los pájaros y en los sonidos de la aldea. Pero para él, ninguna música es comparable a la de un violín verdadero, y tocar uno se convierte en el deseo más intenso de su vida.

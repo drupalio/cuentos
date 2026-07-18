@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-la-esfinge/8388/
 
+
+**Imagen:** 1246-edgar-allan-poe-la-esfinge.jpg
 ---
 
 Durante el espantoso reinado del cólera en Nueva York acepté la invitación de un pariente a pasar quince días en el retiro de su confortablecottage, a orillas del Hudson. Teníamos allí todos los habituales medios de diversión veraniegos; y vagabundeando por los bosques con nuestros cuadernos de diseño, navegando, pescando, bañándonos, con la música y los libros hubiéramos pasado bastante bien el tiempo, de no ser por las temibles noticias que nos llegaban todas las mañanas de la populosa ciudad. No transcurría un día sin que nos trajeran nuevas de la muerte de algún conocido. Por lo tanto, como la mortalidad aumentaba, aprendimos a esperar diariamente la pérdida de algún amigo. Al fin temblábamos ante la cercanía de cada mensajero. El mismo aire del sur nos parecía impregnado de muerte. Este paralizante pensamiento se apoderó de mi alma toda. No podía hablar, ni pensar, ni soñar en nada. Mi huésped era de temperamento menos excitable y, aunque su ánimo estaba muy deprimido, se esforzaba por confortar el mío. En ningún momento lo imaginario afectaba su intelecto, bien nutrido de filosofía. Estaba suficientemente vivo para los terrores concretos, pero sus sombras no lo atemorizaban.

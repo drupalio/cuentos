@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-g-wells-la-habitacion-roja/28419/
 
+
+**Imagen:** 0021-la-habitación-roja.webp
 ---
 
 Sinopsis:«La habitación roja» (The Red Room) es un cuento del escritor británico H. G. Wells, publicado en marzo de 1896 en la revistaThe Idler. Un joven llega a un antiguo castillo decidido a pasar la noche en una habitación con fama de estar embrujada. Los tres ancianos que custodian el lugar intentan disuadirlo, pero él insiste en comprobar por sí mismo si las historias tienen algún fundamento. Armado de una vela y un revólver, atraviesa pasillos oscuros y salones silenciosos hasta llegar al cuarto donde tiempo atrás murió un noble. Allí se prepara para la vigilia, confiado en que la razón bastará para dominar cualquier superstición.

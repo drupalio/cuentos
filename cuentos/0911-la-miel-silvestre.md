@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-la-miel-silvestre/23107/
 
+
+**Imagen:** 0911-la-miel-silvestre.webp
 ---
 
 Sinopsis: «La miel silvestre» es un cuento de Horacio Quiroga, publicado el 21 de enero de 1911 en la revistaCaras y caretasy luego recogido en el libroCuentos de amor de locura y de muerte(1917). Narra la historia de Gabriel Benincasa, un joven contador recién graduado que viaja a la selva misionera en busca de una experiencia distinta. Fascinado por el paisaje y sus promesas de libertad, se interna en el monte en busca de emociones intensas, sin advertir los peligros que lo rodean. Lo que comienza como una exploración inocente pronto deriva en una experiencia desconcertante, marcada por lo imprevisible de la naturaleza tropical.

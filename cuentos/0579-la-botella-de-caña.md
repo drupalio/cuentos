@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/francisco-coloane-la-botella-de-cana/6273/
 
+
+**Imagen:** 0579-la-botella-de-caña.jpg
 ---
 
 Sinopsis:En «La botella de caña», cuento de Francisco Coloane publicado en 1956, dos jinetes solitarios se encuentran en la vasta llanura nevada de Tierra del Fuego. Uno es un hombre corpulento, vestido con un chaquetón de cuero, y el otro, un joven cazador de zorros, envuelto en un poncho blanco. Mientras avanzan juntos, el cazador de zorros ofrece una botella de caña a su compañero, desencadenando en él recuerdos oscuros. A través de su mente atormentada, se revela un pasado violento, marcado por un crimen no descubierto. A medida que beben y cabalgan en silencio, los pensamientos de ambos hombres divergen, pero la botella de caña los une en un encuentro cargado de tensiones y recuerdos sombríos.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-exiliados-al-infierno/7638/
 
+
+**Imagen:** 0641-exiliados-al-infierno.webp
 ---
 
 Sinopsis:«Exiliados al infierno» (Exile to Hell) es un cuento de Isaac Asimov, publicado en mayo de 1968 en la revistaAnalog Science Fiction and Fact. En una sociedad donde la vida depende de una compleja infraestructura tecnológica, dañar las instalaciones es un crimen imperdonable. Mientras juegan una partida de ajedrez, dos programadores discuten sobre la humanidad del castigo más severo que contempla la ley: el exilio, una pena implacable que obliga al culpable a abandonar el entorno familiar para ser enviado a un lugar inhóspito y temido por todos, donde la supervivencia es una carga insoportable.

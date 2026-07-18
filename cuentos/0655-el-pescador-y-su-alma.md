@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/oscar-wilde-el-pescador-y-su-alma/12458/
 
+
+**Imagen:** 0655-el-pescador-y-su-alma.webp
 ---
 
 Sinopsis:«El pescador y su alma» (The Fisherman and His Soul) es un cuento de Oscar Wilde, publicado en 1891 dentro del libroA House of Pomegranates. Narra la historia de un joven pescador que un día atrapa en sus redes a una sirena. Fascinado por su belleza y su voz encantadora, accede a liberarla con la condición de que, siempre que él la llame, regrese a cantar para él. Con el paso del tiempo, el pescador se enamora perdidamente y está dispuesto a cualquier sacrificio por vivir junto a ella en el mar, incluso a renunciar a su propia alma.

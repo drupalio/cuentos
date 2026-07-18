@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/truman-capote-miriam/27212/
 
+
+**Imagen:** 0281-miriam.webp
 ---
 
 Sinopsis:«Miriam» es un cuento de Truman Capote, publicado en junio de 1945 en la revistaMademoiselle. Mrs. H. T. Miller es una viuda de sesenta y un años que vive en Nueva York, donde lleva una vida solitaria, marcada por la tranquilidad y la rutina. Una noche nevada, mientras hace fila para entrar al cine, conoce a Miriam, una singular niña de cabello plateado que le pide ayuda para entrar a ver una película. Aunque Mrs. Miller accede de buena gana, pronto comienza a percibir en Miriam algo que la inquieta y la lleva a alejarse. Sin embargo, no será esa la última vez en que verá a la niña.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-louis-stevenson-el-diablo-de-la-botella/16436/
 
+
+**Imagen:** 0285-el-diablo-de-la-botella.webp
 ---
 
 Sinopsis: «El diablo de la botella» (The Bottle Imp) es un cuento corto de Robert Louis Stevenson publicado en 1891. Narra la historia de Keawe, un hombre hawaiano que adquiere una botella mágica con un poder insólito: puede conceder cualquier deseo a su dueño. Sin embargo, la botella está maldita; quien muera en su posesión está condenado al infierno. La única manera de evitar este destino es venderla por menos de lo que se pagó. Keawe, seducido por las promesas de riqueza y felicidad, debe enfrentar las consecuencias de este oscuro trato. A medida que sus deseos comienzan a cumplirse, también crece la desesperación, ya que la maldición de la botella pone en juego tanto su futuro como el de sus seres queridos.

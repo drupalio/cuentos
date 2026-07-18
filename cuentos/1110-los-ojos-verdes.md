@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gustavo-adolfo-becquer-los-ojos-verdes/8091/
 
+
+**Imagen:** 1110-los-ojos-verdes.jpg
 ---
 
 Sinopsis: «Los ojos verdes» es un cuento de Gustavo Adolfo Bécquer publicado en diciembre de 1861 enEl Contemporáneo. Narra la historia de Fernando de Argensola, un noble que, durante una cacería, se adentra en un paraje prohibido donde aseguran que habita un ser sobrenatural. En el lugar se encuentra con una enigmática mujer de ojos verdes, cuya mirada lo hechiza y de quien inmediatamente se siente enamorado. A pesar de las advertencias, Fernando siente una atracción irresistible que lo lleva a hacer lo imposible para poder estar con el objeto de su deseo, sin meditar en las consecuencias que sus actos podrían tener.

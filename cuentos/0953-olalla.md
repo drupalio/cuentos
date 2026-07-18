@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-louis-stevenson-olalla/14161/
 
+
+**Imagen:** 0953-olalla.jpg
 ---
 
 Sinopsis: «Olalla» es un cuento gótico de Robert Louis Stevenson, publicado originalmente en diciembre de 1885 en la revistaThe Court and Society Review. Cuenta la experiencia de un joven oficial británico convaleciente al que, por recomendación médica, envían a una antigua mansión en las montañas de España para recuperarse. En ese lugar agreste y silencioso, el protagonista es acogido por una familia misteriosa y de noble linaje en decadencia, cuya conducta despierta pronto su desconcierto. Mientras intenta adaptarse a la soledad, descubre rastros de un pasado sombrío que aún habita los muros de la casa y se siente irresistiblemente atraído por la figura invisible y enigmática de Olalla, la hija de la familia.

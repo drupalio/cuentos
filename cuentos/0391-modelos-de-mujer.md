@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/almudena-grandes-modelos-de-mujer/6526/
 
+
+**Imagen:** 0391-modelos-de-mujer.webp
 ---
 
 Sinopsis:«Modelos de mujer» es un cuento de Almudena Grandes, publicado en 1996 dentro del libro homónimo. La historia sigue a una traductora madrileña, trabajadora y con pocos recursos, que acepta un encargo inesperado: acompañar a una ex Miss España a Los Ángeles como entrenadora lingüística para el rodaje de una película. Desde el primer encuentro, el contraste entre ambas es evidente: una mujer culta e inconformista frente a otra que vive centrada en su imagen. Lo que empieza como una relación profesional se convierte poco a poco en un territorio incierto, donde se cruzan la rivalidad, la fragilidad y la necesidad de ser vista.

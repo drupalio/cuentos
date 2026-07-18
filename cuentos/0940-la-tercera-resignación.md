@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-la-tercera-resignacion/530/
 
+
+**Imagen:** 0940-la-tercera-resignación.jpg
 ---
 
 Sinopsis:«La tercera resignación» es un cuento de Gabriel García Márquez, publicado por primera vez en 1947 en el diarioEl Espectadory más tarde incluido en la colecciónOjos de perro azul(1974). Narra la historia de un joven de veinticinco años que ha pasado gran parte de su vida encerrado en un ataúd, víctima de una extraña enfermedad que lo mantiene inmóvil, pero consciente. Aislado del mundo exterior, habita un estado ambiguo entre la vida y la muerte, mientras su mente divaga, atrapada entre recuerdos, delirios y temores. En ese encierro físico y mental, libra una silenciosa batalla contra el tiempo y la cordura.

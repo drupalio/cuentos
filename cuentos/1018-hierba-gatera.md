@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-hierba-gatera/13513/
 
+
+**Imagen:** 1018-hierba-gatera.jpg
 ---
 
 Sinopsis: «Hierba gatera» (Catnip), es un escalofriante relato de terror psicológico de Robert Bloch publicado enWeird Talesen marzo de 1948. Narra la historia de Ronnie, un joven carismático y popular que aspira a ser el próximo presidente de su clase. Detrás de su encantadora apariencia, sin embargo, se oculta un matón que intimida a sus compañeros y manipula a otros para alcanzar sus objetivos. En la víspera de las elecciones, en su afán por captar la atención de sus pares, Ronnie se ve implicado en un incidente con una vecina, Mrs. Mingle, una inquietante y huraña mujer, a cuyo gato agrede. Este incidente desencadena una serie de sucesos extraños y aterradores que alterarán todos sus planes.

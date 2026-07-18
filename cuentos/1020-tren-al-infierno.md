@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-tren-al-infierno/4129/
 
+
+**Imagen:** 1020-tren-al-infierno.jpg
 ---
 
 Sinopsis:«Tren al infierno» (That Hell-Bound Train) es un cuento de Robert Bloch, publicado en septiembre de 1958 enThe Magazine of Fantasy and Science Fiction. Narra la historia de Martin, un joven marcado por la pérdida de su padre y el abandono de su madre, que lleva una vida nómada y caótica. Una noche, en medio del frío y la soledad, un misterioso tren se detiene frente a él. De su interior desciende un extraño revisor, que le ofrece un trato tentador: un reloj de plata que le permitirá detener el tiempo a voluntad para vivir eternamente ese momento. A partir de entonces, Martin se embarca en la ardua tarea de encontrar el instante perfecto para utilizar su reloj, y descubre que no es una tarea sencilla.

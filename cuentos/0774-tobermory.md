@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-tobermory/2567/
 
+
+**Imagen:** 0774-tobermory.webp
 ---
 
 Sinopsis: «Tobermory» es un cuento del escritor británico Saki (seudónimo de Hector Hugh Munro) publicado en 1911 en el libroThe Chronicles of Clovis. Narra la historia de un gato con la asombrosa habilidad de hablar. Durante una reunión, Cornelius Appin revela su último experimento: ha logrado enseñar a los animales a hablar y Tobermory, el querido gato de Lady Blemley, es su primer éxito. Los invitados se muestran escépticos hasta que llaman al gato y este demuestra sus habilidades lingüísticas. Sin embargo, la situación se complica rápidamente cuando el gato comienza a revelar secretos y verdades incómodas que los presentes preferirían mantener ocultos.

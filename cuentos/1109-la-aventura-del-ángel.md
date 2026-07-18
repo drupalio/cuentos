@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-la-aventura-del-angel/21139/
 
+
+**Imagen:** 1109-la-aventura-del-ángel.webp
 ---
 
 Sinopsis: “La aventura del ángel” es un cuento de Emilia Pardo Bazán publicado el 21 de enero de 1897 en el diarioEl Liberal. Relata la historia de un ángel que, por una falta menor, es enviado al mundo a cumplir un año de destierro. Adoptando forma humana, el ángel experimenta la soledad y el desconcierto de una realidad desconocida. Su melancolía se transforma en esperanza cuando, guiado por una poesía que ha encontrado por casualidad, cree haber hallado a otro ser celestial en la Tierra. A partir de ese momento, comienza una búsqueda guiada por el deseo de compañía en medio del exilio.

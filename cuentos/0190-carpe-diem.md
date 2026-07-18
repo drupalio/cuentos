@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/abelardo-castillo-carpe-diem/2680/
 
+
+**Imagen:** 0190-carpe-diem.webp
 ---
 
 Sinopsis: En «Carpe diem», cuento corto deAbelardo Castillopublicado enCuadernos Hispanoamericanosen noviembre de 1987, un hombre fatigado narra la historia de una relación intensa y complicada con una mujer, que lo marcó profundamente. Sentado en el Club de Pescadores, cerca del río, evoca sus recuerdos en una conversación desordenada y fragmentaria, tratando de capturar la esencia de esa mujer llena de vida. A ella le gustaba el mar, los gatos callejeros y caminar descalza, y a pesar de las tensiones entre ambos, compartieron momentos inolvidables. La narración gira en torno a ese amor único y perturbador, mientras el hombre reflexiona sobre el tiempo, su último encuentro y las pequeñas señales que definen sus memorias.

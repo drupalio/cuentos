@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-los-buques-suicidantes/1005/
 
+
+**Imagen:** 0032-los-buques-suicidantes.webp
 ---
 
 Sinopsis:«Los buques suicidantes» es un cuento del escritor uruguayo Horacio Quiroga, publicado el 27 de octubre de 1906 en la revistaCaras y Caretase incluido luego enCuentos de amor de locura y de muerte(1917). Durante una travesía rumbo a Europa, un capitán cuenta a los pasajeros la inquietante historia de los buques hallados a la deriva, sin tripulación ni señales de violencia, que siguen navegando solos por el mar. La conversación despierta el temor y la curiosidad de los viajeros, hasta que un hombre que ha hablado poco durante el viaje se ofrece a contar su propia experiencia con el fenómeno.

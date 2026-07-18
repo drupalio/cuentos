@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/samanta-schweblin-pajaros-en-la-boca/5794/
 
+
+**Imagen:** 0077-pájaros-en-la-boca.webp
 ---
 
 Sinopsis: «Pájaros en la boca» es un inquietante cuento de Samanta Schweblin, publicado en 2009 en el libro homónimo. Martín recibe una inesperada visita de su exesposa, Silvia, quien lo insta a ver personalmente el preocupante comportamiento de su hija, Sara. La tensión se instala desde el principio, cuando Silvia, visiblemente alterada, advierte que la situación es difícil de aceptar. Al llegar a casa, Martín encuentra a Sara aparentemente normal: saludable y tranquila. Sin embargo, ciertos indicios insinúan que algo perturbador se oculta tras esa fachada. Lo que Martín está por descubrir cambiará radicalmente su percepción respecto de su hija.

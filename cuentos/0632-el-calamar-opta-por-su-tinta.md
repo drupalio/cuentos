@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/adolfo-bioy-casares-calamar-opta-tinta/841/
 
+
+**Imagen:** 0632-el-calamar-opta-por-su-tinta.webp
 ---
 
 Sinopsis:«El calamar opta por su tinta» es un cuento de Adolfo Bioy Casares, publicado en 1962 enEl lado de la sombra. Relata la crónica de un maestro y periodista de provincia que observa cómo un pequeño pueblo, acostumbrado a su ritmo apacible, se ve convulsionado por hechos extraños. Todo comienza con la desaparición del tradicional molinete del jardín de don Juan Camargo y con el misterioso pedido de libros que hace su ahijado, don Tadeíto. Intrigado por estas señales, el narrador intenta desentrañar un enigma que parece crecer en silencio dentro del corralón vecino.

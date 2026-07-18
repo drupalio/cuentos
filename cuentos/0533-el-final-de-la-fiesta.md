@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/graham-greene-el-final-de-la-fiesta/4236/
 
+
+**Imagen:** 0533-el-final-de-la-fiesta.webp
 ---
 
 Sinopsis: «El final de la fiesta» (The End of The Party) es un cuento de Graham Greene, publicado en la colecciónThe Basement Roomen 1935. Francis Morton despierta angustiado la mañana del 5 de enero, día de la fiesta anual de la señora Henne-Falcon. Francis es un niño frágil que padece un terror irracional a la oscuridad y sabe que en la celebración jugarán al escondite sin luces. A pesar de sus ruegos y del rol protector de su hermano gemelo Peter, Francis no logra evadir el evento. A medida que transcurren las horas, el clima de ansiedad, expectativa y tensión emocional que rodea a Francis se vuelve cada vez más opresivo.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-la-redada/13837/
 
+
+**Imagen:** 1013-la-redada.jpg
 ---
 
 Sinopsis: «La redada» es un cuento deEmilia Pardo Bazán, publicado el 18 de junio de 1898 en la revistaEl Gato Negro. Narra la historia de un hombre profundamente enamorado de su prometida, María Azucena Guzmán, una joven aristócrata de belleza ideal. Aunque la boda está cerca, la relación se ve amenazada por los celos enfermizos del narrador y un complejo de inferioridad que corroe su ánimo. Durante una excursión campestre, en medio de un entorno poético y elegante, un simple detalle basta para despertar en él una crisis emocional que expone la fragilidad de su carácter y la inestabilidad de su vínculo amoroso.

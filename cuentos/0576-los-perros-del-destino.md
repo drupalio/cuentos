@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-los-perros-del-destino/14157/
 
+
+**Imagen:** 0576-los-perros-del-destino.jpg
 ---
 
 Sinopsis: En «Los perros del destino» (The Hounds of Fate), cuento deSakipublicado en 1911 enThe Chronicles of Clovis, Martin Stoner, un hombre abatido por la desesperación y la fatiga, vaga sin rumbo por un sendero embarrado, creyendo que se dirige hacia el mar. La lluvia lo lleva a buscar refugio en una vieja mansión, donde es recibido por un anciano que lo confunde con Tom, el heredero de la dueña de la casa, ausente por cuatro años. Aprovechándose del error, Stoner se acomoda en la mansión y disfruta de la hospitalidad. Sin embargo, pronto descubre que tras la identidad del hombre que suplanta hay un oscuro secreto cuyas consecuencias amenazan con alcanzarlo.

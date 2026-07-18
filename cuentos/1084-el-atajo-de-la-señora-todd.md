@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stephen-king-el-atajo-de-la-senora-todd/21484/
 
+
+**Imagen:** 1084-el-atajo-de-la-señora-todd.webp
 ---
 
 Sinopsis:«El atajo de la señora» Todd(Mrs. Todd’s Shortcut) es un cuento de Stephen King, publicado en mayo de 1984 en la revistaRedbook. Narrado desde la mirada de un vecino del tranquilo pueblo de Castle Rock, el relato gira en torno a Ophelia Todd, una mujer enigmática y carismática obsesionada con encontrar rutas cada vez más cortas para llegar a su destino. Su pasión por los atajos se convierte en algo más que un simple juego, despertando la fascinación —y el desconcierto— de quienes la rodean. Pronto, su búsqueda la lleva por rutas donde lo real comienza a parecer incierto.

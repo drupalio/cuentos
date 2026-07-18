@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-c-clarke-partida-de-rescate/16311/
 
+
+**Imagen:** 0772-partida-de-rescate.webp
 ---
 
 Sinopsis: «Partida de rescate» (Rescue Party) es un temprano relato de ciencia ficción de Arthur C. Clarke, publicado en mayo de 1946 en la revistaAstounding Science Fiction. Una avanzada civilización extraterrestre recibe una alerta: el sol de un sistema remoto está a punto de convertirse en nova, amenazando la vida en su tercer planeta. Sorprendentemente, contra todo pronóstico, la vida inteligente ha surgido y evolucionado con gran rapidez en ese mundo. Ante esta situación crítica, una nave de rescate es enviada con la misión de salvar a tantos miembros de la especie como sea posible. Sin embargo, enfrentan una carrera contrarreloj, pues solo disponen de cuatro horas antes de que la estrella explote y la catástrofe sea inevitable.

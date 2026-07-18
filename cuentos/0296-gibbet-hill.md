@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bram-stoker-gibbet-hill/25709/
 
+
+**Imagen:** 0296-gibbet-hill.webp
 ---
 
 Sinopsis:«Gibbet Hill» es un cuento de Bram Stoker, publicado el 17 de diciembre de 1890 en elDaily Expressde Dublín. En un día de otoño, un viajero explora las colinas de Surrey. Mientras admira la belleza del lugar, tres figuras llaman su atención: dos niñas de aspecto exótico, que parecen venidas de la India, y un niño rubio de sonrisa angelical. Tras conversar con ellos, suben juntos a la cima de Gibbet Hill, un lugar de vistas impresionantes donde se alza una cruz que recuerda el ajusticiamiento de un antiguo criminal. Embriagado por el paisaje, el viajero se interna en un bosque donde duerme una breve siesta. Al despertar, será testigo de una inquietante escena.

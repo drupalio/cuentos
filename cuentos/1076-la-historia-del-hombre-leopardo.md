@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jack-london-la-historia-del-hombre-leopardo/21603/
 
+
+**Imagen:** 1076-la-historia-del-hombre-leopardo.webp
 ---
 
 Sinopsis: «La historia del hombre leopardo» (The Leopard Man’s Story) es un cuento de Jack London, publicado en agosto de 1903 en la revistaLeslie’s Weekly. La narración transcurre en el mundo del circo y tiene como protagonista a un melancólico domador conocido como el Hombre Leopardo. Aunque su apariencia no revela su peligrosa profesión, sus cicatrices evidencian una vida entre fieras. Con voz apacible, relata una historia en la que un temerario domador de leones, un hábil tragasables francés y una bella trapecista se ven envueltos en un triángulo de infaustas consecuencias.

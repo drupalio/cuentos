@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/agatha-christie-la-aventura-de-la-tumba-egipcia/21478/
 
+
+**Imagen:** 0232-la-aventura-de-la-tumba-egipcia.webp
 ---
 
 Sinopsis:«La aventura de la tumba egipcia» (The Adventure of the Egyptian Tomb) es un cuento de Agatha Christie, publicado el 26 de septiembre de 1923 en la revistaThe Sketch. La historia sigue a Hércules Poirot, el célebre detective belga, en una investigación sobre el misterioso deceso de varios miembros de una expedición arqueológica en Egipto. Todo comienza con la repentina muerte de sir John Willard tras el hallazgo de una antigua tumba, lo que da pie a rumores sobre una maldición. Poirot es llamado para esclarecer si hay fuerzas sobrenaturales en juego o si detrás de los hechos se oculta una mente criminal.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-el-indigno/3416/
 
+
+**Imagen:** 0917-el-indigno.webp
 ---
 
 Sinopsis:«El indigno»es un cuento de Jorge Luis Borges, publicado en 1970 dentro del libroEl informe de Brodie. Un librero judío de Buenos Aires recuerda su juventud en los suburbios porteños y evoca una antigua amistad con Francisco Ferrari, un compadrito carismático que lo deslumbró cuando tenía quince años y se convirtió en su modelo de hombría y coraje. El relato comienza con la evocación de ese vínculo y poco a poco se transforma en una confesión íntima sobre los lazos juveniles, la construcción de la identidad y los matices morales que definen una vida.

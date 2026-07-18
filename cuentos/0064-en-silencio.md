@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-en-silencio/22893/
 
+
+**Imagen:** 0064-en-silencio.webp
 ---
 
 Sinopsis:«En silencio» es un cuento de Emilia Pardo Bazán, publicado en 1914 en la revistaLa Ilustración Española y Americana. Aya es una joven que atiende la taberna de su padre en un pueblo gallego y sorprende a todos al casarse con un humilde albañil portugués. Aunque el matrimonio parece sólido, marcado por el trabajo conjunto y los planes de futuro, con el tiempo Aya empieza a mostrar signos de insatisfacción. Su coquetería creciente y sus silencios despiertan en su esposo un temor sordo que lo lleva a observar con recelo cada gesto, cada palabra, cada cambio.

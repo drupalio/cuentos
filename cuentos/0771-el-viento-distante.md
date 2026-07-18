@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-emilio-pacheco-el-viento-distante/24122/
 
+
+**Imagen:** 0771-el-viento-distante.webp
 ---
 
 Sinopsis: «El viento distante» es un cuento del escritor mexicano José Emilio Pacheco, publicado en 1963. Un domingo por la tarde, dos jóvenes recorren una feria ambulante que se ha instalado en el pueblo. La feria, sumida en una atmósfera de decadencia, ofrece juegos mecánicos, puestos de tiro y otras atracciones. Mientras recorren el lugar, la pareja descubre una barraca donde un hombre anuncia un extraño y perturbador espectáculo, difícil de olvidar.

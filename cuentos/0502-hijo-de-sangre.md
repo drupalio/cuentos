@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/richard-matheson-hijo-de-sangre/6543/
 
+
+**Imagen:** 0502-hijo-de-sangre.webp
 ---
 
 Sinopsis:«Hijo de sangre» («Drink My Red Blood …») es un inquietante cuento de Richard Matheson publicado enImaginationen abril de 1951. La historia sigue a Jules, un niño extraño y solitario que desde su nacimiento demuestra ser diferente: su aspecto, comportamiento y obsesión por la oscuridad desconciertan a su entorno. Su fascinación con los vampiros surge tras ver una película de Drácula, lo que lo lleva a sumergirse en una peligrosa fijación con la idea de convertirse en uno. A medida que Jules busca dar sentido a su obsesión, su vida toma un giro oscuro y perturbador, que refleja su lucha por pertenecer a un mundo que no comprende.

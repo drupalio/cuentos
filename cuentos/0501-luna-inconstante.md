@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/larry-niven-luna-inconstante/25817/
 
+
+**Imagen:** 0501-luna-inconstante.webp
 ---
 
 Sinopsis:«Luna inconstante» (Inconstant Moon) es un cuento de Larry Niven, publicado en 1971 en la colecciónAll the Myriad Ways. Stan, un escritor que vive en Los Ángeles, advierte una noche que la luna brilla con una intensidad anormal, tan poderosa que parece iluminar la ciudad como un reflector. Intrigado, intenta encontrar una explicación racional para el fenómeno. Cuando empieza a sospechar que podría tratarse de un acontecimiento cósmico inquietante, sale en busca de Leslie, su novia, para pasar junto a ella lo que podría ser una noche decisiva para la humanidad.

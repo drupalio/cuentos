@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/rosario-castellanos-leccion-de-cocina/20431/
 
+
+**Imagen:** 0393-lección-de-cocina.webp
 ---
 
 Sinopsis: «Lección de cocina» es un cuento de la escritora mexicana Rosario Castellanos, publicado en 1971 en el libroÁlbum de familia. Narra el monólogo interior de una mujer recién casada que, en sus primeros días de matrimonio, enfrenta el desafío de preparar una comida. En la cocina, rodeada de recetarios y utensilios, reflexiona sobre su nueva identidad como esposa y las expectativas que la sociedad le impone. Sus pensamientos oscilan entre la tradición y su resistencia a la rutina conyugal. Con un lenguaje agudo y mordaz, la protagonista cuestiona los roles de género mientras se debate entre la sumisión y la rebelión en un mundo que parece dictar su destino.

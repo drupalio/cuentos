@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/oscar-wilde-el-gigante-egoista/4682/
 
+
+**Imagen:** 1117-el-gigante-egoísta.webp
 ---
 
 Sinopsis:El gigante egoístaes un cuento de Oscar Wilde, publicado en mayo de 1888 en la colecciónThe Happy Prince and Other Tales. Relata la historia de un gigante que, al regresar a su hogar tras años de ausencia, encuentra a un grupo de niños jugando en su hermoso jardín. Enojado por la invasión, decide prohibirles la entrada y construye un muro que aísla su propiedad. Sin embargo, con la partida de los niños, la primavera deja de visitar el jardín, sumiéndolo en un invierno perpetuo. La llegada inesperada de un pequeño cambiará el destino del gigante y de su jardín.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-machen-los-ninos-felices/16716/
 
+
+**Imagen:** 0534-los-niños-felices.webp
 ---
 
 Sinopsis: «Los niños felices» (The Happy Children) es un inquietante relato de Arthur Machen, publicado en 1920. Tras la Navidad de 1915, un periodista se detiene en Banwick, una ciudad impregnada de un ambiente medieval. Fascinado por la belleza del lugar, el hombre recorre las estrechas y serpenteantes calles, donde se sorprende al encontrar a numerosos niños que ríen, cantan y bailan alegremente. Su desconcierto aumenta al ver que, incluso cuando la noche cae y la oscuridad envuelve el pueblo, los niños siguen en las calles. Mientras explora este escenario enigmático, el periodista presencia una extraña procesión que se dirige a una antigua iglesia en lo alto de la colina, una experiencia que será mucho más perturbadora de lo que jamás imaginó.

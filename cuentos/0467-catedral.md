@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/raymond-carver-catedral/26009/
 
+
+**Imagen:** 0467-catedral.webp
 ---
 
 Sinopsis:«Catedral» (Cathedral) es un cuento de Raymond Carver, publicado en septiembre de 1981 enThe Atlantic Monthly. Un matrimonio recibe la visita de Robert, un viejo amigo de la esposa que recientemente enviudó. Robert es un hombre ciego, con quien la mujer ha mantenido contacto a través de los años mediante el envío de cintas magnetofónicas. El marido, incómodo y lleno de prejuicios sobre la ceguera, mantiene cierta distancia mientras los dos amigos se ponen al día. Sin embargo, algo cambia cuando la esposa se duerme y es él quien debe atender al invitado.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-emilio-pacheco-la-sangre-de-medusa/18614/
 
+
+**Imagen:** 1170-la-sangre-de-medusa.webp
 ---
 
 Sinopsis:La sangre de Medusaes un cuento de José Emilio Pacheco, publicado en losCuadernos del Unicornioen 1958. La narración entrelaza la figura mítica de Perseo, el héroe griego que desde su palacio en Micenas contempla los ecos de su grandeza perdida, con la vida contemporánea de Fermín, un hombre sometido a un matrimonio asfixiante con una mujer mucho mayor que él. Pacheco establece paralelismos entre dos mundos y dos personajes en apariencia distantes, explorando su lucha interna contra la decadencia y un destino aparentemente inevitable.

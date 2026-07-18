@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/lev-tolstoi-el-viejo-caballo/5335/
 
+
+**Imagen:** 1094-el-viejo-caballo.webp
 ---
 
 Sinopsis:«El viejo caballo» es un cuento corto de Lev Tolstói, publicado en 1872 en la recopilaciónAzbuka. En una finca rural, cuatro hermanos se turnan para montar a Voronok, un caballo viejo y dócil. Durante un paseo, lo obligan a galopar una y otra vez, sin reparar en su cansancio. Narrado desde el punto de vista de un niño, el relato muestra una situación cotidiana en la que surge una primera conciencia sobre el sufrimiento ajeno.

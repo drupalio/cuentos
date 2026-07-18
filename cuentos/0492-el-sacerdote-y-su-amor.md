@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/yukio-mishima-sacerdote-amor/1041/
 
+
+**Imagen:** 0492-el-sacerdote-y-su-amor.webp
 ---
 
 Sinopsis:«El sacerdote y su amor» (Shiga-dera shōnin no koi) es un cuento de Yukio Mishima, publicado en octubre de 1954 en la revistaBungei Shunju, en el que se explora el conflicto entre la espiritualidad y los deseos humanos. Narra la vida de un anciano sacerdote del Templo de Shiga, conocido por su virtud y desapego del mundo terrenal. Su existencia transcurre en calma hasta que un día, junto al lago, cruza su mirada con la Gran Concubina Imperial, una mujer de inigualable belleza. Este encuentro fortuito despierta en él una lucha interna devastadora, que pone en cuestión todo lo que creía haber superado.

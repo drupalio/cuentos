@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-bosch-los-amos/132/
 
+
+**Imagen:** 0956-los-amos.webp
 ---
 
 Sinopsis: «Los amos» es un cuento de Juan Bosch publicado el 12 de noviembre de 1939 en la revistaCarteles. Retrata la injusticia y la explotación que sufren los peones de una hacienda en el campo dominicano. El protagonista, Cristino, ha trabajado durante años con obediencia, constancia y lealtad en la finca de don Pío, pero cuando enferma deja de ser útil, por lo que su patrón, con un gesto de aparente amabilidad, decide desecharlo. Sin embargo, antes de irse, se le exige que cumpla una última tarea.

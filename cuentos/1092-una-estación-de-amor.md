@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-una-estacion-de-amor/4468/
 
+
+**Imagen:** 1092-una-estación-de-amor.webp
 ---
 
 Sinopsis:Una estación de amores un cuento de Horacio Quiroga, publicado el 13 de enero de 1912 en la revistaCaras y caretas. Narra el apasionado idilio entre Nébel, un joven de dieciocho años, y Lidia, una muchacha de catorce, que surge durante un carnaval en Concordia. Fascinado por su belleza, Nébel se entrega a un amor idealizado, que pronto se convierte en el centro de su vida. Sin embargo, las circunstancias familiares de Lidia y las diferencias sociales amenazan con enturbiar su relación. A medida que avanza el tiempo, su romance enfrenta obstáculos que pondrán a prueba la intensidad de sus sentimientos.

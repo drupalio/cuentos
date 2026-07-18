@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ernest-hemingway-los-asesinos/2687/
 
+
+**Imagen:** 1148-los-asesinos.webp
 ---
 
 Sinopsis:Los asesinos(The Killers) es un cuento de Ernest Hemingway publicado en 1927 en Scribner’s Magazine. La historia transcurre en una pequeña cafetería de un pueblo llamado Summit, donde dos hombres misteriosos entran y comienzan a actuar de forma amenazante. George, el dueño del local, y Nick Adams, un joven cliente, pronto descubren que los desconocidos han llegado con el propósito de encontrarse con Ole Andreson, un exboxeador que llega cada día a cenar a las seis.

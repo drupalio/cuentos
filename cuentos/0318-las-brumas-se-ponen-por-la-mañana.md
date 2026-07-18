@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/george-r-r-martin-las-brumas-se-ponen-por-la-manana/20741/
 
+
+**Imagen:** 0318-las-brumas-se-ponen-por-la-mañana.webp
 ---
 
 Sinopsis: «Las brumas se ponen por la mañana» (With Morning Comes Mistfall) es un cuento de George R. R. Martin, publicado en mayo de 1973 en la revistaAnalog Science Fiction/Science Fact. Ambientado en el enigmático Planeta de los Fantasmas, narra la llegada de un periodista a un hotel construido sobre las nubes, donde un equipo científico intenta demostrar si los fantasmas que alimentan las leyendas locales son reales. Mientras se despliega una meticulosa investigación con la tecnología más avanzada, el protagonista se ve envuelto en la belleza del paisaje y el encanto de lo desconocido. Allí, entre las montañas y la niebla, asistirá a la lucha entre la fría certeza de la ciencia y la necesidad humana de conservar el asombro, el misterio y la magia.

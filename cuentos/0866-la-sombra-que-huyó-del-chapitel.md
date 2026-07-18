@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-la-sombra-que-huyo-del-chapitel/15244/
 
+
+**Imagen:** 0866-la-sombra-que-huyó-del-chapitel.webp
 ---
 
 Sinopsis: «La sombra que huyó del chapitel» (The Shadow from the Steeple)deRobert Bloches el tercer relato del denominado «ciclo de Robert Blake», iniciado con «El vampiro estelar» de Bloch y continuado con «El que acecha en la oscuridad» de H. P. Lovecraft. Tras la extraña muerte de Robert Blake, su amigo Edmund Fiske intenta averiguar más sobre los hechos que rodearon su deceso. Basándose en el relato de Lovecraft, Fiske sigue una serie de pistas que lo conducen al Doctor Ambrose Dexter, a quien Lovecraft menciona como el encargado de deshacerse del antiguo talismán relacionado con la muerte de Blake. Fiske está convencido de que la participación del Dr. Dexter es mucho más relevante de lo que Lovecraft deja entrever en su escrito.

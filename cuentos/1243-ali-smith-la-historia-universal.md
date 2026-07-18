@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ali-smith-la-historia-universal/8473/
 
+
+**Imagen:** 1243-ali-smith-la-historia-universal.jpg
 ---
 
 Érase una vez un hombre que moraba junto a un camposanto.

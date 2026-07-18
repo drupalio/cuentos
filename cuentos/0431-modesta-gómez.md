@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/rosario-castellanos-modesta-gomez/4772/
 
+
+**Imagen:** 0431-modesta-gómez.jpg
 ---
 
 Sinopsis: «Modesta Gómez» es un relato de la escritora mexicana Rosario Castellanos, publicado en 1960 en el libroCiudad Real. Narra la vida de Modesta, una niña de origen humilde que es entregada como sirvienta a la acomodada familia Ochoa. Desde entonces debe cuidar a Jorgito, el hijo menor de la casa, con quien tiene casi la misma edad. Mientras él accede a educación y privilegios, ella permanece relegada a la cocina y al servicio. Al crecer, Modesta se enfrenta a la crudeza de su vulnerabilidad como mujer sin amparo en una sociedad donde la desigualdad y el abuso determinan su destino.

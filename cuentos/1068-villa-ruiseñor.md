@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/agatha-christie-villa-ruisenor/21597/
 
+
+**Imagen:** 1068-villa-ruiseñor.webp
 ---
 
 Sinopsis:«Villa Ruiseñor» (Philomel Cottage) es un cuento de Agatha Christie, publicado en noviembre de 1924 en la revistaThe Grand Magazine. Alix Martin cree haber encontrado al fin la felicidad. Tras años de privaciones y duro trabajo, hereda una pequeña fortuna y se casa impulsivamente con Gerald, un hombre encantador al que apenas conoce. Juntos se instalan en una acogedora y solitaria casa en el campo, un lugar que parece salido de un sueño. Sin embargo, la inesperada reaparición de Dick Windyford, su antiguo compañero y confidente, despierta en Alix una inquietud que parece amenazar la serenidad de su hogar.

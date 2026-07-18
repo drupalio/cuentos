@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-historia-de-una-anguila/4807/
 
+
+**Imagen:** 1347-antón-chéjov-historia-de-una-anguila.jpg
 ---
 
 Es una mañana de verano; reina en la Naturaleza una tranquilidad absoluta; óyese solamente, de vez en cuando, las estridencias de los grillos. Junto a la caseta de baños en construcción, bajo las ramas verdes de un sauce, se agita en el agua el carpintero Guerasim, campesino alto, flaco, de rizosos cabellos bermejos; sopla, refunfuña, guiña los ojos y procura sacar algo de entre las raíces del sauce. A su lado, con el agua hasta el cuello, está otro carpintero, Liubim, hombre joven, bajo de estatura y jorobado; su cara es triangular y tiene ojos de chino. Entrambos llevan blusas y calzones y parecen hallarse ateridos de frío, lo cual se comprende, porque hace más de una hora que permanecen en el agua.

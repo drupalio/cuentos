@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-que-es-el-hombre/21545/
 
+
+**Imagen:** 0214-qué-es-el-hombre.webp
 ---
 
 Sinopsis: «¿Qué es el hombre?» (…That Thou Art Mindful of Him) es un cuento de Isaac Asimov, publicado en mayo de 1974 enThe Magazine of Fantasy and Science Fiction. En un futuro donde la presencia de robots en la Tierra es cada vez más rechazada, Keith Harriman, jefe de Investigaciones en U. S. Robots, teme por el destino de la compañía. Como último recurso, confía en George Diez, un prototipo avanzado con capacidad de aprendizaje, al que encarga una misión secreta: encontrar una manera de que los seres humanos acepten convivir con los robots.

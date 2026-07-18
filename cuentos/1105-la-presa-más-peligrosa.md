@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/richard-connell-la-presa-mas-peligrosa/21173/
 
+
+**Imagen:** 1105-la-presa-más-peligrosa.webp
 ---
 
 Sinopsis:«La presa más peligrosa» (The Most Dangerous Game) es un cuento de Richard Connell, publicado el 19 de enero de 1924 en la revistaCollier’s. La historia sigue a Sanger Rainsford, un experimentado cazador que cae al mar cerca de una isla misteriosa en el Caribe. Tras llegar a tierra, descubre una mansión habitada por el sofisticado y enigmático General Zaroff, quien comparte su pasión por la caza. Sin embargo, las reglas del juego en la isla son distintas. A medida que Rainsford explora el lugar, comienza a percibir un inquietante cambio en el papel que tradicionalmente ha ocupado como cazador.

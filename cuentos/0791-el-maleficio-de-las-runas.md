@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/m-r-james-el-maleficio-de-las-runas/16141/
 
+
+**Imagen:** 0791-el-maleficio-de-las-runas.webp
 ---
 
 Sinopsis: «El maleficio de las runas» (Casting the Runes) es un relato de M. R. James, publicado en 1911 en el libroMore Ghost Stories of an Antiquary. La historia sigue a Mr. Karswell, un enigmático escritor obsesionado con lo oculto, que no acepta las críticas negativas de su obra en el ámbito académico. Karswell envía un tratado sobre alquimia, el cual es revisado y rechazado por el Dr. Edward Dunning, un experto en el tema. Poco después, Dunning comienza a experimentar una serie de sucesos extraños e inexplicables, similares a los que rodearon la misteriosa muerte de otro académico que también había rechazado a Karswell.

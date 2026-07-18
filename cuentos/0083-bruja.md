@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-bruja/25056/
 
+
+**Imagen:** 0083-bruja.webp
 ---
 
 Sinopsis:«Bruja» es un cuento de Julio Cortázar, escrito en 1943 y publicado póstumamente en 1994 enCuentos completos. Narra la historia de Paula, una joven tímida y melancólica que vive en un pequeño pueblo. Marcada por una vida aislada y rutinaria, una tarde en que permanece sola en su hogar recuerda un extraño incidente de su infancia que despierta en ella una honda inquietud. A medida que los recuerdos afloran, surge la perturbadora sospecha de poseer un don inexplicable, un poder silencioso que la acompaña desde niña y cuyo verdadero alcance teme comprender.

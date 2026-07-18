@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/august-derleth-entre-la-nieve/22331/
 
+
+**Imagen:** 0982-entre-la-nieve.webp
 ---
 
 Sinopsis: «Entre la nieve» (The Drifting Snow) es un cuento de vampiros de August Derleth, publicado en febrero de 1939 en la revistaWeird Tales. La historia transcurre en una antigua casa de Wisconsin durante una tormenta invernal. Clodetta, que acaba de llegar con su esposo, comienza a percibir una inquietante tensión en el ambiente familiar, marcado por el rígido carácter de tía Mary y su extraña prohibición de abrir las cortinas que dan al lado oeste de la casa tras la puesta de sol. Las misteriosas normas impuestas por la anciana cobran sentido cuando Clodetta cree ver una figura entre la nieve.

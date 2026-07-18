@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-el-bardo-inmortal/22961/
 
+
+**Imagen:** 0583-el-bardo-inmortal.webp
 ---
 
 Sinopsis: «El bardo inmortal» (The Immortal Bard) es un cuento del escritor Isaac Asimov, publicado en mayo de 1954 en la revistaUniverse Science Fiction. La historia comienza durante una reunión de Navidad en la que el doctor Phineas Welch, un excéntrico físico, asegura ante un joven profesor de literatura que ha logrado traer al presente a personajes históricos mediante transferencia temporal. Tras mencionar a científicos como Arquímedes y Newton, que no lograron adaptarse, revela que su experimento más reciente fue con William Shakespeare, a quien eligió por tener una mente más universal. Intrigado por saber cómo lo valora la posteridad, el Bardo acepta explorar su legado desde una nueva perspectiva, sin imaginar los desafíos que le esperaban.

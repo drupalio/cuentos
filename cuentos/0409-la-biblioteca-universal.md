@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/kurd-lasswitz-la-biblioteca-universal/5251/
 
+
+**Imagen:** 0409-la-biblioteca-universal.webp
 ---
 
 Sinopsis:«La biblioteca universal» (Die Universalbibliothek) es un cuento del escritor alemán Kurd Lasswitz, publicado el 18 de diciembre de 1904 en elOstdeutschen Allgemeinen Zeitung. La historia narra una conversación entre el profesor Wallhausen y su amigo Burkel sobre la posibilidad de una biblioteca que contenga todos los libros imaginables, tanto escritos como por escribir, generados por la combinación automática de caracteres. A través de cálculos matemáticos, exploran las implicaciones de esta idea y reflexionan sobre la infinitud, la naturaleza del conocimiento y la inutilidad de una información inabarcable. Este cuento fue una fuente de inspiración clave para el relatoLa biblioteca de Babel, de Jorge Luis Borges, que llevó la premisa a un nivel filosófico y metafísico.

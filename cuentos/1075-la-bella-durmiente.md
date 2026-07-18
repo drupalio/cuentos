@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermanos-grimm-la-bella-durmiente/5953/
 
+
+**Imagen:** 1075-la-bella-durmiente.jpg
 ---
 
 Sinopsis: «La bella durmiente» (Dornröschen), es un cuento de los Hermanos Grimm publicado en 1812 en la colecciónKinder und Hausmärchen. Narra la historia de un rey y una reina que, tras desear fervientemente un hijo, reciben la noticia de que tendrán una niña. Para celebrarlo, organizan una gran fiesta, a la que invitan a las hadas del reino para que bendigan a la princesa. Sin embargo, en la invitación omiten incluir a una de las hadas, quien en venganza maldice a la niña. La maldición del hada atrae grandes males sobre la princesa y la familia real, que sólo cesarán cuando transcurran cien años.

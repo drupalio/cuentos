@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-kashtanka/25836/
 
+
+**Imagen:** 0035-kashtanka.webp
 ---
 
 Sinopsis:«Kashtanka» (Каштанка) es un cuento de Antón Chéjov, publicado el 25 de diciembre de 1887 en el periódicoNovoye Vremya. Narra la historia de Kashtanka, una joven perra mestiza que se extravía en las calles después de perder de vista a su amo, el ebanista Luka Alexandrich. Asustada, hambrienta y congelada por la nieve, Kashtanka se refugia en un portal, donde es encontrada por un desconocido que la acoge en su casa. Allí descubre un mundo nuevo, junto a otros animales, bajo el cuidado de un amo distinto y en una forma de vida diferente a la que conocía.

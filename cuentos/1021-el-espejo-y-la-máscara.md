@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-el-espejo-y-la-mascara/8357/
 
+
+**Imagen:** 1021-el-espejo-y-la-máscara.webp
 ---
 
 Sinopsis: «El espejo y la máscara» es un cuento de Jorge Luis Borges, publicado en 1975 enEl libro de arena. Relata el encargo que un rey hace a su poeta cortesano para que celebre en verso una gran victoria militar. El poeta, versado en la antigua tradición oral y en las artes ocultas de la palabra, acepta el desafío. A lo largo de un año, medita y perfecciona su poema con esmero ritual. Cuando regresa con su obra a la corte, su perfección técnica impresiona a todos, pero el rey siente que falta algo esencial, una verdad más profunda, que aún no ha sido dicha.

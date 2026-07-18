@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-aqui-se-respira-bien/4756/
 
+
+**Imagen:** 1036-aquí-se-respira-bien.webp
 ---
 
 Sinopsis: «Aquí se respira bien» es un cuento de Mario Benedetti publicado en 1959 en la colecciónMontevideanos. Relata un momento íntimo entre un hijo y su padre, quienes disfrutan de la calma de un parque en una mañana soleada. Ambos conversan sobre los planes de futuro del muchacho y su deseo de trabajar con su padre, a quien admira profundamente. La atmósfera de serenidad se ve interrumpida por la llegada de un hombre inoportuno, cuya presencia y actitud confrontan a Gustavo con una realidad adulta que apenas empieza a comprender, dejando una huella silenciosa en la relación con su padre.

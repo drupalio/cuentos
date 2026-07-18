@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-conan-doyle-el-embudo-de-cuero/26087/
 
+
+**Imagen:** 0452-el-embudo-de-cuero.webp
 ---
 
 Sinopsis:«El embudo de cuero» (The Leather Funnel) es un cuento gótico deArthur Conan Doyle, publicado en noviembre de 1902 en la revistaMcClure’s. Un hombre visita en París a su amigo Lionel Dacre, un acaudalado coleccionista de objetos extraños y libros de ocultismo. Durante la estancia, un antiguo y enigmático embudo de cuero despierta la curiosidad del visitante. Dacre, convencido de que ciertos objetos conservan huellas de experiencias extremas y pueden transmitirlas a mentes sensibles, propone a su huésped un singular experimento: dormir junto al embudo para acceder, a través del sueño, a revelaciones sobre su oscuro pasado.

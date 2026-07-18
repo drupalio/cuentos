@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/agatha-christie-la-sombra-en-el-cristal/21123/
 
+
+**Imagen:** 0181-la-sombra-en-el-cristal.webp
 ---
 
 Sinopsis: «La sombra en el cristal» (The Shadow on the Glass) es un cuento de Agatha Christie, publicado en octubre de 1924 enThe Grand Magazine. Ambientado en una antigua mansión inglesa, la historia gira en torno a una reunión social organizada por los excéntricos señores Unkerton. Entre los invitados destaca el señor Satterthwaite, un observador agudo de las pasiones humanas. En un ambiente tenso, marcado por antiguos vínculos y la inquietante leyenda de un fantasma que aparece en una ventana tapiada, se va tejiendo un clima de creciente suspenso que anticipa un drama inminente.

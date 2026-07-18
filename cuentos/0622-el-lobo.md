@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermann-hesse-el-lobo/3572/
 
+
+**Imagen:** 0622-el-lobo.webp
 ---
 
 Sinopsis:«El lobo» (Der Wolf) es un cuento de Hermann Hesse, publicado en 1915 en el volumenAm Weg. Durante un invierno excepcionalmente crudo en las montañas francesas, una pequeña manada de lobos lucha por sobrevivir entre el hielo, el hambre y la amenaza constante de los hombres. A medida que la escasez de alimento se agudiza, algunos se aventuran hacia regiones más habitadas, cruzando valles y montañas. Entre ellos, un joven lobo destaca por su fuerza y determinación. La narración acompaña su travesía solitaria a través de un paisaje implacable, en una silenciosa batalla por la vida.

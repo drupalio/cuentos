@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edmondo-de-amicis-de-los-apeninos-a-los-andes/26022/
 
+
+**Imagen:** 0468-de-los-apeninos-a-los-andes.webp
 ---
 
 Sinopsis:«De los Apeninos a los Andes» (Dagli Appennini alle Ande) es un cuento de Edmondo De Amicis, publicado en 1886 como parte del libroCuore. Marco es un niño genovés cuya madre ha emigrado a la Argentina para trabajar como sirvienta y ayudar económicamente a su familia. Durante un tiempo, la mujer envía cartas y dinero, pero de pronto deja de dar noticias. Tras meses de silencio y gestiones inútiles, el muchacho, con escasos recursos y una determinación inquebrantable, decide emprender solo el viaje desde Italia a América en busca de su madre. La travesía lo enfrenta al miedo, la soledad y la incertidumbre, sostenido únicamente por la esperanza de volver a encontrarla.

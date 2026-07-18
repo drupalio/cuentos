@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alfredo-bryce-echenique-como-y-por-que-odie-los-libros-para-ninos/2048/
 
+
+**Imagen:** 1414-alfredo-bryce-echenique-cómo-y-por-qué-odié-los-libros-para-niños.jpg
 ---
 
 A Marita y Alfredo Ruiz Rosas;A Cinthia Capriata y Emilio Rodríguez Larraín

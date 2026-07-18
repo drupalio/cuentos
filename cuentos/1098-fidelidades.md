@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-fidelidades/3537/
 
+
+**Imagen:** 1098-fidelidades.jpg
 ---
 
 Sinopsis: «Fidelidades» es un cuento de Mario Benedetti publicado en 1989 en el libroDespistes y franquezas. Relata la historia de Ileana Márquez, una mujer de treinta y cinco años que mantiene una relación simultánea con su esposo, Dámaso, y con su amante, Marcos. Lejos de sentirse culpable, Ileana se considera fiel a ambos y vive con seguridad y plenitud. Sin embargo, cuando nota un cambio en el deseo de sus compañeros hacia ella, comienza a dudar de sí misma, lo que la lleva a cuestionar su atractivo y valor.

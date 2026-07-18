@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/tanith-lee-roja-como-la-sangre/21493/
 
+
+**Imagen:** 1071-roja-como-la-sangre.webp
 ---
 
 Sinopsis:«Roja como la sangre» (Red As Blood) es un cuento de Tanith Lee, publicado en julio de 1979 enThe Magazine of Fantasy & Science Fiction. Reinterpreta el clásico de Blancanieves desde una perspectiva oscura y gótica. La historia comienza en un castillo invernal, donde la Reina Bruja consulta su espejo mágico y descubre que no puede ver a Bianca, la enigmática hija de su difunta predecesora. Bianca, de piel blanca, labios rojos y cabellera negra, rechaza los regalos de su madrastra y se muestra hostil a todo lo sagrado. El relato se despliega como un cuento de hadas sombrío, cargado de símbolos inquietantes y misterios antiguos.

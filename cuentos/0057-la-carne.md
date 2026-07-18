@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/virgilio-pinera-la-carne/28261/
 
+
+**Imagen:** 0057-la-carne.webp
 ---
 
 Sinopsis:«La carne» es un perturbador cuento del escritor cubano Virgilio Piñera, publicado en 1944 en el libroPoesía y prosa. Ante una severa falta de carne que aflige a un pueblo, los habitantes se resignan a subsistir a base de vegetales. Sin embargo, un vecino llamado Ansaldo se niega a aceptar esa dieta y opta por una insólita alternativa. Cuando alguien descubre lo ocurrido, la noticia llega al alcalde. Este ve en el gesto de Ansaldo una posible salida a la crisis y convoca a la población en la plaza principal para una demostración pública del procedimiento.

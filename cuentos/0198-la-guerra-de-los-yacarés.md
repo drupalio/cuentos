@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-la-guerra-de-los-yacares/5585/
 
+
+**Imagen:** 0198-la-guerra-de-los-yacarés.jpg
 ---
 
 Sinopsis:«La guerra de los yacarés» es un cuento del escritor uruguayoHoracio Quiroga, publicado el 19 de mayo de 1916 en la revistaFray Mocho. Un grupo de yacarés vive tranquilamente en su río hasta que un ruido extraño interrumpe su paz. Pronto descubren que un gran barco ha llegado a sus aguas, causando preocupación y caos. Los yacarés, liderados por un viejo sabio, deciden unirse para enfrentar esta nueva amenaza, utilizando su ingenio y fuerza para proteger su hogar y asegurar su supervivencia. En esta lucha recibirán la inesperada ayuda de un surubí que parece tener la solución a sus problemas.

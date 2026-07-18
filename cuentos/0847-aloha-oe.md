@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jack-london-aloha-oe/23515/
 
+
+**Imagen:** 0847-aloha-oe.webp
 ---
 
 Sinopsis: «Aloha oe» es un cuento de Jack London, publicado originalmente en diciembre de 1908 en la revistaLady’s Realme incluido posteriormente en la colecciónThe House of Pride(1912). En el muelle de Honolulú, un trasatlántico se prepara para zarpar mientras una multitud despide a un grupo de distinguidos visitantes en visita oficial a la isla. Desde la cubierta, Dorotea Sambrooke, hija de un senador, se despide de Stephen Knight, un joven isleño con quien ha compartido semanas de aventuras y amistad. La Banda Real interpreta la emotiva melodíaAloha ʻOe, que envuelve la partida en una creciente sensación de melancolía ante la inminente separación.

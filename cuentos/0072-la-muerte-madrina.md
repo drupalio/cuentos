@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermanos-grimm-la-muerte-madrina/28204/
 
+
+**Imagen:** 0072-la-muerte-madrina.webp
 ---
 
 Sinopsis:«La Muerte madrina» («Der Gevatter Tod») es un cuento de los Hermanos Grimm, publicado en 1812 en el libroKinder- und Hausmärchen. Un hombre pobre, agobiado por mantener a sus doce hijos, no sabe qué hacer cuando nace el decimotercero y sale al camino en busca de un padrino para el recién nacido. Primero se encuentra con Dios y luego con el diablo, pero rechaza a ambos por distintas razones. Finalmente aparece la Muerte, que se presenta como una figura imparcial, pues no distingue entre ricos y pobres. Convencido por esa justicia severa, el hombre la acepta como madrina de su hijo, y esta, con los años, hará a su ahijado un regalo extraordinario.

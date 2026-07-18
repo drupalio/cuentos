@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermanos-grimm-caperucita-roja/9260/
 
+
+**Imagen:** 1216-caperucita-roja.jpg
 ---
 
 «Caperucita Roja», un cuento clásico recopilado por los Hermanos Grimm, narra la historia de una joven niña conocida por su singular capa roja. Enviada por su madre para llevar algunos alimentos a su abuela enferma, Caperucita se aventura a través de un bosque, donde se encuentra con una serie de desafíos y personajes inesperados. A lo largo de su viaje, aprende lecciones valiosas sobre la confianza, la obediencia y los peligros de desviarse del camino conocido. Esta historia atemporal, llena de simbolismo y enseñanzas morales, ha cautivado a lectores de todas las edades, convirtiéndose en uno de los cuentos de hadas más queridos y reconocidos en todo el mundo.

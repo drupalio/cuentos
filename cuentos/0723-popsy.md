@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stephen-king-popsy/21219/
 
+
+**Imagen:** 0723-popsy.webp
 ---
 
 Sinopsis: «Popsy» es un cuento de Stephen King, publicado por primera vez en 1987 en la antologíaMasques IIy luego incluido en la recopilación de relatosNightmares & Dreamscapes(1993). La historia sigue a Sheridan, un hombre con cuantiosas deudas de juego que se dedica a secuestrar niños que luego vende a un sujeto apodado «el Mago» para pagar a sus siniestros acreedores. Una tarde, mientras merodea por un centro comercial, se cruza con un niño perdido y vulnerable, al que decide raptar. Sin embargo, Sheridan no tarda en descubrir que ha cometido un terrible error.

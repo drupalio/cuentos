@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/f-marion-crawford-la-litera-superior/16258/
 
+
+**Imagen:** 0785-la-litera-superior.webp
 ---
 
 Sinopsis: «La litera superior» (The Upper Berth) es un cuento de terror sobrenatural escrito por Francis Marion Crawford y publicado en 1885. Durante una velada, Brisbane, un hombre joven y viajero experimentado, relata una perturbadora experiencia a bordo del transatlántico Kamtschatka. Se le asigna el camarote 105, el cual tiene una inquietante reputación debido a las misteriosas muertes de sus ocupantes en los últimos viajes. Tras una extraña primera noche, Brisbane descubre que el camarote está considerado maldito. A pesar de las advertencias y ofrecimientos para cambiar de habitación, decide quedarse y, junto con el capitán, enfrenta una aterradora aventura que desafía la lógica y la realidad.

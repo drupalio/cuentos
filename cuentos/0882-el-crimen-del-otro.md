@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-crimen-del-otro/23315/
 
+
+**Imagen:** 0882-el-crimen-del-otro.webp
 ---
 
 Sinopsis:«El crimen del otro», cuento temprano de Horacio Quiroga publicado en 1904, es tanto un homenaje como una parodia de la obra de Edgar Allan Poe. Relata la amistad entre dos jóvenes que comparten una intensa afición por los cuentos del escritor estadounidense. En largas sesiones de lectura y discusiones exaltadas, conversan sobre la locura, el sueño y sus personajes favoritos de Poe. Sin embargo, la admiración literaria pronto se vuelve obsesión, y lo que comienza como entusiasmo compartido adquiere un carácter inquietante que termina por alterar profundamente su relación.

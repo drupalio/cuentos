@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/john-william-polidori-el-vampiro/18378/
 
+
+**Imagen:** 0499-el-vampiro.webp
 ---
 
 Sinopsis:«El Vampiro»(The Vampyre: A Tale), escrito por John Polidori en 1816 y publicado en 1819, es una de las primeras obras que define al vampiro en la literatura moderna. La historia sigue a Aubrey, un joven inglés impresionado por la enigmática figura de Lord Ruthven, un aristócrata cuyo magnetismo oculta oscuros secretos. Cuando ambos viajan juntos por Europa, Aubrey comienza a notar comportamientos inquietantes en su compañero, mientras el misterio crece alrededor de este ser fascinante y peligroso. Este relato, concebido durante la célebre reunión en Villa Diodati donde Mary Shelley ideóFrankenstein, estableció las bases del vampiro aristocrático, un arquetipo cuya influencia perdura en la literatura hasta nuestros días.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/kingsley-amis-la-vida-de-mason/8231/
 
+
+**Imagen:** 1245-kingsley-amis-la-vida-de-mason.jpg
 ---
 
 —¿Puedo acompañarle?

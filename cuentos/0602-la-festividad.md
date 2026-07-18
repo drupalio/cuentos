@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-la-festividad/5579/
 
+
+**Imagen:** 0602-la-festividad.webp
 ---
 
 Sinopsis: «La Festividad» (The Festival), es un inquietante relato de H.P. Lovecraft publicado en enero de 1925 en la revistaWeird Tales. En la víspera de Navidad, un hombre viaja a la ancestral ciudad costera de Kingsport para participar en un enigmático ritual del solsticio de invierno. Su propósito es conectar con las raíces arcanas de su estirpe, que se remontan a tiempos anteriores a la colonización de América. Inmerso en una atmósfera de misterio opresivo, el protagonista se encuentra con una Kingsport transformada, donde las sombras del pasado cobran vida y los secretos familiares se entretejen con antiguos horrores.

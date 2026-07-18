@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/albert-camus-renegado-espiritu-confuso/694/
 
+
+**Imagen:** 1438-albert-camus-el-renegado-o-un-espíritu-confuso.jpg
 ---
 
 «¡Qué lío, qué lío! Tengo que poner orden en mi cabeza. Desde que me han cortado la lengua, no sé, otra lengua se mueve sin cesar por mi cráneo, hay algo que habla, o alguien, y a veces calla repentinamente, y después todo vuelve a empezar, oh, hay demasiadas cosas que oigo y que sin embargo no digo, qué lío, y si abro la boca se oye como un ruido de guijarros agitados. Orden, orden, dice la lengua, y al mismo tiempo habla de otra cosa, sí, yo siempre he deseado el orden. Al menos algo hay seguro, estoy esperando al misionero que tiene que venir a sustituirme. Estoy al borde de la pista, a una hora de Taghasa, oculto detrás de un desprendimiento de rocas, sentado sobre el viejo fusil. El día se levanta sobre el desierto, todavía hace mucho frío y dentro de un rato hará demasiado calor, esta tierra vuelve loco y yo, desde hace tantos años que ya he perdido la cuenta… ¡No! ¡Un esfuerzo más! El misionero debe llegar esta mañana, o esta tarde. He oído decir que vendría con un guía y es posible que sólo tengan un camello para los dos. Esperaré, espero, el frío y sólo el frío es lo que me hace temblar. No te impacientes, sucio esclavo.

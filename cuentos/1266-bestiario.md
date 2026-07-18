@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-bestiario/6810/
 
+
+**Imagen:** 1266-bestiario.jpg
 ---
 
 La asamblea anual de la Fauna Artística y Literaria fue convocada, en primera citación, a las 20 horas, y en segunda a las 21, pero solo se logró elquorumnecesario en el segundo llamado.

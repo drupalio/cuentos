@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hans-christian-andersen-historia-de-una-madre/27820/
 
+
+**Imagen:** 0153-historia-de-una-madre.webp
 ---
 
 Sinopsis:«Historia de una madre» («Historien om en moder») es un cuento del escritor danésHans Christian Andersen, publicado en 1847 en el volumenA Christmas Greeting to my English Friends. Una madre vela angustiada junto a su hijo enfermo durante una noche de invierno. Cuando un anciano misterioso llama a la puerta para resguardarse del frío, ella lo atiende y se queda dormida apenas un instante. Al despertar descubre que el visitante ha desaparecido y que se ha llevado a su hijo. Desesperada, sale en su busca por la nieve y emprende un camino marcado por duras pruebas, guiada por la esperanza de recuperar al niño.

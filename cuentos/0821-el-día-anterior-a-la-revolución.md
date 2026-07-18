@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ursula-k-le-guin-el-dia-antes-de-la-revolucion/2345/
 
+
+**Imagen:** 0821-el-día-anterior-a-la-revolución.webp
 ---
 
 Sinopsis: «El día anterior a la revolución» (The Day Before the Revolution) es un cuento de Ursula K. Le Guin, publicado en agosto de 1974 en la revistaGalaxy Science Fiction. Narra una jornada en la vida de Laia Odo, mítica dirigente e ideóloga revolucionaria, hoy debilitada por la vejez y la enfermedad. Mientras evoca a su esposo muerto y las luchas que marcaron su destino, enfrenta la rutina con un cuerpo frágil que ya no responde, aunque su espíritu permanece lúcido e insurrecto. En esa intimidad se revela la distancia entre la figura legendaria que transformó la historia y la mujer cansada que carga, en soledad, con el peso de sus días.

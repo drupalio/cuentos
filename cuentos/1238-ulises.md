@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/silvina-ocampo-ulises/6910/
 
+
+**Imagen:** 1238-ulises.jpg
 ---
 
 El cuento «Ulises», de Silvina Ocampo, narra la historia de un niño peculiar y su inusual vida familiar. A pesar de su corta edad, Ulises parece mayor, con arrugas y otros rasgos inusuales. Adoptado por tres hermanas trillizas excéntricas, su vida cotidiana está llena de extrañezas y aventuras. Un día, Ulises decide buscar una solución mágica para cambiar su apariencia y destino. Acompañado por un amigo de la escuela, visita a una adivina en busca de un «filtro de la juventud». Tras consumirlo, Ulises experimenta una transformación sorprendente, pero esta no trae los resultados esperados.

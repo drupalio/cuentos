@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-charlabamos-de-sobremesa/6665/
 
+
+**Imagen:** 0670-charlábamos-de-sobremesa.jpg
 ---
 
 Sinopsis:En «Charlábamos de sobremesa,» cuento deHoracio Quirogapublicado en mayo de 1901 enLa alborada, un grupo de amigos discute sobre supersticiones durante una animada sobremesa. Un extranjero cuenta una aterradora leyenda medieval, donde un cazador se enfrenta a un lobo y descubre que la pata que corta es en realidad una mano humana, lo que conduce a que una mujer sea quemada por brujería. Un tertuliano, inspirado por la historia, narra su propia experiencia sobrenatural con un evento terrorífico que ocurre durante una boda.

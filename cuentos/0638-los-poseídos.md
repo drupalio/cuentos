@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-c-clarke-los-poseidos/25110/
 
+
+**Imagen:** 0638-los-poseídos.webp
 ---
 
 Sinopsis:«Los poseídos» (The Possessed) es un cuento de Arthur C. Clarke, publicado en marzo de 1953 en la revistaDynamic Science Fiction. Narra la odisea del Swarm, una forma de vida alienígena que viaja a través de los huracanes de radiación estelar en busca de un planeta donde refugiarse. Al llegar a un planeta joven, explora su superficie y examina sus formas de vida, intentando encontrar un huésped adecuado para sobrevivir. Mientras estudia aquel mundo primitivo, el Swarm enfrenta una decisión crítica que marcará su futuro en un universo vasto y hostil.

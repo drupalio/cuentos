@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-g-wells-la-floracion-de-la-extrana-orquidea/25658/
 
+
+**Imagen:** 0116-la-floración-de-la-extraña-orquídea.webp
 ---
 
 Sinopsis:«La floración de la extraña orquídea» (The Flowering of the Strange Orchid) es un cuento corto de H. G. Wells, publicado el 2 de agosto de 1894 enPall Mall Budget. La historia sigue a Winter-Wedderburn, un hombre tranquilo y solitario que encuentra emoción en su afición por cultivar orquídeas exóticas. Un día adquiere una planta extraña recolectada en regiones remotas, lo que despierta en él una sensación de misterio. Fascinado por su crecimiento inusual, pasa los días atendiendo el invernadero, sin sospechar que la orquídea encierra algo más que belleza.

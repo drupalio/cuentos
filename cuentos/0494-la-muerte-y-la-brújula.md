@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-la-muerte-y-la-brujula/2618/
 
+
+**Imagen:** 0494-la-muerte-y-la-brújula.webp
 ---
 
 Sinopsis:«La muerte y la brújula» es un cuento de Jorge Luis Borges, publicado en mayo de 1942 en la revistaSury luego incluido en la colecciónFicciones(1944). El doctor Marcelo Yarmolinsky, delegado al Tercer Congreso Talmúdico, es encontrado muerto en su habitación del Hôtel du Nord. En la escena del crimen se encuentra un misterioso mensaje relacionado con la primera letra del Nombre de Dios. Convencido de que tras esta muerte, y las que le suceden, existe un patrón místico y simbólico, el detective Erik Lönnrot se adentra en un sinuoso laberinto de pistas, decidido a descubrir quién o quiénes se hallan tras estos asesinatos.

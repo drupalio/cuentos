@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elena-garro-la-culpa-los-tlaxcaltecas/1093/
 
+
+**Imagen:** 0496-la-culpa-es-de-los-tlaxcaltecas.jpg
 ---
 
 Sinopsis:«La culpa es de los tlaxcaltecas», cuento de Elena Garro, publicado en 1964 en la colecciónLa Semana de Colores, entrelaza la historia contemporánea con el pasado prehispánico de México, a través de la vida de Laura, una mujer que vive en la Ciudad de México del siglo XX, quien experimenta encuentros místicos con un amor de otra época, en plena Conquista. La narrativa destaca por su rica intertextualidad y su capacidad para desdibujar las líneas entre realidad y fantasía, creando una obra rica en expresiones de realismo mágico.

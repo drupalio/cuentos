@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-solo-vine-a-hablar-por-telefono/13377/
 
+
+**Imagen:** 1132-sólo-vine-a-hablar-por-teléfono.jpg
 ---
 
 Sinopsis: «Sólo vine a hablar por teléfono» es un cuento de Gabriel García Márquez, publicado en 1992 en la colecciónDoce cuentos peregrinos. Narra la historia de María de la Luz Cervantes, una joven mexicana que, durante un viaje a Barcelona, sufre una avería en su automóvil en medio de una tormenta. Desesperada por comunicarse con su esposo, acepta la ayuda de un autobús que transporta a un grupo de mujeres. Sin embargo, al llegar a su destino, María se ve atrapada en un malentendido que amenaza con alterar todos sus planes. En un entorno opresivo, su angustia crece mientras lucha por demostrar la verdad.

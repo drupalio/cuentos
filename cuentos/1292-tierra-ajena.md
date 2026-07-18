@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/oscar-castro-tierra-ajena/6535/
 
+
+**Imagen:** 1292-tierra-ajena.jpg
 ---
 
 LISANDRO Pozo y el campo han sido amigos de siempre. Existe una profunda y clara compenetración entre ellos, que no precisa de palabras para manifestarse. Lisandro “siente” la tierra. La besa con los ojos y con los pies. Cada surco, cada repliegue, cada yuyito humilde que crece condecorando el seno pardo con su crucecilla de oro, le son familiares y constituyen el alfabeto de su devoción. El hombre tiene cuidados maternales para esta hija grandota que se despierta por las mañanas arrebujada en su pañuelo gris de neblina y que por las tardes precisa de un tintineo de grillos para dormir en paz. A Lisandro la tierra le parece una amante a la que guarda fidelidad. Siente un placer callado y hondo en abrir las represas del canal, para que el agua, cantando, extienda su amorosa lengua por sobre los terrones resecos. Y en los atardeceres, cuando el cielo es un gran zafiro pálido, él mira con no sabe qué íntimo gozo el temblor de la estrella primera en los espejos frágiles que hay diseminados entre el pasto.

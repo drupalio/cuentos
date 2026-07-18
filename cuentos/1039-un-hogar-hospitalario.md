@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-un-hogar-hospitalario/13381/
 
+
+**Imagen:** 1039-un-hogar-hospitalario.jpg
 ---
 
 Sinopsis: «Un hogar hospitalario» (A Home Away from Home), es un perturbador cuento de Robert Bloch, publicado enAlfred Hitchcock’s Mystery Magazineen 1961. La historia sigue a Natalie, una joven australiana que, tras la muerte de sus padres, busca refugio en la casa de su tío, el Dr. Bracegirdle. Al llegar a la estación de ferrocarril y descubrir que nadie ha venido a recibirla, contacta a su tío, quien, ocupado con una emergencia médica, promete enviar a alguien por ella. En la residencia del Dr. Bracegirdle, Natalie se encuentra inesperadamente en medio de una celebración con varios invitados. Aunque perturbada por el evento social tras su agotador viaje, es persuadida por Miss Plummer, asistente del doctor, para unirse a la fiesta. Conforme avanza la noche, Natalie comienza a percibir que algo muy extraño sucede en la casa.

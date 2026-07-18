@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gustavo-adolfo-becquer-la-cueva-de-la-mora/12503/
 
+
+**Imagen:** 1155-la-cueva-de-la-mora.png
 ---
 
 Sinopsis: «La cueva de la Mora», relato de Gustavo Adolfo Bécquer publicado en 1863, narra la misteriosa y dramática historia de amor entre la hija de un alcaide moro y un caballero cristiano durante la Reconquista española. El protagonista, atraído por el paisaje y las ruinas de un antiguo castillo, descubre una cueva oculta que parece tener una conexión secreta con el edificio. A través de la conversación con un lugareño, el hombre le revela la leyenda de un amor trágico entrelazado con elementos románticos y sobrenaturales.

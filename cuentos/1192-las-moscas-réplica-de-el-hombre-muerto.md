@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-las-moscas-replica-del-hombre-muerto/685/
 
+
+**Imagen:** 1192-las-moscas-réplica-de-el-hombre-muerto.webp
 ---
 
 En«Las moscas» (Réplica de El hombre muerto), cuento publicado enEl Hogaren julio de 1933, Horacio Quiroga nos presenta a un hombre que yace inmóvil contra un tronco caído, en un paraje solitario y desolado, producto de un accidente que le ha roto la columna vertebral. Mientras el paisaje árido y la quietud lo rodean, la conciencia del protagonista se vuelve cada vez más aguda, enfrentándose a la posibilidad de la muerte. El zumbido de las moscas augura un final que parece inevitable.

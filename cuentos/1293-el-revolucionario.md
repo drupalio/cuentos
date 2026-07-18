@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ernest-hemingway-el-revolucionario/6388/
 
+
+**Imagen:** 1293-el-revolucionario.jpg
 ---
 
 En 1919 viajaba por los ferrocarriles de Italia. En los cuarteles generales del partido le entregaron un trozo de hule escrito con lápiz indeleble en donde se decía que se trataba de un camarada que en Budapest había sido muy perseguido y castigado por los reaccionarios, y al mismo tiempo se pedía a los camaradas que lo ayudasen en cualquier forma. Lo usaba en vez de billete. Era muy tímido y muy joven y los guardafrenos lo pasaban de una línea a otra. Como no tenía dinero, le daban de comer detrás del mostrador de los restaurantes de las estaciones.

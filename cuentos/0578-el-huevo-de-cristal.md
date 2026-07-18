@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-g-wells-el-huevo-de-cristal/16630/
 
+
+**Imagen:** 0578-el-huevo-de-cristal.webp
 ---
 
 Sinopsis:«El huevo de cristal» (The Crystal Egg) es un cuento de ciencia ficción de H. G. Wells publicado enThe New Reviewen mayo de 1897. Narra la historia de Mr. Cave, un anticuario dueño de una pequeña y deteriorada tienda en Londres. Entre los extraños objetos que vende, se encuentra una misteriosa esfera de cristal, la cual atrae el interés de dos curiosos clientes. Sin embargo, Cave parece reacio a venderla, lo que genera tensiones con su familia y despierta sospechas. A medida que el relato avanza, descubrimos que Cave ha hecho un asombroso descubrimiento relacionado con esta esfera, y que lo mantiene en secreto.

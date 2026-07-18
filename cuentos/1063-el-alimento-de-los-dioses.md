@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-c-clarke-el-alimento-de-los-dioses/8550/
 
+
+**Imagen:** 1063-el-alimento-de-los-dioses.jpg
 ---
 
 Sinopsis: «El alimento de los dioses» (The Food of the Gods) es un cuento de Arthur C. Clarke publicado en mayo de 1964 en la revistaPlayboy. La historia está narrada como el testimonio de un empresario ante una comisión del Congreso, donde expone la evolución de la alimentación humana tras la invención de los alimentos sintéticos. En un mundo donde la carne ya no proviene de animales y el hambre ha sido erradicada, surge un misterioso producto que revoluciona el mercado: la Ambrosía Plus. Lo que comienza como una exposición científica se transforma en una crítica mordaz a las concesiones éticas que justificamos en nombre del progreso.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-una-flor-amarilla/8511/
 
+
+**Imagen:** 0475-una-flor-amarilla.webp
 ---
 
 Sinopsis:«Una flor amarilla» es un cuento de Julio Cortázar, publicado en 1956 en el libroFinal del juego. En un bistró de París, un hombre ebrio afirma haber hecho un descubrimiento extraordinario: somos inmortales. Según relata, la revelación le llegó en un autobús, cuando reconoció en un chico de trece años llamado Luc una réplica exacta de sí mismo a esa edad: el mismo rostro, los mismos gestos, la misma timidez, la misma voz. Decidido a investigar, se introduce en la vida del muchacho: visita su casa y conoce a su familia. A medida que averigua su historia, encuentra analogías asombrosas entre ambas existencias, como si la vida se repitiera en ciclos infinitos.

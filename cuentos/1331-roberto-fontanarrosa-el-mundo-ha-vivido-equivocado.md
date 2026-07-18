@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roberto-fontanarrosa-el-mundo-ha-vivido-equivocado/5247/
 
+
+**Imagen:** 1331-roberto-fontanarrosa-el-mundo-ha-vivido-equivocado.jpg
 ---
 
 —¿Sabés cómo sería un día perfecto? —dijo Hugo tocándose, pensativo, la punta de la nariz. Pipo meneó la cabeza lentamente, sin mirarlo. Estaba abstraído observando algo a través de los ventanales.

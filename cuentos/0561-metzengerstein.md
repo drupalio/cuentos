@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-metzengerstein/16808/
 
+
+**Imagen:** 0561-metzengerstein.webp
 ---
 
 Sinopsis:«Metzengerstein», fue el primer relato de Edgar Allan Poe en ser publicado. Apareció en elSaturday Courieren enero de 1832. La historia se centra en dos familias nobles de Hungría, los Berlifitzing y los Metzengerstein, enemistadas por siglos y vinculadas a una oscura profecía que presagia la caída de una de ellas. Frederick, el joven barón de Metzengerstein, hereda una vasta fortuna y pronto se hace conocido por su comportamiento despiadado y arrogante. Tras un incendio en las caballerizas de los Berlifitzing, Frederick encuentra un enigmático caballo cuya aparición coincide con un trágico suceso. La misteriosa conexión entre el barón y el animal crea una atmósfera de inquietud y presagios oscuros, desencadenando eventos cada vez más perturbadores.

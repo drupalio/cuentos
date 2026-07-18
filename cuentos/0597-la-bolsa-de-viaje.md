@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/algernon-blackwood-la-bolsa-de-viaje/25387/
 
+
+**Imagen:** 0597-la-bolsa-de-viaje.webp
 ---
 
 Sinopsis:«La bolsa de viaje» (The Kit-Bag) es un cuento de Algernon Blackwood, publicado en diciembre de 1908 enPall Mall Magazine. Johnson ha pasado diez días en los tribunales observando el juicio de un brutal asesino llamado John Turk, cuya imagen lo atormenta. Ansioso por partir hacia los Alpes y dejar atrás esa experiencia perturbadora, prepara su equipaje cuando escucha pasos furtivos en la escalera, como si alguien merodeara en las sombras. A medida que la inquietud crece, el ambiente se vuelve cada vez más opresivo, y la noche, que prometía ser tranquila, se convierte en una experiencia aterradora.

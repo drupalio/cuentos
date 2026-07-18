@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/salman-rushdie-el-pelo-del-profeta/26141/
 
+
+**Imagen:** 0437-el-pelo-del-profeta.webp
 ---
 
 Sinopsis:«El pelo del Profeta» (The Prophet’s Hair) es un cuento de Salman Rushdie, publicado el 16 de abril de 1981 enLondon Review of Books. En pleno invierno en Srinagar, el prestamista Hashim está a punto de subir a sushikaracuando descubre flotando en el lago una reliquia sagrada robada de la mezquita de Hazratbal. Aunque no es un hombre devoto y sabe que debería devolverla, su ambición de coleccionista se impone y decide conservarla. Desde ese momento, su conducta comienza a alterarse de forma alarmante, afectando la vida doméstica y sembrando un clima de temor, rigidez moral, fanatismo y creciente desorden en el seno de su familia.

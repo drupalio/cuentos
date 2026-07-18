@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alphonse-daudet-woodstown/23652/
 
+
+**Imagen:** 0841-woodstown.webp
 ---
 
 Sinopsis: «Wood’stown» es un cuento fantástico, de marcado trasfondo ecologista, escrito por Alphonse Daudet y publicado el 27 de mayo de 1873 enLe Bien Public. Relata la fundación de una ciudad en la desembocadura del Río Rojo, en Estados Unidos, erigida tras un feroz combate contra la selva milenaria que dominaba el lugar. Con calles rectas, muelles, mercados e iglesias, Wood’stown surge como símbolo de la ambición humana y del triunfo sobre la naturaleza. Sin embargo, alrededor de sus muros persiste la selva, inquietante, oscura y expectante, que observa en silencio el desafío de la ciudad que la desplazó.

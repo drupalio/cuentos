@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-cuestion-de-etiqueta/13159/
 
+
+**Imagen:** 0175-cuestión-de-etiqueta.jpg
 ---
 
 Sinopsis: «Cuestión de etiqueta» (A Question of Etiquette) es un cuento de Robert Bloch publicado en septiembre de 1942 en la revistaWeird Tales. Un agente del censo recorre sin entusiasmo un vecindario, llamando a las puertas y repitiendo las mismas preguntas. Al llegar a una antigua casa, es recibido por Lisa Lorini, una mujer de aspecto corriente que afirma tener más de cuatrocientos años y trabajar como bruja al servicio del Diablo. Lo que parecía una visita de rutina se convierte en una invitación a una reunión de brujas que alterará completamente su destino.

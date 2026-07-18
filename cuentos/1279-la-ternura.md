@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/nicomedes-guzman-la-ternura/993/
 
+
+**Imagen:** 1279-la-ternura.jpg
 ---
 
 ¡HOJALATERIA qué componeee… le!…

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-el-funerario/13340/
 
+
+**Imagen:** 0183-el-funerario.jpg
 ---
 
 Sinopsis: «El funerario» (The Handler), es un cuento de Ray Bradbury publicado enWeird Tales, en enero de 1947. Narra la historia de Mr. Benedict, un hombre que dirige un negocio funerario, una iglesia y un cementerio, todos en la misma ubicación. Benedict siente un profundo complejo de inferioridad y pasa sus días soportando el desprecio y los insultos de los vecinos del pueblo. En su vida diaria, Benedict se muestra sumiso y no responde a las provocaciones, pero su verdadera naturaleza se revela durante las noches, en la soledad de su funeraria, donde se cobra venganza de todas las ofensas, reales o imaginarias, que le han propinado.

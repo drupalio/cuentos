@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/chimamanda-ngozi-adichie-algo-alrededor-de-tu-cuello/4080/
 
+
+**Imagen:** 1124-algo-alrededor-de-tu-cuello.jpg
 ---
 
 «Algo alrededor de tu cuello», cuento de Chimamanda Ngozi Adichie, es una historia conmovedora sobre una joven nigeriana que experimenta la ilusión y la desilusión de la vida en Estados Unidos. Al ganar la lotería de visados, espera encontrar un futuro prometedor, pero se enfrenta a la realidad de la soledad, la explotación y el choque cultural. La narrativa explora su viaje de autodescubrimiento y adaptación, tocando temas de identidad, expectativas y la búsqueda de un sentido de pertenencia en un entorno extranjero. La historia también aborda las complejidades de las relaciones interculturales y el impacto emocional de la distancia con su familia y su tierra natal.

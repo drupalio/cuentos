@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-orientacion-los-gatos/637/
 
+
+**Imagen:** 0039-orientación-de-los-gatos.webp
 ---
 
 Sinopsis:«Orientación de los gatos», cuento de Julio Cortázar incluido en la colecciónQueremos tanto a Glenda(1980), explora la particular relación entre una mujer, su esposo y su enigmático gato, Osiris. Cortázar revela la singular conexión que se establece entre la mujer y el felino, mientras el marido queda desplazado, desconcertado por una intimidad que no alcanza a comprender. Por más que intenta recuperar el afecto que siente resquebrajarse, se encuentra siempre frente a ese vínculo silencioso y difícil de descifrar que su esposa parece compartir con Osiris.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/haruki-murakami-quemar-graneros/2212/
 
+
+**Imagen:** 0237-quemar-graneros.webp
 ---
 
 Sinopsis:«Quemar graneros» (Naya wo yaku), cuento de Haruki Murakami que inspiró la películaBurning(2018), relata la historia de un escritor casado que conoce en una fiesta a una joven y excéntrica modelo. A pesar de sus diferencias, ambos forjan una amistad marcada por encuentros esporádicos, donde comparten pensamientos e historias que desnudan sus inquietudes y complejidades. Tiempo después, luego de un viaje a África ella regresa acompañada de un enigmático y adinerado novio. Este hombre, reservado y peculiar, un día le revela una inusual y oscura afición.

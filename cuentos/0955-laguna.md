@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/manuel-rojas-laguna/639/
 
+
+**Imagen:** 0955-laguna.jpg
 ---
 
 Sinopsis: En «Laguna», cuento deManuel Rojaspublicado en 1922 enLa Montaña, un joven de diecisiete años, recién llegado a Mendoza tras trabajar en la cosecha de uva, busca empleo. Junto a otro hombre son contratados para trabajar en la cordillera, en el mantenimiento de las vías del ferrocarril. En este viaje, el joven conoce a Laguna, un chileno delgado y peculiar con una vida llena de infortunios. La amistad entre ambos se fortalece mientras enfrentan juntos las duras condiciones de trabajo y el frío implacable. Laguna, con su naturaleza animada y su constante mala suerte, deja una huella profunda en el joven narrador, convirtiéndose en un símbolo de resiliencia y compañerismo.

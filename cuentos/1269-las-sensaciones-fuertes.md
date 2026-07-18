@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-las-sensaciones-fuertes/6854/
 
+
+**Imagen:** 1269-las-sensaciones-fuertes.jpg
 ---
 
 Lo que voy a relatar ocurrió hace poco en el Tribunal de Moscú. Los miembros del Jurado, obligados a pasar la noche en el Tribunal, entablaron, antes de acostarse, una conversación acerca de las sensaciones fuertes, a propósito de un testigo que, según parece, quedóse tartamudo y con el cabello blanco a consecuencia de un instante de terror. Los jurados estuvieron de acuerdo en contar cada uno a su vez, antes de irse a acostar, alguna historia de sus vidas respectivas. La vida humana es corta, lo cual no impide que en ella ocurran multitud de peripecias.

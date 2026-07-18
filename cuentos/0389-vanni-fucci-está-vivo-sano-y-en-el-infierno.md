@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/dan-simmons-vanni-fucci-esta-vivo-sano-y-en-el-infierno/26476/
 
+
+**Imagen:** 0389-vanni-fucci-está-vivo-sano-y-en-el-infierno.webp
 ---
 
 Sinopsis:«Vanni Fucci está vivo, sano y en el infierno»(Vanni Fucci Is Alive and Well and Living in Hell)es un cuento de Dan Simmons publicado en 1988 en la antologíaNight Visions 5. El Hermano Freddy es un influyente televangelista que dirige un lucrativo imperio religioso desde su lujoso estudio en Alabama. Su programa, el Club del Desayuno Aleluya, llega cada día a millones de hogares y le permite recaudar enormes sumas en donaciones. Un día, mientras da inicio al espacio de conversación habitual, un invitado desconocido irrumpe en el set: un italiano elegante que se presenta como Vanni Fucci, uno de los condenados de laDivina Comediade Dante, que asegura venir del Infierno.

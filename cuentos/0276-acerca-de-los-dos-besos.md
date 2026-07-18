@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermann-hesse-acerca-de-los-dos-besos/2078/
 
+
+**Imagen:** 0276-acerca-de-los-dos-besos.webp
 ---
 
 Sinopsis:«Acerca de los dos besos» (Des Herrn Piero Erzählung von den zwei Küssen) es un cuento de Hermann Hesse, publicado el 1º de noviembre de 1904 en la revistaDie Schweiz. Piero es un hombre mayor que evoca un verano de su adolescencia en la casa de campo de su padre en los Apeninos, donde convive con su primo Alvise, un joven apuesto y arrogante a quien detesta. La tirante relación entre ambos se ve alterada por la llegada de unos nuevos vecinos: un rico señor boloñés y su deslumbrante esposa, Donna Isabella. Piero, cautivado por la joven mujer, siente despertar en él una pasión que hasta entonces nunca había experimentado.

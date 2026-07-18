@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/cesar-vallejo-mas-alla-de-la-vida-y-la-muerte/5474/
 
+
+**Imagen:** 1001-más-allá-de-la-vida-y-la-muerte.webp
 ---
 
 Sinopsis: «Más allá de la vida y la muerte» es un cuento de César Vallejo, publicado en junio de 1922 en la revistaVariedadesy recogido en el libroEscalas(1923). Cuenta la historia de un hombre que regresa a su aldea natal tras una larga ausencia. Mientras cabalga por los paisajes andinos, lo invaden recuerdos de su infancia y, sobre todo, de su madre fallecida, cuya pérdida pesa sobre su alma con una intensidad creciente. En este retorno cargado de melancolía, el paisaje se vuelve alma y los recuerdos cobran vida, como si el tiempo mismo empezara a descomponerse con una fuerza perturbadora.

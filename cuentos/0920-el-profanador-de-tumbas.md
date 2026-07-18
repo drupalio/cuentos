@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-louis-stevenson-el-profanador-de-tumbas/14759/
 
+
+**Imagen:** 0920-el-profanador-de-tumbas.jpg
 ---
 
 Sinopsis:«El profanador de tumbas»(The Body Snatcher) es un cuento de Robert Louis Stevenson, publicado en diciembre de 1884 en el periódicoPall Mall Gazette. En una taberna del pueblo de Debenham, Fettes, un anciano solitario y misterioso, adicto a la bebida, se reúne cada tarde con sus habituales compañeros de copas. Una noche de invierno, la llegada inesperada de un médico londinense, el doctor Macfarlane, provoca en Fettes una reacción violenta que desconcierta a todos. El encuentro entre ambos sugiere que comparten un oscuro secreto vinculado a macabras prácticas de su juventud.

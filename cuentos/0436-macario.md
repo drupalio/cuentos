@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-rulfo-macario/255/
 
+
+**Imagen:** 0436-macario.webp
 ---
 
 Sinopsis:«Macario», cuento de Juan Rulfo incluido en la obraEl llano en llamas(1953), es un relato íntimo que nos sumerge en el mundo de un joven con discapacidad mental bajo el cuidado de su madrina. Atrapado entre la violencia y la ternura, Macario encuentra consuelo en su relación con Felipa, una figura maternal alternativa. La narración capta su lucha diaria, sus deseos simples y su visión peculiar de la vida, ofreciendo una ventana a sus pensamientos más profundos y a su existencia marginal.

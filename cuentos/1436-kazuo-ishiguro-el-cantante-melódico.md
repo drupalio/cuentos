@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/kazuo-ishiguro-cantante-melodico/862/
 
+
+**Imagen:** 1436-kazuo-ishiguro-el-cantante-melódico.jpg
 ---
 
 La mañana que vi a Tony Gardner entre los turistas, la primavera acababa de llegar a Venecia. Llevábamos ya una semana trabajando fuera, en lapiazza, un alivio, si se me permite decirlo, después de tantas horas tocando en el cargado ambiente del café, cortando el paso a los clientes que querían utilizar la escalera. Soplaba la brisa aquella mañana, los toldos se hinchaban y aleteaban a nuestro alrededor, todos nos sentíamos un poco más animados y frescos, y supongo que se notó en nuestra música.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/miguel-de-unamuno-abuelo-y-nieto/12395/
 
+
+**Imagen:** 0226-abuelo-y-nieto.jpg
 ---
 
 Sinopsis:Abuelo y nieto, cuento de Miguel de Unamuno publicado enEl Imparcialen octubre de 1902, se centra en la relación entre un padre, su hijo Pedro, y Tomasa, una mujer seria y trabajadora que entra en sus vidas para llenar el vacío dejado por la ausencia de una figura femenina. El cuento explora las dinámicas familiares, las expectativas y los roles dentro de la familia, donde el deseo del padre de encontrar una mujer que sea compañera para su hijo y madre de sus nietos conduce a cambios significativos en sus vidas.

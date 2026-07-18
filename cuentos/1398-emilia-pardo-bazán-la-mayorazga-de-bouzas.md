@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-la-mayorazga-de-bouzas/2399/
 
+
+**Imagen:** 1398-emilia-pardo-bazán-la-mayorazga-de-bouzas.jpg
 ---
 
 No pecaré de tan minuciosa y diligente que fije con exactitud el punto donde pasaron estos sucesos. Baste a los aficionados a la topografía novelesca saber que Bouzas lo mismo puede situarse en los límites de la pintoresca región berciana, que hacia las profundidades y quebraduras del Barco de Valdeorras, enclavadas entre la sierra de la Encina y la sierra del Ege. Bouzas, moralmente, pertenece a la Galicia primitiva, la bella, la que hace veinte años estaba todavía por descubrir.

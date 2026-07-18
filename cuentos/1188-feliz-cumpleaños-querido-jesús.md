@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/frederik-pohl-feliz-cumpleanos-querido-jesus/17999/
 
+
+**Imagen:** 1188-feliz-cumpleaños-querido-jesús.webp
 ---
 
 «Feliz cumpleaños, querido Jesús» (Happy Birthday, Dear Jesus) es un relato de ciencia ficción escrito por Frederik Pohl en 1956. La historia se sitúa en una sociedad donde la Navidad ha sido completamente comercializada, con las compras navideñas comenzando en septiembre y los villancicos transformados en jingles publicitarios. El protagonista, George, trabaja en una tienda departamental y contrata a Lilymary Hargreave, una joven con fuertes convicciones religiosas. A medida que George intenta cortejarla, se enfrenta a las diferencias entre su mundo consumista y los valores tradicionales de la familia de Lilymary, lo que lo lleva a cuestionar sus propias creencias y la verdadera esencia de la Navidad.

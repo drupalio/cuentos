@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-cartas-de-mama/10826/
 
+
+**Imagen:** 0612-cartas-de-mamá.jpg
 ---
 
 Sinopsis:«Cartas de mamá» es un cuento del escritorJulio Cortázar, publicado en el libroLas armas secretasde 1959. La historia gira en torno a Luis y Laura un matrimonio de argentinos avecindados en París. Aunque de forma rutinaria Luis suele recibir cartas de su madre que vive en Buenos Aires, una de ellas viene a conmover toda su vida, abriendo una ventana al pasado que tanto él como su esposa prefieren mantener cerrada. Un relato con una atmósfera inquietante, en donde los silencios se muestran impotentes para acallar todas las culpas.

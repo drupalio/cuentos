@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-el-pequeno-asesino/6716/
 
+
+**Imagen:** 0443-el-pequeño-asesino.jpg
 ---
 
 Sinopsis:«El pequeño asesino» (The Small Assassin) es un cuento de Ray Bradbury, publicado en noviembre de 1946 en la revistaDime Mystery Magaziney recogido luego en la colecciónDark Carnival(1947). Alice y David son padres primerizos. Tras un parto traumático, Alice desarrolla el aterrador convencimiento de que su hijo recién nacido es una entidad consciente y malévola que intenta asesinarla. Mientras médicos y familiares atribuyen sus temores a una crisis psicológica posparto, Alice se siente cada vez más vulnerable ante la amoralidad de una criatura que parece acecharla en el silencio de su hogar.

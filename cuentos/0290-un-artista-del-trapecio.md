@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/franz-kafka-un-artista-del-trapecio-o-la-primera-desgracia/2627/
 
+
+**Imagen:** 0290-un-artista-del-trapecio.webp
 ---
 
 Sinopsis:«Un artista del trapecio» (Erstes Leid) es un cuento de Franz Kafka publicado en la revistaGeniusen enero de 1923. Obsesionado con la perfección artística, el trapecista de un circo ha decidido vivir permanentemente en su trapecio, sin descender jamás al suelo. Sus escasas necesidades son atendidas desde abajo mediante cestillos que suben y bajan, lo que le permite una vida solitaria, tranquila y completamente consagrada a su disciplina. Un solo evento rompe su rutina: los continuos viajes que la compañía debe realizar para presentar su espectáculo.

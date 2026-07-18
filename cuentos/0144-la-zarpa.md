@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-emilio-pacheco-la-zarpa/13618/
 
+
+**Imagen:** 0144-la-zarpa.webp
 ---
 
 Sinopsis: «La zarpa», un cuento de José Emilio Pacheco incluido en su colecciónEl principio del placer(1972), narra la confesión de Zenobia, una mujer que revela la lucha interna que le provoca la envidia que siente hacia Rosalba, su mejor amiga de toda la vida. Desde su infancia, Zenobia se sintió eclipsada por Rosalba, quien siempre le superó en belleza, popularidad e inteligencia. Esta constante comparación desencadenó un profundo resentimiento en ella que marcó su existencia con una sombra de amargura que perduró durante años.

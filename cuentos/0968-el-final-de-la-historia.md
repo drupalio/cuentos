@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/clark-ashton-smith-el-final-de-la-historia/22429/
 
+
+**Imagen:** 0968-el-final-de-la-historia.webp
 ---
 
 Sinopsis:«El final de la historia» (The End of the Story) es un cuento deClark Ashton Smith, publicado en mayo de 1930 en la revistaWeird Tales. El relato sigue a Cristóbal Morand, un joven estudiante que, al extraviarse en un bosque durante una tormenta, encuentra refugio en una antigua abadía. Allí es recibido con generosa hospitalidad por el abad Hilarión, quien le ofrece acceso a una biblioteca repleta de tesoros literarios, incluidos textos prohibidos. Fascinado por un misterioso manuscrito, Cristóbal se ve arrastrado a una peligrosa búsqueda de conocimiento más allá de los límites de la razón.

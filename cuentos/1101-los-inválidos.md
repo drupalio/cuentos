@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/baldomero-lillo-los-invalidos/12721/
 
+
+**Imagen:** 1101-los-inválidos.jpg
 ---
 
 Sinopsis: «Los Inválidos» es un cuento de Baldomero Lillo publicado en 1904 dentro de la colecciónSub terra. Narra la conmovedora historia de Diamante, un caballo que, tras años de trabajo y maltrato en el interior de una mina de carbón, es extraído a la superficie debido a su deterioro físico. Los mineros, también agotados por el trabajo, se identifican con el animal y reflexionan sobre las similitudes entre sus vidas y la del caballo, marcadas por la explotación y el abandono en un ambiente de desolación. La narrativa destaca la empatía y solidaridad entre los trabajadores y el caballo, y hace una crítica a las condiciones laborales inhumanas.

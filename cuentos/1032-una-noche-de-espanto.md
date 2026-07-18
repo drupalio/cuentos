@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-una-noche-de-espanto/4099/
 
+
+**Imagen:** 1032-una-noche-de-espanto.webp
 ---
 
 Sinopsis: «Una noche de espanto» (Страшная ночь) es un cuento de Antón Chéjov, publicado el 27 de diciembre de 1884 en la revistaРазвлечение(Entretenimiento). Iván Ivanovitch Panihidin regresa a casa en una noche lluviosa tras participar en una sesión de espiritismo que lo deja perturbado. Mientras atraviesa calles oscuras y desiertas, un temor irracional se apodera de él. Al llegar a su habitación, se enfrenta a un descubrimiento aterrador que desafía su sentido común. Atrapado entre la lógica y la superstición, Panihidin vivirá una noche marcada por el miedo, donde cada paso parece acercarlo a un misterio sin explicación.

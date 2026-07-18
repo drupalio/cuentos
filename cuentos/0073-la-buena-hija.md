@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/almudena-grandes-la-buena-hija/28221/
 
+
+**Imagen:** 0073-la-buena-hija.webp
 ---
 
 Sinopsis:«La buena hija» es un cuento de la escritora española Almudena Grandes, publicado en 1996 en el libroMadres e hijas. Berta es una mujer adulta que ha sacrificado su independencia para cuidar a su despótica madre, una anciana caprichosa que la domina y la manipula con su enfermedad. Una noche, mientras intenta tomar un baño caliente, es interrumpida una y otra vez por sus quejas infundadas, como si la enferma estuviera empeñada en tiranizarla. El agotamiento empuja a la protagonista a refugiarse en los recuerdos de su niñez y en la memoria de Piedad, la empleada doméstica que la crio con una ternura que nunca encontró en su propia familia.

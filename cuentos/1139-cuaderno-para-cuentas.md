@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ana-maria-matute-cuaderno-para-cuentas/2152/
 
+
+**Imagen:** 1139-cuaderno-para-cuentas.webp
 ---
 
 Sinopsis:Cuaderno para cuentases un cuento de Ana María Matute, publicado en 1964 en la colecciónAlgunos muchachos. La historia está narrada por Celestina, una niña que escribe en un cuaderno sobre su vida después de ser enviada a vivir con su madre, a quien no conocía. A través de su mirada inocente pero perspicaz, describe la opresiva casa donde trabaja su madre, la distante relación que tiene con ella y la rígida estructura social que las rodea. Entre recuerdos, descubrimientos y sentimientos encontrados, Celestina empieza a comprender su origen y el peso de los secretos familiares que marcan su destino.

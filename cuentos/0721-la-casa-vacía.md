@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/algernon-blackwood-la-casa-vacia/17648/
 
+
+**Imagen:** 0721-la-casa-vacía.webp
 ---
 
 Sinopsis: «La casa vacía» (The Empty House) es un inquietante cuento de Algernon Blackwood publicado en 1906. La historia explora el terror que emana de un lugar aparentemente inofensivo, pero cargado de un oscuro pasado. Jim Shorthouse acompaña a su tía Julia, una apasionada de lo paranormal, en una investigación nocturna dentro de una casa que, según los rumores, está maldita. Aunque la vivienda no tiene un aspecto inusual, quienes la visitan sienten en ella un pavor inexplicable. A medida que la pareja avanza en su investigación la atmósfera se torna cada vez más asfixiante, y los fenómenos que enfrentan no solo desafían su razón, sino que amenazan con quebrantar su valentía.

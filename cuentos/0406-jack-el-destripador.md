@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/shirley-jackson-jack-el-destripador/26367/
 
+
+**Imagen:** 0406-jack-el-destripador.webp
 ---
 
 Sinopsis:«Jack el Destripador» (Jack the Ripper) es un cuento de la escritora estadounidense Shirley Jackson, publicado póstumamente en 1996 en el libroJust an Ordinary Day. En una noche de Nueva York, un hombre se desplaza por una solitaria calle cuando se topa con una muchacha desmayada junto a un bar, aparentemente ebria. Alarmado por su estado, ingresa en el local donde intenta que lo ayuden a auxiliarla, pero choca con la indiferencia del cantinero y de los otros hombres presentes, quienes prefieren desentenderse del asunto, aduciendo que la conocen y que ella suele dormir en la calle. Ante la pasividad general, el hombre decide tomar cartas en el asunto y ayudar a la joven por su cuenta.

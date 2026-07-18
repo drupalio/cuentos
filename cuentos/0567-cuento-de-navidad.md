@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-cuento-de-navidad/25473/
 
+
+**Imagen:** 0567-cuento-de-navidad.webp
 ---
 
 Sinopsis:«Cuento de Navidad» (Conte de Noël) es un relato de Guy de Maupassant, publicado el 25 de diciembre de 1882 enLe Gaulois. El doctor Bonenfant, médico rural en la Normandía francesa, rememora un suceso extraordinario ocurrido durante un invierno implacable. La nieve cae sin descanso y deja a Rolleville sumido en el silencio y el temor, mientras los habitantes aseguran oír voces que atraviesan la noche. En este ambiente de inquietud sobrenatural, un acontecimiento inexplicable sacude al pueblo y pone a prueba las certezas del propio doctor, quien confiesa haber presenciado en Nochebuena un evento que desafía toda lógica racional.

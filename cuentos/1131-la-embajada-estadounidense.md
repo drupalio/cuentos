@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/chimamanda-ngozi-adichie-la-embajada-estadounidense/4174/
 
+
+**Imagen:** 1131-la-embajada-estadounidense.webp
 ---
 
 «La embajada estadounidense» (The American Embassy) es un relato de Chimamanda Ngozi Adichie publicado enPrism Internationalen la primavera de 2002. Una mujer nigeriana hace fila en la embajada estadounidense en Lagos, buscando asilo político tras una serie de eventos que han destrozado su vida. Mientras espera, el bullicio de su entorno contrasta con el peso emocional que lleva: el dolor por la pérdida de su hijo y la huida de su marido, un periodista perseguido por denunciar al gobierno. Entre los comentarios de otros solicitantes y el caos cotidiano de la calle, ella reflexiona sobre su identidad, su pasado y el precio de una posible nueva vida lejos de su tierra. La decisión que debe tomar será crucial y definitiva.

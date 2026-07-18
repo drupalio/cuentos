@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-sredni-vashtar/564/
 
+
+**Imagen:** 0938-sredni-vashtar.webp
 ---
 
 Sinopsis: «Sredni Vashtar» es un cuento del escritor británico Saki (Hector Hugh Munro), publicado por primera vez el 28 de mayo de 1910 en laWestminster Gazettey más tarde incluido enThe Chronicles of Clovis(1911). La historia se centra en Conradin, un niño enfermizo y solitario que vive bajo la opresiva tutela de su prima, la señora De Ropp. En un rincón oculto del jardín, Conradin encuentra refugio en un cobertizo donde cría en secreto a un hurón, al que venera como un dios llamado Sredni Vashtar. En ese pequeño santuario, Conradin construye un mundo privado, escenario de su resistencia íntima y silenciosa.

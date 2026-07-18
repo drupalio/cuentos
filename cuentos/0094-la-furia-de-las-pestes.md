@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/samanta-schweblin-la-furia-de-las-pestes/8507/
 
+
+**Imagen:** 0094-la-furia-de-las-pestes.webp
 ---
 
 Sinopsis: «La furia de las pestes» es un cuento de la escritora argentinaSamanta Schweblin, publicado en 2008 en el libro homónimo. Gismondi es un agente gubernamental que recorre comunidades pobres de frontera para registrarlas y brindarles ayuda. En una de sus rondas llega a un pequeño pueblo perdido, hundido en un paisaje árido y sediento. El lugar es inquietantemente tranquilo: sus habitantes lo observan en silencio, y en las casas parece reinar una apatía abrumadora. A medida que se interna en el pueblo, Gismondi descubre señales de una carencia devastadora que transforma su visita en una experiencia cada vez más perturbadora.

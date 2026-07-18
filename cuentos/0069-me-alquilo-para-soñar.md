@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-me-alquilo-para-sonar/11469/
 
+
+**Imagen:** 0069-me-alquilo-para-soñar.webp
 ---
 
 Sinopsis:«Me alquilo para soñar», es un cuento deGabriel García Márquezpublicado en 1992 en la colección12 cuentos peregrinos. Narra las experiencias del propio autor con una misteriosa mujer que conoció en Viena. Un hecho trágico ocurrido en La Habana, sirve a García Márquez para evocar a este fascinante personaje que tiene un don muy especial: la habilidad de anticipar el futuro a través de los sueños. Es un relato que transita entre lo fantástico y lo periodístico, donde García Márquez incluye además una sabrosa anécdota con Pablo Neruda.

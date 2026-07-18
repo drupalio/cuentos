@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mary-shelley-el-hermano-y-la-hermana/23794/
 
+
+**Imagen:** 0818-el-hermano-y-la-hermana-una-historia-italiana.webp
 ---
 
 Sinopsis: «El hermano y la hermana: Una historia italiana» (The Brother and Sister: An Italian Story) es un cuento de Mary Shelley, publicado en 1832 enThe Keepsakey recogido luego en el libroTales and Stories(1891). Ambientado en la Siena medieval, narra la historia de Lorenzo y Flora Mancini, dos jóvenes marcados por el exilio, la ruina familiar y la enemistad entre clanes. Huérfanos y en la pobreza, deciden regresar a su ciudad natal con el propósito de reconstruir su fortuna y recuperar el honor perdido. Allí, Lorenzo deberá enfrentarse al joven conde Fabián Tolomei; sin embargo, una situación fortuita lo arrojará a una nueva desgracia, que lo obligará a confiar el cuidado de su preciada hermana en manos de sus enemigos.

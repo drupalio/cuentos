@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elsa-bornemann-cuando-los-palidos-vienen-marchando/28183/
 
+
+**Imagen:** 0076-cuando-los-pálidos-vienen-marchando.webp
 ---
 
 Sinopsis:«Cuando los pálidos vienen marchando» es un cuento de la escritora argentina Elsa Bornemann, publicado en 1988 en el libro¡Socorro! 12 cuentos para caerse de miedo. Felipe gana una poderosa moto importada en una rifa y decide compartirla con Huberto, su amigo de toda la vida. Entusiasmados, ambos planean estrenarla con un viaje nocturno hacia Arenamares, evitando las rutas más transitadas. Al principio, la moto avanza sin problemas por caminos solitarios, hasta que se detiene de pronto sobre el puente del Arroyo Lobuna. Varados a varios kilómetros del pueblo más cercano, los dos amigos esperan que alguien pase por la ruta.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/felisberto-hernandez-muebles-el-canario/2455/
 
+
+**Imagen:** 1393-felisberto-hernández-muebles-el-canario.jpg
 ---
 
 La propaganda de estos muebles me tomó desprevenido. Yo había ido a pasar un mes de vacaciones a un lugar cercano y no había querido enterarme de lo que ocurriera en la ciudad. Cuando llegué de vuelta hacía mucho calor y esa misma noche fui a una playa. Volví a mi pieza más bien temprano y un poco malhumorado por lo que me había ocurrido en el tranvía. Lo tomé en la playa y me tocó sentarme en un lugar que daba al pasillo. Como todavía hacía mucho calor, había puesto mi saco en las rodillas y traía los brazos al aire, pues mi camisa era de manga corta. Entre las personas que andaban por el pasillo hubo una que de pronto me dijo:

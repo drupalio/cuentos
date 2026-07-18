@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/leopoldo-lugones-la-estatua-sal/543/
 
+
+**Imagen:** 1227-la-estatua-de-sal.jpg
 ---
 
 En «La estatua de sal», cuento de Leopoldo Lugones, se narra la historia del monje Sosistrato, quien vive en solitaria penitencia en unas cavernas cerca del Mar Muerto. Un día, tras la visita de un peregrino, Sosistrato se obsesiona con la idea de redimir a la esposa de Lot, convertida en estatua de sal por mirar atrás, hacia Sodoma. Convencido por una visión, el monje emprende un viaje para bautizar la estatua, creyendo en su salvación.

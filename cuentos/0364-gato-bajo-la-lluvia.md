@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ernest-hemingway-gato-la-lluvia/884/
 
+
+**Imagen:** 0364-gato-bajo-la-lluvia.jpg
 ---
 
 Sinopsis:«Gato bajo la lluvia» (Cat in the Rain) es un cuento de Ernest Hemingway, publicado en 1925 en el libro In Our Time. En un hotel italiano frente al mar, una pareja estadounidense pasa un día gris y lluvioso. Desde la ventana, la mujer observa un jardín desierto y se fija en una gata que intenta resguardarse del agua bajo una mesa. Movida por la compasión, decide bajar a buscarla mientras su esposo permanece leyendo en la habitación. El trayecto por el hotel, el trato atento del propietario y la lluvia constante enmarcan una escena cotidiana que apenas oculta la distancia emocional, la incomunicación y la atmósfera de insatisfacción que rodea a la pareja.

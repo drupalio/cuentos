@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/octavia-e-butler-sonidos-del-habla/25237/
 
+
+**Imagen:** 0618-sonidos-del-habla.webp
 ---
 
 Sinopsis:«Sonidos del habla» (Speech Sounds) es un cuento de ciencia ficción escrito por Octavia E. Butler, publicado en diciembre de 1983 enIsaac Asimov’s Science Fiction Magazine. En un mundo devastado por una misteriosa enfermedad que ha destruido casi por completo la capacidad de comunicarse, Valerie Rye emprende un viaje solitario con la esperanza de reencontrarse con sus familiares. En el camino, debe enfrentarse a la violencia cotidiana de una sociedad fracturada, donde el silencio forzado alimenta la desconfianza y el miedo. En medio del caos, Rye busca mantenerse a salvo y encontrar algún vínculo que le devuelva sentido a su existencia.

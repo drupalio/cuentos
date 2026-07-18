@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-el-hombre-bicentenario/16851/
 
+
+**Imagen:** 0692-el-hombre-bicentenario.webp
 ---
 
 Sinopsis: «El hombre bicentenario» (The Bicentennial Man) es un cuento de ciencia ficción filosófica de Isaac Asimov que, en 1977, le valió los prestigiosos premios Hugo, Locus y Nebula. La historia sigue a Andrew Martin, un robot diseñado para realizar tareas domésticas en una familia humana. Sin embargo, Andrew pronto revela habilidades creativas y un razonamiento excepcional, lo que le hace merecedor de un trato especial por parte de sus dueños. Con el paso del tiempo, Andrew empieza a cuestionar su identidad y su naturaleza robótica, lo que despierta en él un profundo anhelo de libertad y humanidad. Su evolución lo lleva a explorar los límites entre ser una máquina y un ser humano, en una búsqueda por adquirir derechos y convertirse en algo más que un simple robot.

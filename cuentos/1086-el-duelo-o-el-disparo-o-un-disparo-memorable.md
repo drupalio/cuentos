@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/aleksandr-pushkin-el-duelo/12829/
 
+
+**Imagen:** 1086-el-duelo-o-el-disparo-o-un-disparo-memorable.jpg
 ---
 
 Sinopsis: «El duelo» (también traducido comoEl disparooUn disparo memorable) es un cuento de Aleksandr Pushkin, publicado en 1831 como parte deLas historias del difunto Iván Petróvich Bélkin. Ambientado en una ciudad de provincias del Imperio ruso, narra la vida de un misterioso exoficial de húsares conocido como Silvio, quien destaca por su destreza con las pistolas y su carácter reservado. Admirado y temido por los jóvenes oficiales, Silvio esconde un pasado turbio y una obsesión silenciosa por el honor mancillado, que condiciona sus acciones y siembra un creciente enigma entre sus compañeros.

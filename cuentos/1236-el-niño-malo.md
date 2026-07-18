@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hans-christian-andersen-el-nino-malo/6164/
 
+
+**Imagen:** 1236-el-niño-malo.jpg
 ---
 
 El cuento «El niño malo», de Hans Christian Andersen, narra la historia de un anciano poeta que, en una noche de tormenta, acoge en su hogar a un niño desamparado. El niño, aparentemente inocente, resulta ser más que un simple huésped, llevando al poeta a una experiencia reveladora sobre la naturaleza del amor y la confianza. Este encuentro desencadena una serie de eventos inesperados, tejiendo una narrativa que explora las emociones humanas y la dualidad de las apariencias.

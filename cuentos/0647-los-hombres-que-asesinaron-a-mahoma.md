@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alfred-bester-los-hombres-que-asesinaron-a-mahoma/2823/
 
+
+**Imagen:** 0647-los-hombres-que-asesinaron-a-mahoma.webp
 ---
 
 Sinopsis: «Los hombres que asesinaron a Mahoma» (The Men Who Murdered Mohammed») es un cuento de ciencia ficción escrito por Alfred Bester, publicado en 1958 enThe Magazine of Fantasy and Science Fiction. La historia sigue al profesor Henry Hassel, quien, tras descubrir la infidelidad de su esposa, construye una máquina del tiempo con la intención de borrar su existencia alterando eventos históricos. Sin embargo, a medida que asesina figuras clave del pasado, Hassel descubre que el tiempo es un asunto mucho más complejo de lo que esperaba. Con una mezcla de humor negro y paradojas temporales, Bester cuestiona la naturaleza del tiempo y las consecuencias de manipularlo.

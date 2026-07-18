@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ruben-dario-el-pajaro-azul/10875/
 
+
+**Imagen:** 0462-el-pájaro-azul.webp
 ---
 
 Sinopsis:«El pájaro azul» es un cuento corto del escritor nicaragüense Rubén Darío, publicado en 1888 en el libroAzul… Narra la historia de Garcín, un poeta bohemio apodado «el pájaro azul» entre sus amigos, debido a su naturaleza melancólica y soñadora. En París, Garcín recibe la admiración de sus amigos artistas por su ingenio y creatividad, pero también es recordado por su tristeza persistente. La historia explora su relación con la vida bohemia, la literatura, el amor, y su lucha contra la desesperación.

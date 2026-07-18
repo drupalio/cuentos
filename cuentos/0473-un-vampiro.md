@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/luigi-capuana-un-vampiro/18985/
 
+
+**Imagen:** 0473-un-vampiro.webp
 ---
 
 Sinopsis:«Un vampiro» (Il vampiro) es un cuento de Luigi Capuana, publicado el 1 de julio de 1904 en elCorriere della Sera. La historia sigue a Lelio Giorgi, un hombre atormentado por extraños sucesos que afectan a su vida matrimonial. Desesperado, busca la ayuda de Mongeri, un escéptico que intenta racionalizar los acontecimientos como simples alucinaciones. Sin embargo, Lelio insiste en que él y su mujer han sido víctimas de una presencia oscura que los acecha, especialmente por la noche. A medida que los fenómenos se intensifican, lo que parecía una sugestión empieza a desafiar toda lógica, poniendo a prueba las creencias de Mongeri.

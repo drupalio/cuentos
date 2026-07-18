@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-c-clarke-los-nueve-mil-millones-de-nombres-de-dios/2173/
 
+
+**Imagen:** 0639-los-nueve-mil-millones-de-nombres-de-dios.webp
 ---
 
 Sinopsis:«Los nueve mil millones de nombres de Dios» (The Nine Billion Names of God), es un cuento de Arthur C. Clarke, publicado en febrero de 1953 en la colecciónStar Science Fiction Stories. Un monasterio tibetano adquiere una avanzada computadora para completar su proyecto centenario: listar todos los nombres posibles de Dios, en un alfabeto especial. Los monjes creen que al finalizar esta lista, cumplirán el propósito divino de la humanidad. Dos ingenieros occidentales son contratados para instalar y operar la máquina, y mientras se acercan al final del proyecto, se debaten entre la lógica y la fe, enfrentándose al impacto potencial de completar esta tarea trascendental.

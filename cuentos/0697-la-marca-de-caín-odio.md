@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-c-clarke-la-marca-de-cain/17212/
 
+
+**Imagen:** 0697-la-marca-de-caín-odio.webp
 ---
 
 Sinopsis: «La marca de Caín» (Hate) es un cuento de ciencia ficción de Arthur C. Clarke publicado en la revistaIfen noviembre de 1961. La historia sigue a Tibor Szabo, un buzo de origen húngaro con un pasado atormentado, quien trabaja en la recolección de perlas en la Gran Barrera de Coral junto a un grupo de pescadores experimentados. Una madrugada, un meteoro surca el cielo sobre su barco, iluminando la noche en un espectáculo silencioso y sobrecogedor. Al día siguiente, al retomar su trabajo, los buzos encuentran en el fondo marino una enigmática cápsula. Tibor, movido por la curiosidad, se sumerge para investigar el objeto, mientras antiguos recuerdos y rencores resurgen en su mente.

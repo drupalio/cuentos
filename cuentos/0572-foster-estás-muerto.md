@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-foster-estas-muerto/17783/
 
+
+**Imagen:** 0572-foster-estás-muerto.webp
 ---
 
 Sinopsis:«Foster, estás muerto» (Foster, You’re Dead) es un cuento de ciencia ficción de Philip K. Dick publicado enStar Science Fiction Stories No. 3en 1955. En una sociedad obsesionada con la preparación para una guerra nuclear, Mike Foster enfrenta el estigma de ser hijo de un «anti-P», alguien que se niega a comprar refugios antibombas o contribuir al sistema de defensa comunitario. Mientras sus compañeros construyen trampas y cuchillos en la escuela, él vive bajo la constante humillación y temor de no tener un refugio que lo proteja. La presión social y el miedo lo empujan a anhelar seguridad en un mundo donde la paranoia ha sido convertida en un negocio muy lucrativo.

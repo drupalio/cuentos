@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isabel-allende-dos-palabras/23958/
 
+
+**Imagen:** 0328-dos-palabras.webp
 ---
 
 Sinopsis: «Dos palabras» es un cuento de Isabel Allende, publicado en 1989 en el libroCuentos de Eva Luna. Relata la historia de Belisa Crepusculario, una mujer que, tras sobrevivir a la sequía y la miseria, descubre el poder de la escritura y lo convierte en su oficio. Recorre pueblos y mercados ofreciendo palabras a cambio de unas monedas: versos, cartas de amor, insultos ingeniosos o noticias que unen a comunidades distantes. Su arte atrae a multitudes y pronto su fama llega a oídos de un enigmático Coronel, que la convoca ante su presencia.

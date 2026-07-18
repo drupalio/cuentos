@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ana-maria-matute-bernardino/21757/
 
+
+**Imagen:** 1040-bernardino.webp
 ---
 
 Sinopsis: «Bernardino» es un cuento de Ana María Matute, publicado enHistorias de la Artámila(1961). La historia presenta a Bernardino, un niño solitario y peculiar que vive en una finca apartada llamada «Los Lúpulos», en compañía de sus hermanas mayores. Bernardino mantiene una actitud distante y reservada, lo que provoca el rechazo de los demás niños del pueblo. Su único compañero fiel es Chu, un pequeño perro que lo sigue a todas partes. La desconfianza y la envidia de los otros niños desencadenan un conflicto que pondrá a prueba el carácter de Bernardino.

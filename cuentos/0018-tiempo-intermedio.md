@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-tiempo-intermedio/14732/
 
+
+**Imagen:** 0018-tiempo-intermedio.jpg
 ---
 
 Sinopsis: «Tiempo intermedio» (Time Intervening) es un cuento del escritor estadounidense Ray Bradbury publicado en 1952 enRay Bradbury Review. Un anciano sale de su casa en la madrugada y encuentra a unos niños jugando en su jardín. Aunque intenta hablar con ellos, no obtiene respuesta. De vuelta en su hogar, se sienta en la oscuridad, inquieto. De repente, un joven y una chica entran, sorprendidos de verlo, y lo echan, afirmando que esa es su casa. El anciano, perplejo y sin que se atiendan sus protestas, termina en la calle. Durante la noche, observa desconcertado cómo varias personas entran y salen de su hogar, sin que aparentemente nadie le preste atención.

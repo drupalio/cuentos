@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-la-insignia/12799/
 
+
+**Imagen:** 1095-la-insignia.jpg
 ---
 
 Sinopsis: «La insignia» es un relato de Julio Ramón Ribeyro publicado en 1958 en la colecciónCuentos de circunstancias. Narra la experiencia de un hombre que, tras encontrar en un basural una insignia de plata, se ve envuelto en una serie de eventos misteriosos que lo llevan a ingresar en una enigmática organización cuyos propósitos desconoce. Sin comprender completamente la situación en que se halla, el uso de la insignia hace que su vida tome un rumbo inesperado, sumergiéndolo en un mundo de actividades desconcertantes y revelaciones sorprendentes.

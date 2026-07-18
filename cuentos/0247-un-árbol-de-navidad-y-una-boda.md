@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fiodor-dostoyevski-un-arbol-de-navidad-y-una-boda/17931/
 
+
+**Imagen:** 0247-un-árbol-de-navidad-y-una-boda.webp
 ---
 
 Sinopsis:«Un árbol de Navidad y una boda» (Ёлка и свадьба) es un cuento de Fiódor Dostoyevski publicado en la revista rusaAnales de la Patriaen septiembre de 1848. Invitado a una fiesta infantil en vísperas de año nuevo, un hombre narra las peculiares dinámicas que observa entre los invitados. En particular su atención se centra en Yulián Mastákovich, un hombre carismático, ambicioso y sin escrúpulos, que muestra un especial interés en una niña, luego de enterarse que es la heredera de una cuantiosa dote.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roald-dahl-cuento-africano/869/
 
+
+**Imagen:** 0901-un-cuento-africano.jpg
 ---
 
 Sinopsis: «Un cuento africano» (An African Story), es un cuento de Roald Dahl publicado en octubre de 1958 enJack London’s Adventure Magazine. Narra la historia de un joven piloto de la Real Fuerza Aérea Británica durante la Segunda Guerra Mundial. Debido a un desperfecto técnico, el piloto se ve obligado a realizar un aterrizaje forzoso en las tierras altas de Kenia. Allí es auxiliado por un anciano solitario que lo acoge en su casa. Durante su breve estancia, el anciano le relata una peculiar y perturbadora historia sobre su convivencia con Judson, un hombre de comportamiento errático y cruel con los animales. El relato del anciano revela una trama oscura de tensión creciente, manipulación y venganza en el aislado entorno africano.

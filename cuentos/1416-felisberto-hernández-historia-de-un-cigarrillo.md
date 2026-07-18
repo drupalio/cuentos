@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/felisberto-hernandez-historia-de-un-cigarrillo/1290/
 
+
+**Imagen:** 1416-felisberto-hernández-historia-de-un-cigarrillo.jpg
 ---
 
 A Antonio Soto (Boy)

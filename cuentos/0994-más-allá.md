@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-mas-alla/4644/
 
+
+**Imagen:** 0994-más-allá.webp
 ---
 
 Sinopsis:«Más allá» es un cuento de Horacio Quiroga, publicado el 6 de septiembre de 1925 en el diarioLa Naciónde Buenos Aires. Narrado en primera persona, presenta el relato íntimo de una joven enamorada que, enfrentada a la férrea oposición de sus padres, decide huir con su amado para sellar su unión. Desde una habitación de hotel, la protagonista reconstruye el impulso trágico que los llevó a consagrar su amor en un abrazo desesperado y definitivo, destinado a llevarlos más allá de los límites de la vida y de la realidad.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-emma-zunz/506/
 
+
+**Imagen:** 0405-emma-zunz.jpg
 ---
 
 Sinopsis:«Emma Zunz» es un cuento deJorge Luis Borgespublicado 1949 en el libro El Aleph. Narra la historia de Emma, una joven trabajadora de una fábrica textil que recibe la noticia de que su padre, que se hallaba viviendo lejos tras ser acusado injustamente de robo, ha muerto debido a una sobredosis de fármacos. Sumida en el dolor y convencida de que conoce al culpable de la desgracia de su padre, Emma se embarca en un meticuloso plan de venganza para restaurar el honor de su progenitor.

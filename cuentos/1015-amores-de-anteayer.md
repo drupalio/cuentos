@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-amores-de-anteayer/6651/
 
+
+**Imagen:** 1015-amores-de-anteayer.jpg
 ---
 
 Sinopsis:«Amores de anteayer» es un cuento de Mario Benedetti, publicado en 2003 en el libroEl porvenir de mi pasado. La historia comienza en el otoño de 1944, cuando Rodrigo Aznárez recorre el país como secretario de un profesor que promueve un plan de educación física. En el viaje, Rodrigo conoce a Natalia Oribe, una de las jóvenes gimnastas que acompañan al profesor para realizar exhibiciones deportivas y artísticas en los pueblos por donde pasan. Durante los traslados, en la penumbra del autobús, surge entre ambos una complicidad silenciosa, un vínculo sutil y apasionado que quedará como un recuerdo imborrable.

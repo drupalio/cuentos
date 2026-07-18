@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-casualidad/8417/
 
+
+**Imagen:** 1169-casualidad.webp
 ---
 
 Sinopsis:Casualidades un cuento de Emilia Pardo Bazán, publicado en 1913 enLa Ilustración Española y Americana. Narra la historia de Luis Cortada, un hombre encantador y despreocupado cuya vida amorosa da un giro inesperado cuando se ve envuelto en los intensos sentimientos de una mujer casada. A través de la mirada de un amigo cercano, descubrimos cómo Luis, fiel a su filosofía de evitar dramas pasionales, intenta lidiar con esta situación con ingenio y humor. Sin embargo, la aparente ligereza de los acontecimientos comienza a revelar consecuencias más serias y sombrías, que pondrán a prueba su acostumbrada serenidad.

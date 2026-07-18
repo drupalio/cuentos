@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-teoria-del-cangrejo/6737/
 
+
+**Imagen:** 1284-teoría-del-cangrejo.jpg
 ---
 
 Habían levantado la casa en el límite de la selva, orientada al sur para evitar que la humedad de los vientos de marzo se sumara al calor que apenas mitigaba la sombra de los árboles.

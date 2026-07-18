@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/andres-caicedo-en-las-garras-del-crimen/5553/
 
+
+**Imagen:** 1323-en-las-garras-del-crimen.jpg
 ---
 
 Acaba con mis fuerzashúndeme de frenteabandóname en lacriminalidad…

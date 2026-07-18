@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-ojos-de-perro-azul/5821/
 
+
+**Imagen:** 0928-ojos-de-perro-azul.jpg
 ---
 
 Sinopsis: «Ojos de perro azul» es un cuento corto del escritor colombiano Gabriel García Márquez, publicado por primera vez en 1950 en el periódicoEl Espectadory más tarde incluido en la colecciónOjos de perro azul(1974). La historia transcurre en un espacio onírico, donde un hombre y una mujer se encuentran cada noche en sueños, pero no logran reconocerse en la vida real. A través de diálogos introspectivos y atmósferas irreales, ambos intentan mantener viva una conexión que solo existe mientras duermen. La frase «ojos de perro azul» actúa como símbolo de ese vínculo esquivo y frágil que se desvanece al despertar.

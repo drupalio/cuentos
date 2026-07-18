@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-bosch-la-mancha-indeleble/6265/
 
+
+**Imagen:** 1296-la-mancha-indeleble.jpg
 ---
 
 Todos los que habían cruzado la puerta antes que yo habían entregado sus cabezas, y yo las veía colocadas en una larga hilera de vitrinas que estaban adosadas a la pared de enfrente. Seguramente en esas vitrinas no entraba aire contaminado, pues las cabezas se conservaban en forma admirable, casi como si estuvieran vivas, aunque les faltaba el flujo de la sangre bajo la piel. Debo confesar que el espectáculo me produjo un miedo súbito e intenso. Durante cierto tiempo me sentí paralizado por el terror.

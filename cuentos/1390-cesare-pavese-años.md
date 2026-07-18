@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/cesare-pavese-anos/2538/
 
+
+**Imagen:** 1390-cesare-pavese-años.jpg
 ---
 
 De lo que era yo entonces no queda nada: apenas hombre, era aún un crío. Lo sabía hacía tiempo, pero todo ocurrió a finales del invierno, una tarde y una mañana. Vivíamos juntos, casi escondidos, en una habitación que daba a una avenida. Bruna me dijo esa noche que tenía que irme, o irse ella; ya no teníamos nada que hacer juntos. Le supliqué que probásemos de nuevo; estaba tumbado a su lado y la abrazaba. Ella me dijo:

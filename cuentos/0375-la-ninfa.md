@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ruben-dario-la-ninfa/5466/
 
+
+**Imagen:** 0375-la-ninfa.jpg
 ---
 
 Sinopsis: «La Ninfa» es un cuento de Rubén Darío, publicado en 1888 en el libroAzul…. Relata una escena en el castillo de Lesbia, una actriz excéntrica que, durante una cena con artistas y sabios, provoca un animado debate sobre la existencia de seres mitológicos como sátiros, centauros y ninfas. Mientras la conversación se mezcla con el licor y las bromas, el protagonista—un hombre sensible y silencioso— se deja llevar por esa atmósfera fantástica. Al día siguiente, un paseo solitario por los jardines del castillo lo conducirá a una experiencia tan desconcertante como inolvidable.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/otto-binder-yo-robot/27797/
 
+
+**Imagen:** 0157-yo-robot.webp
 ---
 
 Sinopsis:«Yo, robot» («I, Robot») es un cuento del escritor estadounidense Otto Binder, publicado bajo el seudónimo de Eando Binder en enero de 1939 en la revistaAmazing Stories. Adam Link es un robot dotado de un cerebro artificial capaz de aprender y razonar como un ser humano. Creado por el doctor Link tras veinte años de trabajo, Adam relata su despertar a la conciencia, sus primeros pasos, el aprendizaje del lenguaje y la lectura, y la peculiar relación que establece con su creador y con el pequeño perro Terry. Cuando el doctor Link se dispone a dar a conocer su creación al mundo, un accidente inesperado altera el destino de Adam.

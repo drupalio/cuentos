@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/yasunari-kawabata-la-bailarina-de-izu/22847/
 
+
+**Imagen:** 0528-la-bailarina-de-izu.webp
 ---
 
 Sinopsis: «La bailarina de Izu»(Izu no odoriko) es un cuento del escritor japonés Yasunari Kawabata, publicado en 1926 en la revistaBungei Jidai. Relata el viaje de un estudiante que recorre en otoño la región montañosa de Izu. Durante su solitaria travesía, se cruza repetidamente con un grupo de músicos ambulantes y queda especialmente cautivado por una joven bailarina, tímida y encantadora, que forma parte de la comparsa. A medida que el protagonista se aproxima a ellos, su encuentro con la muchacha y con el mundo itinerante que representa despierta emociones inesperadas en él y transforma silenciosamente su experiencia del viaje.

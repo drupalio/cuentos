@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-colonia/6814/
 
+
+**Imagen:** 0799-colonia.webp
 ---
 
 Sinopsis: «Colonia» (Colony) es un inquietante cuento de ciencia ficción de Philip K. Dick, publicado en la revistaGalaxy Science Fictionen 1953. Un grupo de exploradores llega a un planeta aparentemente perfecto para la colonización, con condiciones ideales para la vida humana. Sin embargo, lo que parecía un paraíso pronto se convierte en una trampa mortal cuando descubren una amenaza insospechada que pone en peligro no solo sus vidas, sino la supervivencia de toda la humanidad. Para evitar que el peligro se extienda más allá del planeta, deberán tomar decisiones extremas y luchar por su vida contra un enemigo invisible y aterrador.

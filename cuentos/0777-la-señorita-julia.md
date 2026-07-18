@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/amparo-davila-la-senorita-julia/24078/
 
+
+**Imagen:** 0777-la-señorita-julia.webp
 ---
 
 Sinopsis: «La señorita Julia» es un cuento de la escritora mexicana Amparo Dávila, publicado en 1959 en el libroTiempo destrozado. La historia retrata a una mujer solitaria y meticulosa cuya vida comienza a desmoronarse tras padecer un insomnio persistente provocado por ruidos extraños en su casa. Su deterioro físico y mental se manifiesta en el trabajo, donde sus compañeros especulan con crueldad y maledicencia sobre su vida privada. Incapaz de hallar el origen del mal que la aqueja, Julia se obsesiona con eliminar a las ratas que cree invaden su hogar. Lo que parecía una vida tranquila y ejemplar se transforma en una lucha silenciosa contra una amenaza invisible.

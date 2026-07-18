@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/silvina-ocampo-las-vestiduras-peligrosas/6088/
 
+
+**Imagen:** 0813-las-vestiduras-peligrosas.webp
 ---
 
 Sinopsis: «Las vestiduras peligrosas» es un cuento de Silvina Ocampo publicado en 1970 en el libroLos días de la noche. La protagonista, Piluca, es una modista que relata su experiencia trabajando para Artemia, una joven obsesionada con la moda que le pide crear vestidos cada vez más atrevidos y extravagantes. La historia se centra en cómo esta obsesión por la indumentaria altera profundamente la vida de ambas mujeres. Con cada nueva prenda, más provocativa que la anterior, la vida de Artemia se ve envuelta en una serie de eventos disruptivos en los que se difumina la línea entre la realidad y la fantasía, lo que tiene un impacto surrealista y perturbador en el desarrollo de la narración.

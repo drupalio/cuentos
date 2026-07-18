@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/cristina-peri-rossi-la-rebelion-los-ninos/900/
 
+
+**Imagen:** 1122-la-rebelión-de-los-niños.webp
 ---
 
 Sinopsis:La rebelión de los niñoses un cuento de Cristina Peri Rossi, publicado en 1980. Relata el encuentro entre Rolando y Laura, dos adolescentes de catorce años, durante una exposición organizada por un Centro de Expresión Infantil. Ambos forman parte de una sociedad autoritaria, en la que los hijos de opositores al régimen son reeducados bajo estricta vigilancia. Laura, cuyos padres están presos, y Rolando, adoptado por una familia oficialista tras el asesinato de los suyos, dialogan y reflexionan sobre el entorno que los rodea. A través de sus voces, el cuento explora las formas en que la creatividad y la subjetividad son sometidas a mecanismos de control, pero también cómo la rebeldía busca modos de manifestarse, aun en medio de la represión.

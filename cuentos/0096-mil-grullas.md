@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elsa-bornemann-mil-grullas/28097/
 
+
+**Imagen:** 0096-mil-grullas.webp
 ---
 
 Sinopsis:«Mil grullas» es un cuento de Elsa Bornemann, publicado en 1981 en el libroNo somos irrompibles. Cuentos de chicos enamorados. En la Hiroshima de 1945, Naomi Watanabe y Toshiro Ueda viven una infancia marcada por el miedo, la escasez y las noticias de una guerra que apenas comprenden. En medio de ese mundo sombrío, crece entre ambos un afecto inocente, que se manifiesta en sus miradas y en la discreta ternura con que Toshiro comparte su escasa comida con Naomi. Al comenzar las vacaciones, deben separarse durante varias semanas. Cada uno espera impaciente el ansiado reencuentro, sin imaginar que, en los primeros días de agosto, sus vidas cambiarán para siempre.

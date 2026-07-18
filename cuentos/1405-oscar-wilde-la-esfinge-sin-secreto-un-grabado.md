@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/oscar-wilde-la-esfinge-sin-secreto-un-grabado/2338/
 
+
+**Imagen:** 1405-oscar-wilde-la-esfinge-sin-secreto-un-grabado.jpg
 ---
 
 Una tarde, sentado en la terraza del Café de la Paix, contemplaba yo el esplendor y la miseria de la vida parisiense, y mientras tomaba mi vermut y reflexionaba sobre el extraño panorama de orgullo y de necesidad que desfilaba ante mí, oí que, de pronto, me llamaban por mi nombre. Volví la cabeza y encontré a lord Murchison. No nos habíamos visto desde que coincidimos en la universidad, hacía ya unos diez años, de manera que estaba encantado de encontrármelo de nuevo, y nos estrechamos las manos con gran efusividad. En Oxford habíamos sido íntimos amigos. Bueno, animoso e íntegro, me fue muy simpático desde el primer momento. Sus compañeros más cercanos decíamos con frecuencia de él que hubiera sido el camarada perfecto sin su manía de decir siempre la verdad, aunque de veras creo que aquella misma franqueza era la que hacía que le admirásemos y quisiéramos tanto. Le encontré bastante cambiado. Parecía preocupado e inquieto, como si le atormentase alguna duda secreta. Adiviné que la causa de aquello no se debía a ese escepticismo moderno que echa a perder medio mundo, pues Murchison era el más inmutable de lostoriesy creía en el Pentateuco con tanta firmeza como creía en la Cámara de los Lores, por lo cual tuve que deducir que intervenía en aquello una mujer, y le pregunté si se había casado.

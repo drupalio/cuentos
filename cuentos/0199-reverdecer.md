@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/adolfo-bioy-casares-reverdecer/6141/
 
+
+**Imagen:** 0199-reverdecer.webp
 ---
 
 Sinopsis:«Reverdecer» es un cuento del escritor argentino Adolfo Bioy Casares, publicado en 1959 en el libroGuirnalda con amores. Junto a la tumba de Emilia, un hombre permanece aferrado a su recuerdo con una devoción absoluta y solitaria, reticente a emprender el regreso y aceptar su ausencia. Días después decide honrar su memoria llevando cada viernes rosas blancas al cementerio. Sin embargo, esa rutina de luto pronto se ve perturbada por la inexplicable aparición de un ramo de rosas rojas apenas ajadas sobre la lápida, como si alguien se le hubiera anticipado en la ofrenda.

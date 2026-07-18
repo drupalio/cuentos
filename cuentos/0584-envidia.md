@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ana-maria-matute-envidia/23724/
 
+
+**Imagen:** 0584-envidia.webp
 ---
 
 Sinopsis: «Envidia» es un cuento de Ana María Matute, publicado en 1961 en el libroHistorias de la Artámila. Narra la historia de Martina, una criada alta, fuerte y de carácter áspero, temida en la cocina por su genio y por no tolerar burlas ni confidencias. Su figura imponente y su aparente autosuficiencia hacen pensar que nada puede afectarla. Sin embargo, una noche de invierno, durante una conversación sobre la envidia, sorprende a todos al dejar entrever que, tras su dureza, se esconde una herida silenciosa, arraigada en lo más íntimo de su memoria.

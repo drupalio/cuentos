@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermann-hesse-la-ciudad/28428/
 
+
+**Imagen:** 0014-la-ciudad.webp
 ---
 
 Sinopsis:«La ciudad» (Die Stadt) es un cuento del escritor alemán Hermann Hesse, publicado en 1910 en la revistaLicht und Schatten. En una pradera aún dominada por la naturaleza, la llegada del ferrocarril marca el comienzo de una transformación vertiginosa. Los nuevos pobladores desplazan a los animales salvajes, levantan las primeras construcciones y convierten el territorio en un asentamiento que pronto prospera gracias al petróleo. Con el paso de los años, el poblado se transforma en una gran ciudad, orgullosa de su desarrollo. Cien años después de su fundación, un terremoto destruye casi todo lo construido. Sin embargo, la ciudad resurge de sus ruinas, más grande y espléndida que antes, hasta convertirse en una de las urbes más ricas, hermosas y admiradas.

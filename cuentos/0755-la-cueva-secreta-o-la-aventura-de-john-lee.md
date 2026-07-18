@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-la-cueva-secreta-o-la-aventura-de-john-lee/8449/
 
+
+**Imagen:** 0755-la-cueva-secreta-o-la-aventura-de-john-lee.webp
 ---
 
 Sinopsis: «La cueva secreta o La aventura de John Lee» (The Secret Cave, or John Lee’s Adventure) es un breve relato de terror escrito porH. P. Lovecraften 1898, cuando solo tenía 8 años de edad. La historia sigue a John, un niño de diez años, y a su hermana menor Alice. Cuando sus padres salen y los dejan solos en casa, los hermanos deciden explorar el sótano. Allí descubren accidentalmente un pasadizo oculto tras una pared que se derrumba. Con velas en mano, se adentran en el misterioso túnel que los conduce a una cueva donde vivirán una experiencia aterradora.

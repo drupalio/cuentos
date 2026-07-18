@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-el-hombre-dorado/24960/
 
+
+**Imagen:** 0658-el-hombre-dorado.webp
 ---
 
 Sinopsis:«El hombre dorado» (The Golden Man) es un cuento de Philip K. Dick, publicado en abril de 1954 en la revistaIf. En un mundo posguerra, los humanos enfrentan una inquietante amenaza: mutantes con habilidades genéticas que les otorgan poderes extraños y peligrosos. George Baines, un agente del gobierno, tiene la misión de rastrear y eliminar a estos seres. Su tarea lo lleva hasta una granja remota donde vive Cris, un joven de extraordinario atractivo, con piel y cabello dorados. Su presencia silenciosa oculta un poder incomprensible, que pondrá a prueba la eficacia de Baines y la capacidad del sistema para controlar a los mutantes.

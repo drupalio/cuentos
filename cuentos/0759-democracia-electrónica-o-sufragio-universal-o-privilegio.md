@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-democracia-electronica/16953/
 
+
+**Imagen:** 0759-democracia-electrónica-o-sufragio-universal-o-privilegio.webp
 ---
 
 Sinopsis: «Democracia electrónica»(Franchise) es un relato de ciencia ficción escrito por Isaac Asimov, publicado en la revistaIfen agosto de 1955. La historia imagina un futuro donde las elecciones en Estados Unidos ya no dependen del voto de millones de personas, sino que una supercomputadora llamada Multivac elige a un único ciudadano para representar a toda la nación. Este ciudadano, a través de sus respuestas, determinará el resultado electoral. En los días previos a la elección, la tensión crece en el país, mientras todos esperan descubrir quién será el votante designado que decidirá el futuro político de la nación.

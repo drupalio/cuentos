@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hans-christian-andersen-no-servia-para-nada/28504/
 
+
+**Imagen:** 0011-no-servía-para-nada.webp
 ---
 
 Sinopsis:«No servía para nada» (Hun duede ikke) es un cuento del escritor danés Hans Christian Andersen, publicado en 1852 en elFolkekalender for Danmarkde 1853. El hijo de una humilde lavandera es abordado por el alcalde, quien acusa a su madre de ser una inútil y una borracha. El muchacho, que le lleva alcohol, la encuentra trabajando desde hace varias horas en las frías aguas del río, agotada y sin haber comido. Cuando la mujer se entera de lo ocurrido, las palabras del alcalde reavivan el dolor de una vida marcada por el trabajo y la pobreza. Esa misma noche, mientras su hijo duerme, confía a su amiga Maren la historia de su juventud.

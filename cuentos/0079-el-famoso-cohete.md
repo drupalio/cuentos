@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/oscar-wilde-el-famoso-cohete/28172/
 
+
+**Imagen:** 0079-el-famoso-cohete.webp
 ---
 
 Sinopsis:«El famoso cohete» (The Remarkable Rocket) es un cuento del escritor irlandés Oscar Wilde, publicado en 1888 en el libroThe Happy Prince and Other Tales. Durante las celebraciones por la boda del hijo del rey con una princesa rusa llegada desde Finlandia, la corte prepara una gran exhibición de fuegos artificiales para la medianoche. Entre bengalas, petardos, candelas romanas y buscapiés, destaca un cohete arrogante que se considera excepcional y cree que el matrimonio real ha sido organizado en su honor. Mientras los demás esperan alegrar la fiesta, el cohete pronuncia discursos sobre su sensibilidad, su linaje y su supuesta importancia, convencido de que todos deberían admirarlo.

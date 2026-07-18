@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/lev-tolstoi-la-muerte-de-ivan-ilich/27959/
 
+
+**Imagen:** 0106-la-muerte-de-iván-ilich.webp
 ---
 
 Sinopsis: «La muerte de Iván Ilich» («Смерть Ивана Ильича») es un relato del escritor ruso Lev Tolstói, publicado por primera vez en 1886 en Moscú. Considerado una de las grandes obras de la etapa tardía del autor e incluido por Julio Cortázar en su lista de «cuentos inolvidables», narra la historia de Iván Ilich Golovín, un funcionario judicial que ha construido su existencia conforme a las normas de la respetabilidad social. Su carrera y su matrimonio parecen confirmar una vida correcta y ordenada, ajustada a las reglas que impone la sociedad. Sin embargo, una enfermedad inesperada empieza a minar su salud y quiebra la seguridad en que vive, obligándolo a enfrentarse a las preguntas últimas sobre su existencia.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/charles-dickens-el-capitan-asesino/3452/
 
+
+**Imagen:** 0510-el-capitán-asesino.webp
 ---
 
 Sinopsis:«El capitán asesino» (Captain Murderer) es un inquietante relato de Charles Dickens, publicado el 8 de septiembre de 1860 enAll The Year Round. La historia gira en torno a un oscuro y enigmático personaje, el Capitán Asesino, quien, oculto tras su riqueza y encanto, seduce a jóvenes mujeres para convertirlas en parte de un macabro ritual. Con una atmósfera lúgubre y detalles perturbadores, Dickens reinventa la esencia de la clásica historia deBarba Azul, inmortalizada por Charles Perrault, añadiendo su sello personal de horror y humor negro.

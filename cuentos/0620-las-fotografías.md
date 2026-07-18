@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/silvina-ocampo-las-fotografias/6330/
 
+
+**Imagen:** 0620-las-fotografías.jpg
 ---
 
 Sinopsis:«Las fotografías», cuento de Silvina Ocampo publicado en la colecciónLa furia(1959), narra la fiesta de cumpleaños de Adriana, una adolescente con una discapacidad. Rodeada de familiares y amigos, Adriana espera la llegada de Spirito, un fotógrafo contratado para inmortalizar el evento. Mientras Spirito toma las fotos, Adriana debe adoptar diferentes poses y trasladarse según las indicaciones de los presentes. A medida que avanza la sesión fotográfica, la tensión y el calor aumentan. Aunque los invitados parecen disfrutar de la celebración, Adriana se muestra visiblemente incómoda y agotada, resaltando la disonancia entre su bienestar y la aparente felicidad de la ocasión.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roberto-fontanarrosa-19-de-diciembre-de-1971/6191/
 
+
+**Imagen:** 1298-19-de-diciembre-de-1971.jpg
 ---
 
 Sí, yo sé que ahora hay quienes dicen que fuimos unos hijos de puta por lo que hicimos con el viejo Casale, yo sé. Nunca falta gente así. Pero ahora es fácil decirlo, ahora es fácil. Pero había que estar esos días en Rosario para entender el fato, mi viejo, que hablar al pedo ahora habla cualquiera.

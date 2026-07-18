@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-siempre/1217/
 
+
+**Imagen:** 1358-mario-benedetti-como-siempre.jpg
 ---
 
 A María Luisa no le agradaba que la interrumpieran. Por lo demás, a nadie le agradaba interrumpirla. Sin embargo, cuando esta vez descendió a referirse a “esa tonta de Clara”, y, empuñando el cigarrillo como una batuta, quiso comentar con grosería sutil y llevadera, el apasionamiento con que aquélla defendía su tranquilidad, Roberto no pudo contenerse.

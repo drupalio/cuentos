@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/m-r-james-corazones-perdidos/16362/
 
+
+**Imagen:** 0770-corazones-perdidos.webp
 ---
 
 Sinopsis: «Corazones perdidos» (Lost Hearts) es un relato gótico escrito por Montague Rhodes James (M. R. James), publicado enThe Pall Mall Magazineen 1895. La historia sigue a Stephen Elliot, un niño huérfano que llega a Aswarby Hall, la mansión de su enigmático primo lejano, el señor Abney. Este solitario erudito, fascinado por las antiguas religiones y prácticas esotéricas, invita al muchacho a vivir en su austera residencia en Lincolnshire. A medida que Stephen se adapta a su nuevo hogar, se siente cada vez más intrigado por el ambiente misterioso de la casa y las extrañas esculturas y libros que la adornan. A través de conversaciones con la amable ama de llaves, Mrs. Bunch, descubre inquietantes historias sobre la mansión y comienza a sospechar que las verdaderas intenciones de su primo podrían ser más oscuras de lo que aparentan.

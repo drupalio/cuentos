@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-jose-arreola-el-guardagujas/5258/
 
+
+**Imagen:** 0491-el-guardagujas.webp
 ---
 
 Sinopsis:«El guardagujas» es un cuento de Juan José Arreola, publicado en 1952 en el libroConfabulario. Un forastero llega a una estación desierta, ansioso por abordar el tren que lo llevará a su destino. Apremiado por la urgencia, entabla conversación con un misterioso guardagujas que le advierte sobre el servicio ferroviario del país: un sistema caótico, imprevisible y absurdo, en el que los trenes no siguen itinerarios confiables y el acto mismo de viajar parece regirse por leyes inciertas. A medida que el diálogo avanza, la espera se transforma en una experiencia cada vez más inquietante.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-el-aleph/262/
 
+
+**Imagen:** 0417-el-aleph.webp
 ---
 
 Sinopsis:«El Aleph»es uno de los cuentos más icónicos deJorge Luis Borges, publicado originalmente en 1945 en la revistaSury más tarde incluido en la colección homónima de 1949. En esta obra, Borges explora la intersección entre lo infinito y lo cotidiano. La historia sigue a un protagonista obsesionado con el recuerdo de su amada Beatriz Viterbo, quien visita regularmente la casa donde ella vivió. Allí, se encuentra con su primo, Carlos Argentino Daneri, un poeta mediocre y funcionario de una biblioteca. Durante uno de estos encuentros, Daneri le revela la existencia de un objeto asombroso: un «Aleph», un punto en el espacio que contiene todos los puntos del universo.

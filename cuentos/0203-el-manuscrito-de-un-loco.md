@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/charles-dickens-el-manuscrito-de-un-loco/12944/
 
+
+**Imagen:** 0203-el-manuscrito-de-un-loco.webp
 ---
 
 Sinopsis:«El manuscrito de un loco» (A Madman’s Manuscript) es un cuento de Charles Dickens, publicado en 1836 dentro deThe Posthumous Papers of the Pickwick Club. Presentado como un escrito hallado en un manicomio, narra la historia de un hombre que describe su progresiva caída en la locura. Descendiente de una familia marcada por la demencia, vive obsesionado con la idea de heredar el mismo destino. Este temor lo consume, alejándolo del mundo y encerrándolo en una espiral de paranoia y desesperación. A medida que su obsesión crece, su realidad se distorsiona y sus peores presagios comienzan a tomar forma.

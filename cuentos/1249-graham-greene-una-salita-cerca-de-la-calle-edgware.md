@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/graham-greene-una-salita-cerca-de-la-calle-edgware/8402/
 
+
+**Imagen:** 1249-graham-greene-una-salita-cerca-de-la-calle-edgware.jpg
 ---
 
 Bajo la suave llovizna estival, Craven pasó junto a la estatua de Aquiles. Acababan de encender las luces, pero ya los coches se apiñaban en dirección de Marble Arch, y los angulosos y calculadores rostros judíos se asomaban a la calle, dispuestos a pasar un buen rato con cualquier cosa que les saliera al paso. Amargamente, Craven pasaba a su lado, con el cuello del impermeable cerrado hasta la garganta; era uno de sus días malos.

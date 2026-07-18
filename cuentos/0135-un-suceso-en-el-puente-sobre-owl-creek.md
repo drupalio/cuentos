@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ambrose-bierce-un-suceso-en-el-puente-sobre-owl-creek/27931/
 
+
+**Imagen:** 0135-un-suceso-en-el-puente-sobre-owl-creek.webp
 ---
 
 Sinopsis:«Un suceso en el puente sobre Owl Creek» («An Occurrence at Owl Creek Bridge») es un cuento del escritor estadounidense Ambrose Bierce, publicado en 1891 en el libroTales of Soldiers and Civilians. Durante la Guerra de Secesión, un hombre permanece de pie sobre un puente ferroviario en Alabama, con las manos atadas y una soga al cuello, mientras un destacamento federal prepara su ejecución. El condenado, Peyton Farquhar, es un hacendado sureño que, impedido de incorporarse a las filas del Sur, ha querido servir a la causa confederada desde su condición de civil. Mientras se cumplen los estrictos protocolos militares, aguarda el cumplimiento de su sentencia y dirige sus últimos pensamientos hacia su mujer y sus hijos.

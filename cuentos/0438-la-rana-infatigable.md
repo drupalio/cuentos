@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-la-rana-infatigable/26149/
 
+
+**Imagen:** 0438-la-rana-infatigable.webp
 ---
 
 Sinopsis:«La rana infatigable» (The Indefatigable Frog) es un cuento de Philip K. Dick, publicado en julio de 1953 enFantastic Story Magaziney luego incluido en la antologíaA Handful of Darkness(1955). En una universidad, dos profesores —Hardy, de Física, y Grote, de Lógica— discuten acaloradamente la paradoja de Zenón sobre una rana atrapada en un pozo. Hardy sostiene que la rana nunca podrá escapar, mientras que Grote afirma lo contrario. El decano, cansado de sus disputas, los obliga a realizar un experimento práctico para resolver la cuestión de una vez por todas. A partir de entonces, ambos dedican gran parte de su tiempo a construir la “Cámara de la Rana”, un ensayo científico que revelará aspectos inquietantes de la personalidad de sus creadores.

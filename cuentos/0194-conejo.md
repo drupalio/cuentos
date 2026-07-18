@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/abelardo-castillo-conejo/153/
 
+
+**Imagen:** 0194-conejo.jpg
 ---
 
 Sinopsis: «Conejo», cuento deAbelardo Castillopublicado enLas otras puertas(1961), es un relato intenso que nos sumerge en el mundo emocional de un niño que navega por la complejidad de sus sentimientos en medio de un entorno familiar que no comprende del todo. A través de la relación especial que el protagonista establece con su conejo de trapo, testigo y compañero de sus más íntimos pensamientos, Castillo explora temas como la soledad, la incomprensión y la forma en que los niños enfrentan los problemas familiares. La narración, cargada de sinceridad y crudeza, muestra cómo el niño afronta la ausencia de su madre, las relaciones con los demás miembros de la familia y su lucha interna para procesar sus emociones en un mundo que parece indiferente a su dolor y confusión.

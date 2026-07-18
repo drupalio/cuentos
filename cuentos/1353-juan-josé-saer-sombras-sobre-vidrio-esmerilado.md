@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-jose-saer-sombras-sobre-vidrio-esmerilado/4225/
 
+
+**Imagen:** 1353-juan-josé-saer-sombras-sobre-vidrio-esmerilado.jpg
 ---
 
 A Biby Castellaro

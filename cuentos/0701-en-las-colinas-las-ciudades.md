@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/clive-barker-en-las-colinas-las-ciudades/16791/
 
+
+**Imagen:** 0701-en-las-colinas-las-ciudades.webp
 ---
 
 Sinopsis: «En las colinas, las ciudades» (In the Hills, the Cities) es un cuento de horror de Clive Barker, ganador delBritish Fantasy Awarden 1985. Mick y Judd, una pareja que viaja por Yugoslavia en su Volkswagen, vive una relación marcada por tensiones, especialmente por las interminables disertaciones políticas de Judd, que agotan a Mick. Tras pasar la noche en Novi Pazar, retoman su viaje por una carretera inquietantemente desierta. Al sentirse perdidos, toman un desvío por un camino rural y pronto escuchan potentes estruendos. Convencido de que son maniobras militares secretas, Judd decide investigar en busca de una gran historia. Sin embargo, lo que encuentran supera toda comprensión y cambiará sus vidas para siempre.

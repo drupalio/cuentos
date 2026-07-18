@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bram-stoker-la-casa-del-juez/8076/
 
+
+**Imagen:** 0745-la-casa-del-juez.jpg
 ---
 
 Sinopsis: En «La casa del juez» (The Judge’s House), cuento deBram Stokerpublicado en 1891, Malcolm Malcolmson, un estudiante universitario, busca un lugar tranquilo para estudiar y se instala en una antigua casa deshabitada en el pueblo de Benchurch. La Casa del Juez, con su imponente arquitectura jacobina y su reputación siniestra, parece perfecta para sus propósitos. Ignorando las advertencias de los locales, Malcolmson comienza su rutina de estudio, pero pronto es perturbado por extraños ruidos y la aparición de una rata de aspecto siniestro. A medida que los eventos se vuelven más inquietantes, Malcolmson se da cuenta de que la casa oculta oscuros secretos que amenazan su seguridad.

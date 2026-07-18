@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/damon-knight-servir-al-hombre/25063/
 
+
+**Imagen:** 0636-servir-al-hombre.webp
 ---
 
 Sinopsis:«Servir al hombre» (To Serve Man) es un cuento de Damon Knight, publicado en noviembre de 1950 en la revistaGalaxy Science Fiction. Unos alienígenas llamados kanamitas llegan a la Tierra con la promesa de utilizar su avanzada tecnología para erradicar el hambre, la guerra y las enfermedades. Aunque su aspecto grotesco despierta desconfianza en un comienzo, las pruebas con un detector de mentiras parecen confirmar su sinceridad. En medio del entusiasmo general, un traductor escéptico decide estudiar su idioma, convencido de que detrás de tanto altruismo hay un motivo oculto.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jane-rice-el-idolo-de-las-moscas/24603/
 
+
+**Imagen:** 0711-el-ídolo-de-las-moscas.webp
 ---
 
 Sinopsis: «El ídolo de las moscas» (The Idol of the Flies) es un cuento de Jane Rice publicado en junio de 1942 en la revistaUnknown Worlds. Narra la historia de Pruitt, un niño huérfano, cruel y manipulador que vive bajo la tutela de su tía y disfruta atormentando con perverso deleite a quienes lo rodean. Mientras su institutriz y los sirvientes intentan sobrellevar sus caprichos, Pruitt se entrega a juegos sádicos y a inquietantes rituales en los que las moscas desempeñan un papel central.

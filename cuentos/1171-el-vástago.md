@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/silvina-ocampo-el-vastago/8395/
 
+
+**Imagen:** 1171-el-vástago.webp
 ---
 
 Sinopsis: «El vástago», cuento de Silvina Ocampo publicado en la colecciónLa furia(1959), es un relato sobre la opresión familiar y la venganza. La historia se centra en un joven y su hermano, viviendo bajo la tiranía de su abuelo. La vida de los hermanos está marcada por el abuso, la negación de libertades, y la imposición de una existencia miserable. La llegada de un nuevo miembro familiar, Ángel Arturo, parece perpetuar el ciclo de opresión. Aunque los protagonistas intentan rebelarse es el destino el que parece imponerse en un desenlace teñido de ironía y tragedia.

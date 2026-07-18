@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-los-teologos/692/
 
+
+**Imagen:** 0758-los-teólogos.webp
 ---
 
 Sinopsis: «Los teólogos», cuento deJorge Luis Borgesde la colección El Aleph (1949), sumerge al lector en una intrincada trama de disputas teológicas que sacuden los cimientos de la Iglesia cristiana medieval. Aureliano y Juan de Panonia, brillantes teólogos, se enfrascan en una feroz batalla intelectual para defender la ortodoxia ante las amenazantes herejías. Su rivalidad se torna obsesión, arrastrándolos a insospechados abismos. A través de una prosa densa y erudita, poblada de referencias históricas, filosóficas y religiosas, Borges construye un laberinto metafísico que cuestiona la vanidad de las divisiones dogmáticas y las querellas humanas ante el insondable misterio de lo divino.

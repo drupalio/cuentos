@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-desquite/11818/
 
+
+**Imagen:** 1159-desquite.webp
 ---
 
 Sinopsis: «Desquite«, cuento deEmilia Pardo Bazánpublicado en 1897, narra la historia de Trifón Liliosa, un hombre feo y marginado que se convierte en profesor de música. En su deseo de venganza por las humillaciones sufridas, Trifón planea seducir a María, una joven inocente y sensible, utilizando su talento musical y cartas anónimas.

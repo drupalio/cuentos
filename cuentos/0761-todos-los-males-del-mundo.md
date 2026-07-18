@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-todos-los-males-del-mundo/16416/
 
+
+**Imagen:** 0761-todos-los-males-del-mundo.webp
 ---
 
 Sinopsis: «Todos los males del mundo» (All the Troubles of the World) es un cuento de ciencia ficción de Isaac Asimov, publicado en 1958 en la revistaSuper-Science Fiction. La humanidad ha confiado su destino a una gigantesca supercomputadora llamada Multivac, capaz de predecir y prevenir crímenes antes de que ocurran. Multivac, al gestionar el bienestar global, se convierte en la máxima autoridad sobre la vida de las personas. Un día, la máquina advierte que un hombre llamado Joseph Manners cometerá un grave crimen, lo que desconcierta y alerta a las autoridades, quienes harán todo por detenerlo.

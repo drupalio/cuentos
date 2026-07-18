@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-a-imagen-y-semejanza/4372/
 
+
+**Imagen:** 0390-a-imagen-y-semejanza.webp
 ---
 
 Sinopsis:«A imagen y semejanza» es un cuento de Mario Benedetti, publicado en 1968 en el libroLa muerte y otras sorpresas. Narra la persistente odisea de una hormiga que, al quedar rezagada de su caravana, debe enfrentar diversos obstáculos en su trayecto. El relato describe con minuciosidad sus esfuerzos por cumplir su misión en una geografía doméstica llena de desafíos. A medida que avanza con tenacidad, el insecto lucha contra las adversidades de un entorno que parece interferir constantemente en sus movimientos.

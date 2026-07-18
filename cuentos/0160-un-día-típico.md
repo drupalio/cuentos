@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/doris-piserchia-un-dia-tipico/26043/
 
+
+**Imagen:** 0160-un-día-típico.webp
 ---
 
 Sinopsis:«Un día típico» (A Typical Day ) es un relato de Doris Piserchia publicado en la revistaGalaxy Science Fictionen marzo de 1974. La historia describe la rutina de una niña de ocho años que vive en una torre aislada con su padre, el doctor Dakis, un genio de la genética atormentado por el alcoholismo. Mientras ella realiza las tareas domésticas y asiste a su padre en sus experimentos, el mundo exterior acosa la torre buscando una fórmula revolucionaria que el científico se niega a revelar.

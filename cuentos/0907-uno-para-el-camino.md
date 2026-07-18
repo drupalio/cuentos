@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stephen-king-uno-para-el-camino/15078/
 
+
+**Imagen:** 0907-uno-para-el-camino.jpg
 ---
 
 Sinopsis: «Uno para el camino» (One for the Road) es un cuento de terror vampírico de Stephen King publicado en la revistaMaineen 1977. Durante una noche de intensa ventisca en Maine un forastero entra en el bar de Tookey buscando ayuda para su esposa e hija que están atrapadas en la nieve cerca de Jerusalem’s Lot, un pueblo abandonado sobre el que corren inquietantes rumores. A pesar del mal clima y sus propios miedos, Tookey y Booth deciden ayudar al hombre a encontrar a su familia. Lo que comienza como una misión de rescate se convierte rápidamente en una aterradora experiencia que pondrá a prueba su valor y entereza.

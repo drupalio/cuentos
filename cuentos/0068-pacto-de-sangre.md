@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-pacto-de-sangre/14250/
 
+
+**Imagen:** 0068-pacto-de-sangre.jpg
 ---
 
 Sinopsis: «Pacto de sangre» es un cuento de Mario Benedetti, publicado en 1989 en el libroDespistes y franquezas. Narra la historia de Octavio, un anciano de 84 años que vive aislado en su habitación y cuya vida se ha reducido a una existencia casi anónima. La falta de comunicación con su entorno es tan grande que todos creen que ha perdido la voz. Aunque no es cierto, él no intenta corregir ese malentendido porque prefiere mantenerse en silencio. Su única conexión emocional es su nieto, también llamado Octavio, con quien comparte un vínculo especial que le da un propósito y lo mantiene vivo, pese a la soledad y al desinterés del resto.

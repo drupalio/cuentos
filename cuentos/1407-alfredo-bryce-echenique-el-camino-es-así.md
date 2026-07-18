@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alfredo-bryce-echenique-el-camino-es-asi/2326/
 
+
+**Imagen:** 1407-alfredo-bryce-echenique-el-camino-es-así.jpg
 ---
 
 (Con las piernas, pero también con la imaginación)

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-rulfo-el-hombre/2312/
 
+
+**Imagen:** 0300-el-hombre.webp
 ---
 
 Sinopsis: En «El hombre«, cuento de Juan Rulfo publicado en 1953 en la colecciónEl llano en llamas, tres voces relatan una historia de homicidio, persecución y venganza. Un fugitivo escapa a través de un paisaje árido y hostil. El hombre es implacablemente rastreado por un perseguidor decidido a vengar una masacre reciente. A medida que ambos avanzan, el perseguido debe lidiar con la fatiga y el desánimo. Un río se interpone en su camino y debe hacer grandes esfuerzos por vadearlo. Mientras tanto, el perseguidor espera paciente, pues sabe que su oportunidad llegará.

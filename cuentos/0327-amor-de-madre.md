@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/almudena-grandes-amor-de-madre/13637/
 
+
+**Imagen:** 0327-amor-de-madre.jpg
 ---
 
 Sinopsis: «Amor de madre» es un cuento de Almudena Grandes, publicado en 1996 dentro de la colecciónModelos de mujer. Narra la historia de una madre obsesivamente protectora que asiste, impotente, a la transformación de su hija Marianne. En un monólogo lleno de ironía y dramatismo, la protagonista recuerda la infancia perfecta de la niña, su adolescencia rebelde y las decisiones que la alejaron de su control. En su discurso, la madre revela sus miedos, prejuicios y su progresivo refugio en el alcohol, mientras intenta desesperadamente recuperar a su hija y evitar que se escape para siempre.

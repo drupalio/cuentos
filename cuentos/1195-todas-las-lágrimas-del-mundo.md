@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/brian-aldiss-todas-las-lagrimas-del-mundo/2220/
 
+
+**Imagen:** 1195-todas-las-lágrimas-del-mundo.webp
 ---
 
 SINOPSIS:Todas las lágrimas del mundo(All the World’s Tears) es un cuento de ciencia ficción escrito por Brian Aldiss y publicado en 1957 enNebula Science Fiction. Ambientado en el siglo LXXXIII d.C., el mundo está exhausto y altamente mecanizado; la naturaleza y las poblaciones humanas están estrictamente controladas para evitar la hambruna. J. Smithlao, un psicodinamista, viaja en su balsa voladora hacia la propiedad de Charles Gunpat, un hombre poderoso que vive aislado con su hija Ployploy, considerada «loca» por su sensibilidad y apariencia inusual. La visita de Smithlao tiene como objetivo administrarle a Gunpat un «estímulo del odio», un procedimiento rutinario en una sociedad donde las emociones negativas mantienen a las personas activas. Al acercarse, Smithlao observa a un hombre que se aproxima a pie a la propiedad, algo inusual en un mundo donde nadie camina. La presencia de este extraño desencadena eventos que desafían y cuestionan las normas de esta sociedad distópica.

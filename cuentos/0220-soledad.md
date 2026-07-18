@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/miguel-de-unamuno-soledad/21025/
 
+
+**Imagen:** 0220-soledad.webp
 ---
 
 Sinopsis: «Soledad» es un cuento de Miguel de Unamuno, publicado en 1913 dentro del libroEl espejo de la muerte. Narra la vida de una mujer marcada desde su nacimiento por el abandono afectivo y la ausencia de un verdadero hogar. Hija de una madre que muere al darle a luz y de un padre indiferente y hermético, Soledad crece en un ambiente sombrío, rodeada de silencios y carencias emocionales. Desde niña experimenta una profunda necesidad de cariño y comprensión, que contrasta con la fría rutina de su entorno. El relato aborda con delicadeza la melancolía silenciosa de una vida ensombrecida por la soledad.

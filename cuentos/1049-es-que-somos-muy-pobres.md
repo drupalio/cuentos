@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-rulfo-es-que-somos-muy-pobres/2310/
 
+
+**Imagen:** 1049-es-que-somos-muy-pobres.jpg
 ---
 
 Sinopsis:«Es que somos muy pobres» es un cuento de Juan Rulfo, publicado en 1953 dentro del libroEl llano en llamas. La narración comienza con una serie de desgracias que azotan a una familia campesina: primero la muerte de una tía, luego una tormenta arruina la cosecha y, finalmente, el río crecido se lleva a la vaca que el padre había regalado a su hija Tacha. A través de la mirada un niño, se describe un entorno rural marcado por la pobreza, la desesperanza y la amenaza de un destino difícil, evidenciando cómo las adversidades afectan profundamente el presente y el futuro de las personas que las padecen.

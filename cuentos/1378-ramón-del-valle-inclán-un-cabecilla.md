@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ramon-del-valle-inclan-un-cabecilla/2786/
 
+
+**Imagen:** 1378-ramón-del-valle-inclán-un-cabecilla.jpg
 ---
 
 DE aquel molinero viejo y silencioso que me sirvió de guía para visitar las piedras célticas del Monte Rouriz guardo un recuerdo duro, frío y cortante como la nieve que coronaba la cumbre. Quizá más que sus facciones, que parecían talladas en durísimo granito, su historia trágica hizo que con tal energía hubiéseme quedado en el pensamiento aquella carta tabacosa que apenas se distinguía del paño de la montera. Si cierro los ojos, creo verle: Era nudoso, seco y fuerte, como el tronco centenario de una vid; los mechones grises y desmedrados de su barba recordaban esas manchas de musgo que ostentan en las ocacidades de los pómulos las estatuas de los claustros desmantelados; sus labios de corcho se plegaban con austera indiferencia; tenía un perfil inmóvil y pensativo, una cabeza inexpresiva de relieve egipcio. ¡No, no lo olvidaré nunca!

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-c-clarke-superioridad/18684/
 
+
+**Imagen:** 0659-superioridad.webp
 ---
 
 Sinopsis:«Superioridad» es un cuento de Arthur C. Clarke, publicado en agosto de 1951 enThe Magazine of Fantasy and Science Fiction. La narración, en forma de declaración ante un tribunal, relata cómo una civilización tecnológicamente superior sufre una aplastante derrota en una guerra intergaláctica. A través del relato del comandante en jefe, se explica cómo la obsesión de un científico teórico por desarrollar armas cada vez más avanzadas les llevó a sucumbir ante una civilización más atrasada. Con un tono irónico, Clarke construye un relato sobre los riesgos de depender ciegamente de la innovación y muestra cómo la excesiva confianza en el progreso puede conducir al colapso.

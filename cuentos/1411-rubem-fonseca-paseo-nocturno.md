@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/rubem-fonseca-paseo-nocturno/2164/
 
+
+**Imagen:** 1411-rubem-fonseca-paseo-nocturno.jpg
 ---
 
 Llegué a casa con el portafolios lleno de papeles, informes, estudios, investigaciones, propuestas, contratos. Mi mujer, jugando solitario en la cama, un vaso de güisqui en la mesita de noche, dijo, sin quitar los ojos de las cartas, tienes un aire cansado. Los sonidos de la casa: mi hija en su cuarto ensayando modulación de voz, la música cuadrafónica del cuarto de mi hijo. ¿No vas a dejar esa maleta?, preguntó mi mujer, quítate esa ropa, bébete un güisquito, necesitas aprender a relajarte.

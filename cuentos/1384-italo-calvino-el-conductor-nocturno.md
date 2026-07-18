@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/italo-calvino-el-conductor-nocturno/2689/
 
+
+**Imagen:** 1384-italo-calvino-el-conductor-nocturno.jpg
 ---
 
 En cuanto salgo de la ciudad me doy cuenta de que está oscuro. Enciendo los faros. Estoy yendo en coche de A a B, por una autopista de tres carriles, de esas con un carril central que sirve para los adelantamientos en las dos direcciones. Para conducir de noche, también los ojos deben desconectar una especie de dispositivo que tienen dentro y encender otro, porque ya no tienen que esforzarse en distinguir entre las sombras y los colores atenuados del paisaje nocturno la manchita de los coches lejanos que vienen al encuentro o que preceden, sino que tienen que controlar una especie de pizarra negra que requiere una lectura distinta, más precisa pero simplificada, dado que la oscuridad borra todos los detalles del cuadro que podrían distraer y sólo destaca los elementos indispensables: rayas blancas en el asfalto, luces amarillas de los faros y puntitos rojos. Es un proceso que se pone en marcha automáticamente, y si yo esta noche estoy reflexionando sobre ello es porque ahora que las posibilidades exteriores de distracción disminuyen, las interiores me dominan, mis pensamientos corren por su cuenta en un circuito de alternativas y de dudas que no consigo desconectar; resumiendo, debo hacer un esfuerzo particular para concentrarme en la conducción.

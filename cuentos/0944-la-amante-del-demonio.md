@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elizabeth-bowen-la-amante-del-demonio/4440/
 
+
+**Imagen:** 0944-la-amante-del-demonio.jpg
 ---
 
 Sinopsis: «La amante del demonio» (The Demon Lover), cuento de Elizabeth Bowen publicado el 6 de noviembre de 1941 en la revistaThe Listener, relata la historia de la señora Drover, una mujer que, durante una tarde de agosto, regresa a su casa en Londres para recoger algunas pertenencias. La casa ha estado cerrada y deshabitada durante mucho tiempo, creando un ambiente sombrío y pesado. Todo parece en orden, excepto por una misteriosa carta que se encuentra sobre uno de los muebles. Al abrirla, la señora Drover se da cuenta de que está fechada ese mismo día y está firmada por un antiguo pretendiente, desaparecido durante la Primera Guerra Mundial. La carta le recuerda una antigua promesa, hecha hace 25 años, cuyo plazo está a punto de cumplirse.

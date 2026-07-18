@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/g-k-chesterton-muerto-la-casa-del-pavo-real/1021/
 
+
+**Imagen:** 1430-g-k-chesterton-el-muerto-de-la-casa-del-pavo-real.jpg
 ---
 
 Hace algunos años, un joven recorría una calle asolada de los suburbios de Londres; un joven vestido rústicamente, la cabeza cubierta con un sombrero casi prehistórico; porque acababa de llegar a la capital desde una remota y adormecida población del oeste. Nada había en él de particularmente notable, salvo lo que le ocurrió ese día, lo cual fue notable en todo sentido, para no decir lamentable. Vio venir hacia él a un hombre más bien anciano, sin aliento, de smoking, que lo tomó de la solapa de su raído saco y lo invitó a cenar con él. Estaríamos más cerca de la verdad diciendo que, más que un convite, fue una imploración. Como el sorprendido provinciano no lo conocía, ni a nadie en los contornos, la situación le pareció harto singular; pero, suponiendo que se trataría de una costumbre de Londres, accedió al fin. Acompañado de su extraño huésped, fue a la hospitalaria mansión que se alzaba a solo pocos pasos de allí. A partir de ese instante, nunca reapareció en el mundo de los vivos.

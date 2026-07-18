@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ambrose-bierce-la-muerte-de-halpin-frayser/8146/
 
+
+**Imagen:** 0893-la-muerte-de-halpin-frayser.jpg
 ---
 
 Sinopsis: «La muerte de Halpin Frayser» (The Death of Halpin Frayser) es un inquietante cuento de terror gótico de Ambrose Bierce, publicado el 19 de diciembre de 1891 enThe Wave. Perdido en un bosque, Halpin Frayser se queda dormido y despierta con una palabra en los labios: «Catherine Larue». Sin recordar por qué ha pronunciado ese nombre, vuelve a dormirse y tiene una serie de sueños extraños y perturbadores. Al mismo tiempo, dos hombres investigan un misterioso cementerio cercano en busca de un criminal. La atmósfera siniestra del bosque y el cementerio se intensifica con cada descubrimiento, revelando conexiones ocultas y presencias sobrenaturales que desafían la lógica y mantienen al lector en constante tensión.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-los-ojos-sombrios/21042/
 
+
+**Imagen:** 1118-los-ojos-sombríos.webp
 ---
 
 Sinopsis:«Los ojos sombríos» es un cuento de Horacio Quiroga, publicado en 1917 en la primera edición deCuentos de amor de locura y de muerte, aunque fue suprimido en ediciones posteriores. La historia nace de un encuentro casual entre dos viejos conocidos, uno de los cuales narra una experiencia intensa y trágica vivida años atrás. El relato gira en torno a un hombre emocionalmente inestable, consumido por los celos y la obsesión, y a la misteriosa fascinación que provoca una joven de belleza singular. Desde el primer encuentro con ella, una tensión soterrada crece entre los personajes, marcando el tono oscuro y emocional del cuento.

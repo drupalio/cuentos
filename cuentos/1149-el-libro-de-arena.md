@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-el-libro-de-arena-2/9006/
 
+
+**Imagen:** 1149-el-libro-de-arena.jpg
 ---
 
 Sinopsis: «El libro de arena», cuento de Jorge Luis Borges publicado en 1975, narra la historia de un hombre que, a cambio de una valiosa Biblia y dinero, adquiere un libro misterioso, de origen desconocido y con caracteres extraños, que parece de contenido infinito. A medida que el hombre intenta entender la naturaleza del libro, se vuelve obsesivo y se aísla, lo que acarreará serios efectos en su vida.

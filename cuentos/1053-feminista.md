@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-feminista/6279/
 
+
+**Imagen:** 1053-feminista.jpg
 ---
 
 Sinopsis: «Feminista», cuento de Emilia Pardo Bazán publicado en 1909, narra la historia de un matrimonio que pasa unos días en un balneario de España. El marido, enfermo crónico y de carácter severo, se muestra constantemente crítico y despectivo hacia las tendencias modernas y la emancipación de las mujeres. A pesar de su salud debilitada, se aferra a un machismo rígido y anticuado, insistiendo en que las mujeres deben cumplir roles domésticos tradicionales. Su esposa, Clotilde, es una mujer joven, agraciada y aparentemente sumisa, que se dedica con abnegación a cuidar de su marido enfermo. Aunque en el exterior la pareja da la imagen de un matrimonio muy convencional, las cosas no siempre son lo que aparentan.

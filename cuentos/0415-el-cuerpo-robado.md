@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-g-wells-el-cuerpo-robado/7539/
 
+
+**Imagen:** 0415-el-cuerpo-robado.webp
 ---
 
 Sinopsis:«El cuerpo robado» (The Stolen Body) es un cuento de H. G. Wells publicado en 1898 enThe Strand Magazine, que combina la ciencia ficción con el terror sobrenatural. El señor Bessel y su colega Vincey están profundamente interesados en el estudio de fenómenos psíquicos y espirituales. Impulsado por su curiosidad, Bessel decide experimentar con la proyección astral, intentando separar su mente de su cuerpo físico. Sin embargo, durante uno de estos intentos, algo sale mal y Bessel se encuentra fuera de su cuerpo, enfrentando situaciones misteriosas y desconcertantes mientras busca la manera de regresar a su estado normal.

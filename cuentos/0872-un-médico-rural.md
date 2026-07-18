@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/franz-kafka-un-medico-rural/23340/
 
+
+**Imagen:** 0872-un-médico-rural.webp
 ---
 
 Sinopsis:«Un médico rural»(Ein Landarzt) es un cuento de Franz Kafka, publicado en 1918 enDie neue Dichtung. Ein Almanach. Narra la odisea de un médico que, en medio de una tormenta de nieve, debe acudir urgentemente a visitar a un paciente en un pueblo lejano. Sin caballos disponibles y con el tiempo en contra, el doctor vive una experiencia surrealista al encontrar, de forma inexplicable, una solución a su dilema. Durante el viaje y la visita, se ve envuelto en situaciones extrañas y perturbadoras que escapan a su control, confrontando una realidad donde el sentido del deber se confunde con el sinsentido de lo que vive.

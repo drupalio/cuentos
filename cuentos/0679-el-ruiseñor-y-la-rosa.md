@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/oscar-wilde-ruisenor-la-rosa/1072/
 
+
+**Imagen:** 0679-el-ruiseñor-y-la-rosa.jpg
 ---
 
 Sinopsis: «El ruiseñor y la rosa» (The Nightingale and the Rose) es un cuento de Oscar Wilde, publicado en 1888 dentro de la colecciónThe Happy Prince and Other Tales. Un joven estudiante sufre porque no encuentra una rosa roja que le permita conquistar a la muchacha que ama, quien ha prometido bailar con él solo si se la lleva. Un ruiseñor, que escucha su lamento desde un árbol, decide ayudarlo y emprende la búsqueda de esa flor única. Fascinado por el ideal del amor verdadero, el ave ve en el joven la encarnación de un auténtico enamorado.

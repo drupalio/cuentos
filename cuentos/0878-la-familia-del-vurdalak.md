@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/aleksei-tolstoi-la-familia-del-vurdalak/14491/
 
+
+**Imagen:** 0878-la-familia-del-vurdalak.jpg
 ---
 
 Sinopsis: «La familia del vurdalak» (Sem’ya Vurdalaka) es un relato gótico de Alekséi Tolstói, publicado en 1884 enRusskiy Véstnik. Durante una velada en un castillo de Viena, el marqués de Urfé narra una inquietante historia, ocurrida mientras estaba de misión diplomática en Moldavia, donde se hospeda con una familia serbia. El patriarca, Gorcha, parte para cazar a un bandido en las montañas y advierte a sus hijos de que, si regresa después de diez días, deben considerarlo un «vurdalak», un vampiro que se alimenta de sus seres queridos. Cuando Gorcha vuelve justo al límite del plazo, una atmósfera de miedo y desconfianza envuelve la casa y a sus moradores, quienes se debaten entre acoger al padre con amor o atravesarlo con una estaca.

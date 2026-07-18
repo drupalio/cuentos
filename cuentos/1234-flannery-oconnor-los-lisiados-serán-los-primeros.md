@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/flannery-oconnor-los-lisiados-seran-los-primeros/2371/
 
+
+**Imagen:** 1234-flannery-oconnor-los-lisiados-serán-los-primeros.jpg
 ---
 
 Sheppard estaba sentado en un taburete ante el mostrador que dividía en dos la cocina, y comiendo cereales directamente de la caja de cartón individual en que venían envasados. Comía mecánicamente, pendiente del niño, que paseaba de armario en armario por la cocina recogiendo los ingredientes para su desayuno. Era un niño de diez años rubio y rechoncho. Sheppard no apartaba sus ojos azules e intensos de él. El futuro del chico estaba escrito en su cara. Sería banquero. No, peor. Dirigiría una pequeña compañía de préstamos. Lo único que él quería del niño era que fuera bueno y generoso, y ni una cosa ni la otra parecían probables. Sheppard era un hombre joven con el pelo ya blanco. Se le erizaba como un estrecho halo de cepillo sobre la cara rosada y sensible.

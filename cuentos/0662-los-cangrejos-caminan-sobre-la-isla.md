@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anatoly-dneprov-los-cangrejos-caminan-sobre-la-isla/24950/
 
+
+**Imagen:** 0662-los-cangrejos-caminan-sobre-la-isla.webp
 ---
 
 Sinopsis:«Los cangrejos caminan sobre la isla»(Крабы идут по острову) es un cuento del escritor soviético Anatoly Dneprov, publicado en 1958 en la revistaZnanie — sila(Знание — сила). La historia transcurre en una isla tropical desierta, donde el ingeniero Kukling y un joven oficial desembarcan para realizar un enigmático experimento inspirado en la teoría evolutiva de Darwin. Con ellos traen varias cajas y un curioso dispositivo con forma de cangrejo, que pronto cobra vida bajo el sol. Poco a poco, el joven oficial descubre que detrás de lo que parecía una tarea técnica, se oculta un propósito militar tan inquietante como peligroso.

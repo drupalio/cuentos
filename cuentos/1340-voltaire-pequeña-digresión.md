@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/voltaire-pequena-digresion/4859/
 
+
+**Imagen:** 1340-voltaire-pequeña-digresión.jpg
 ---
 
 En los principios de la fundación de los Quinze-Vingts[1]se sabe que eran todos iguales, y que sus pequeños asuntos se decidían por mayoría de votos. Distinguían perfectamente al tocarlas la moneda de cobre de la de plata, y ninguno de ellos tomó jamás vino de Brie por vino de Borgoña. Su olfato era más fino que el de sus vecinos que tenían dos ojos. Razonaron perfectamente acerca de los cuatro sentidos; es decir, supieron de ellos todo lo que les está permitido saber, y vivieron tan tranquilos y afortunados como puedan vivir los Quinze-Vingts. Desgraciadamente uno de sus profesores afirmó que tenía nociones claras sobre el sentido de la vista, se hizo escuchar, intrigó, formó entusiastas, consiguiendo que se le reconociese como jefe de la comunidad. Se puso a juzgar los colores, y todo se perdió.

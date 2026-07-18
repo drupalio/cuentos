@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-la-carta-robada/27183/
 
+
+**Imagen:** 0282-la-carta-robada.webp
 ---
 
 Sinopsis:«La carta robada» (The Purloined Letter) es un cuento de Edgar Allan Poe, publicado en septiembre de 1844 enThe Gift for 1845. En París, el prefecto de policía visita al detective C. Auguste Dupin para consultarle un caso que lo tiene desconcertado: una carta de enorme importancia política ha sido sustraída a la vista de su dueña por el ministro D…, quien la usa para ejercer un chantaje. Aunque la policía ha registrado exhaustivamente la mansión del presunto ladrón, la carta permanece desaparecida. Ante el fracaso de los procedimientos convencionales, el prefecto recurre al ingenio de Dupin, quien hará uso de su singular capacidad analítica para resolver el misterio.

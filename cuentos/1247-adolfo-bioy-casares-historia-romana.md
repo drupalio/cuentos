@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/adolfo-bioy-casares-historia-romana/8400/
 
+
+**Imagen:** 1247-adolfo-bioy-casares-historia-romana.jpg
 ---
 
 A las diez y media, todas las mañanas, yo bajaba del hotel Gassion; mis vecinas venían del hotel de France. En elboulevard des Pyrénées, en distintos bancos, frente a las mismas montañas, uno leyendoDaisy Miller, otras repitiendo lecciones, nos entibiábamos al sol. Mis vecinas eran cinco niñas y una gobernanta. Quien mirara a las niñas distraídamente, podía tomarlas por una serie de ejemplares (de tamaño diverso, de edades que variaban entre los nueve y los diecinueve años) de una misma persona, sumisa, rubia, espigada, con ojos grises, con uniforme azul. De la gobernanta —mujer provecta y de mal genio— guardo un recuerdo indefinido.

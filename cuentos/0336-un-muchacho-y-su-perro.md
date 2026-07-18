@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/harlan-ellison-un-muchacho-y-su-perro/25203/
 
+
+**Imagen:** 0336-un-muchacho-y-su-perro.webp
 ---
 
 Sinopsis:«Un muchacho y su perro» (A Boy and His Dog) es un crudo relato de Harlan Ellison, publicado en abril de 1969 en la revistaNew Worlds. Narra la vida de Vic, un adolescente que deambula por un mundo posapocalíptico en compañía de un perro con habilidades psíquicas, con quien mantiene un estrecho vínculo. En una ciudad devastada, Vic procura alimento para ambos, mientras el perro rastrea mujeres para que el muchacho satisfaga otros apetitos. Un día, dentro de un cine ruinoso, el animal percibe el olor de una joven que no debería estar allí. Seguir esa pista llevará a Vic a internarse en un territorio desconocido, donde lo aguarda el peligro y una misión inesperada.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-eva-esta-dentro-gato/726/
 
+
+**Imagen:** 0141-eva-está-dentro-de-su-gato.jpg
 ---
 
 Sinopsis: «Eva está dentro de su gato» es un cuento de Gabriel García Márquez, publicado por primera vez en 1947 en el periódicoEl Espectadory recogido luego enOjos de perro azul(1974). La historia se centra en una mujer obsesionada con su belleza, que vive acosada por el insomnio, el miedo y una angustia hereditaria que recorre su cuerpo como un mal antiguo. Encerrada en la soledad de una casa sombría y atormentada por recuerdos inquietantes y pensamientos obsesivos, su percepción del cuerpo y del tiempo comienza a desdibujarse, empujándola hacia una experiencia extraña y metafísica que desborda los límites de la realidad tangible.

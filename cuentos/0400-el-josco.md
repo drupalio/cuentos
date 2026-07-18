@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/abelardo-diaz-alfaro-el-josco/26386/
 
+
+**Imagen:** 0400-el-josco.webp
 ---
 
 Sinopsis:«El Josco» es un cuento del escritor puertorriqueño Abelardo Díaz Alfaro, publicado en 1947 en el libroTerrazo. Narra la historia de un majestuoso y fiero toro criollo, símbolo de orgullo y resistencia en el valle del Toa. Criado por el jincho Marcelo, quien ve en el animal un reflejo de su propia esencia indomable, el Josco reina como padrote indiscutible de la hacienda. Sin embargo, su dominio se ve amenazado cuando el terrateniente decide reemplazarlo por un enorme toro blanco americano. Ante la perspectiva de ser destinado al yugo, se desata un enfrentamiento que conmueve a la finca entera.

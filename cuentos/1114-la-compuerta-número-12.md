@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/baldomero-lillo-la-compuerta-numero-12/5126/
 
+
+**Imagen:** 1114-la-compuerta-número-12.jpg
 ---
 
 Sinopsis:La compuerta número 12es un cuento de Baldomero Lillo, publicado en 1904 en el libroSub terra. Relata la historia de Pablo, un niño de ocho años que es llevado por su padre a trabajar en una mina de carbón. A medida que descienden a las profundidades de la tierra, el pequeño se enfrenta a un mundo oscuro y opresivo, donde la infancia se sacrifica por la necesidad. Con temor y asombro, observa su nuevo entorno mientras su padre lo instruye en su nueva tarea: manejar una compuerta de ventilación. Sin comprender del todo su destino, Pablo descubre la dureza de una vida marcada por la explotación y la resignación.

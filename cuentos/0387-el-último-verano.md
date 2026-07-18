@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/amparo-davila-el-ultimo-verano/20346/
 
+
+**Imagen:** 0387-el-último-verano.webp
 ---
 
 Sinopsis: «El último verano» es un cuento de Amparo Dávila, publicado en 1977 en el libroÁrboles petrificados. La historia sigue a una mujer de mediana edad que, al inicio de un verano sofocante, sufre un malestar creciente que la va debilitando día a día. Mientras lucha contra su fatiga y los cambios en su cuerpo, se ve atrapada en una sensación de desgaste y resignación ante su agotadora rutina. Su reflejo en el espejo y un viejo retrato evocan un tiempo perdido que contrasta con su presente abatido. En medio del calor y la soledad, una inesperada noticia hará que su angustia aumente, sumiéndola en un inquietante desasosiego.

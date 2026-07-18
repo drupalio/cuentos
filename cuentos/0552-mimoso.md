@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/silvina-ocampo-mimoso/10683/
 
+
+**Imagen:** 0552-mimoso.webp
 ---
 
 Sinopsis:«Mimoso», es un cuento de Silvina Ocampo publicado en 1959 en la colecciónLa furia. Narra la historia de Mercedes, una mujer profundamente afectada por la enfermedad terminal de su amado perro, Mimoso. Ante la inevitabilidad de la pérdida, Mercedes toma la decisión poco convencional de embalsamar a Mimoso para preservar su presencia física después de su muerte. La historia relata el proceso que vive Mercedes, quien además de enfrentarse a los desafíos prácticos que implican su decisión, debe lidiar con la incomprensión de quienes la rodean, que parecen incapaces de entender el profundo vínculo que puede surgir entre humanos y animales.

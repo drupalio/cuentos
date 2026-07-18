@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/franz-kafka-la-condena/4214/
 
+
+**Imagen:** 0506-la-condena.webp
 ---
 
 Sinopsis:«La condena» (Das Urteil) es un cuento de Franz Kafka, publicado en 1913 en la revistaArkadia. Georg Bendemann es un joven y próspero comerciante que una mañana de domingo escribe una carta a un amigo de la infancia, establecido en Rusia, para anunciarle su compromiso matrimonial. Mientras lo hace, reflexiona sobre esa amistad que se ha ido enfriando con el tiempo y sobre los cambios ocurridos en su vida tras la muerte de su madre. Antes de enviar la carta, visita a su padre, un anciano con quien mantiene una relación distante. Entre ambos se inicia un diálogo que va adquiriendo un tono cada vez más inquietante, en el que afloran tensiones hasta entonces ocultas.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-jose-arreola-la-migala/5464/
 
+
+**Imagen:** 0822-la-migala.webp
 ---
 
 Sinopsis: «La migala» es un inquietante cuento de Juan José Arreola, publicado en 1952 en la antologíaCuentos breves latinoamericanos. Tras sufrir una decepción amorosa, un hombre adquiere una migala (una enorme araña venenosa) y decide liberarla en su casa. Desde entonces, convive con la amenaza constante del animal, cuyos pasos imperceptibles llenan de ansiedad y angustia cada rincón. La presencia de la araña, invisible pero inquietantemente real, simboliza el infierno personal del protagonista, un tormento autoimpuesto que lo mantiene en un estado de vigilia perpetua.

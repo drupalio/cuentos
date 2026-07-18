@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ernest-hemingway-el-anciano-del-puente/4567/
 
+
+**Imagen:** 1344-ernest-hemingway-el-anciano-del-puente.jpg
 ---
 
 Un anciano con anteojos de armazón de acero y ropa llena de polvo estaba sentado a un lado del camino. Un puente de pontones atravesaba el río, y carros, camiones, hombres, mujeres y niños cruzaban en aquel instante. Los carros tirados por mulas se tambaleaban en la empinada orilla, al salir del puente, y los soldados prestaban ayuda empujando los radios de las ruedas. Los camiones subían y se alejaban rápidamente, y los campesinos caminaban con esfuerzo por la polvoreda, enterrándose hasta los tobillos. Pero el anciano permanecía en su sitio, sin moverse. Estaba demasiado cansado como para seguir adelante.

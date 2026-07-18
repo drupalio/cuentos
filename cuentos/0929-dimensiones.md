@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alice-munro-dimensiones/833/
 
+
+**Imagen:** 0929-dimensiones.jpg
 ---
 
 Sinopsis: «Dimensiones» es un cuento de la Premio Nobel Alice Munro, publicado el 5 de junio de 2006 enThe New Yorker. La historia nos presenta a Doree, una mujer joven que trabaja como camarera en un motel. Doree debe realizar largos viajes en bus para visitar a su esposo Lloyd, quien se encuentra recluido. A medida que avanza el relato, Munro poco a poco nos va develando la historia de Doree, desde su adolescencia, cuando conoció y se casó con Lloyd, hasta ahora, que se hallan separados debido un dramático hecho protagonizado por su esposo.

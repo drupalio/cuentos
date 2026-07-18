@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-rulfo-diles-que-no-me-maten/9120/
 
+
+**Imagen:** 0288-diles-que-no-me-maten.webp
 ---
 
 Sinopsis:«¡Diles que no me maten!» es un cuento de Juan Rulfo, publicado en agosto de 1951 en la revistaAméricay recogido luego enEl llano en llamas(1953). Narra la historia de Juvencio Nava, un anciano que enfrenta su inminente ejecución por un hecho violento ocurrido décadas atrás. El relato se abre con su ruego desesperado a su hijo Justino para que interceda ante sus captores y pida clemencia. Mientras espera atado, Juvencio evoca fragmentos de su pasado, marcado por la pobreza, la sequía y un antiguo conflicto ligado a la tierra. Tras haber pasado la vida huyendo y escondiéndose, cree que el tiempo ha borrado sus culpas, pero el presente lo obliga a enfrentar aquello que nunca terminó de quedar atrás.

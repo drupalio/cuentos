@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-g-wells-la-puerta-en-el-muro/2820/
 
+
+**Imagen:** 1106-la-puerta-en-el-muro.jpg
 ---
 
 Sinopsis: «La Puerta en el Muro» es un cuento de H.G. Wells publicado enThe Daily Chronicleen 1906. Narra la historia de Lionel Wallace, un exitoso político británico que, siendo niño, descubre una misteriosa puerta en un muro que lo conduce a un jardín encantado, lleno de belleza, dicha y seres bondadosos. Desde entonces, su vida ha estado marcada por la nostalgia de aquel mundo perdido y por la tensión entre los deberes del mundo real y el anhelo de regresar a ese lugar ideal.

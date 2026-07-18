@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/neil-gaiman-estudio-en-esmeralda/16469/
 
+
+**Imagen:** 0326-estudio-en-esmeralda.webp
 ---
 
 Sinopsis: «Estudio en Esmeralda» (A Study in Emerald) es un cuento de Neil Gaiman que fusiona magistralmente el mundo de Sherlock Holmes con los mitos de H.P. Lovecraft. Ambientado en una Londres victoriana alternativa, donde seres antiguos y poderosos gobiernan sobre la humanidad, el relato sigue a un veterano de guerra que se une a un enigmático detective para investigar un misterioso y brutal asesinato de alto perfil. A medida que profundizan en el caso, descubren pistas que apuntan a una conspiración subversiva que amenaza con desestabilizar el orden establecido. Con una narrativa ingeniosa y una atmósfera oscura, este relato le valió a Gaiman en 2004 los premios Hugo y Locus a la mejor historia corta.

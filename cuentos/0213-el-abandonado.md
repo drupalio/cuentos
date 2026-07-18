@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-abandonado/7531/
 
+
+**Imagen:** 0213-el-abandonado.webp
 ---
 
 Sinopsis:«El abandonado» (L’abandonné) es un cuento de Guy de Maupassant, publicado el 15 de agosto de 1884 en Le Figaro. Durante unas vacaciones, mientras su esposo la espera en el hotel, la señora de Cadour convence a d’Apreval, un viejo amigo, de acompañarla a dar un paseo por los alrededores de Fécamp. Mientras ambos avanzan en un sofocante día de verano, la mujer se muestra visiblemente alterada. Un secreto y una culpa la acongojan: hace cuarenta años, fruto de una relación amorosa, nació un niño que fue dejado al cuidado de una familia de campesinos normandos. Ahora, sintiendo que la muerte se acerca, está decidida a encontrarlo.

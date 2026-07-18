@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stanislaw-lem-existe-verdaderamente-mr-smith/6469/
 
+
+**Imagen:** 0834-existe-verdaderamente-mr-smith.webp
 ---
 
 Sinopsis: «¿Existe verdaderamente Mr. Smith?» (Czy pan istnieje, Mr. Johns?) es un fascinante relato del escritor polaco Stanislaw Lem, publicado en 1957, que explora la naturaleza de la identidad y la humanidad en un futuro donde la tecnología ha superado los límites imaginables. La historia gira en torno a un insólito juicio entre la Cybernetics Company y Harry Smith, un piloto de carreras que debido a varios accidentes ha recibido numerosas prótesis cibernéticas para reemplazar partes de su cuerpo. Con un profundo sentido filosófico, el relato plantea una inquietante pregunta: ¿hasta qué punto un ser compuesto por partes electrónicas puede seguir siendo considerado humano?

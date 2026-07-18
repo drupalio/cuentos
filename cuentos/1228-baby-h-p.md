@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-jose-arreola-baby-h-p/8106/
 
+
+**Imagen:** 1228-baby-h-p.jpg
 ---
 
 «Baby H. P.», relato de Juan José Arreola, es una sátira que aborda la idea de convertir la inagotable energía de los niños en electricidad mediante un dispositivo especial. Este aparato, llamado Baby H. P., se adhiere al cuerpo del niño y convierte sus movimientos en energía eléctrica, presentando una solución innovadora y económicamente ventajosa para las familias. A través de este cuento, Arreola ofrece una crítica a la sociedad y su tendencia a la mercantilización y explotación de los recursos, incluso los humanos, en nombre del progreso y la conveniencia.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-la-apuesta/12699/
 
+
+**Imagen:** 0280-la-apuesta.jpg
 ---
 
 Sinopsis: «La apuesta», cuento de Antón Chéjov publicado en 1889, narra la historia de un banquero y un joven abogado que, durante una discusión sobre la pena de muerte y la cadena perpetua, deciden hacer una insólita apuesta: el abogado se compromete a permanecer en aislamiento total durante un largo período a cambio de una gran suma de dinero. Años después, mientras el banquero reflexiona sobre los eventos y consecuencias de esta apuesta, se revela el impacto profundo que el encierro ha tenido en el abogado y las transformaciones personales que experimenta, cuestionando el valor de la vida y la libertad.

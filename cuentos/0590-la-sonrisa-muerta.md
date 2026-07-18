@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/f-marion-crawford-la-sonrisa-muerta/25417/
 
+
+**Imagen:** 0590-la-sonrisa-muerta.webp
 ---
 
 Sinopsis:«La sonrisa muerta» (The Dead Smile) es un cuento de F. Marion Crawford, publicado en agosto de 1899 en la revistaAinslee’sy recogido en la colecciónUncanny Tales(1911). Ambientado en una antigua mansión irlandesa, narra la inquietante historia de los Ockram, una familia marcada por una herencia maldita. Antes de morir, sir Hugh, un anciano cruel y despiadado, lanza enigmáticas advertencias a su hijo Gabriel y a su sobrina Evelyn, quienes planean casarse. Pero se lleva su secreto a la tumba. Desde entonces, la felicidad de los jóvenes se ve empañada por una amenaza creciente y un llamado imperioso que parece surgir desde la cripta familiar.

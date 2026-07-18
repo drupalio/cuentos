@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-la-ultima-ilusion-de-don-juan/3547/
 
+
+**Imagen:** 1213-la-última-ilusión-de-don-juan.jpg
 ---
 
 En «La última ilusión de Don Juan», cuento publicado en 1893,Emilia Pardo Bazánrevisita a este personaje clásico de la literatura, para mostrar una faceta distinta de él. La historia narra el profundo vínculo entre Don Juan, el eterno seductor, y su prima, Estrella, conocida como la Beatita por su devoción y pureza. A diferencia de sus habituales conquistas, Don Juan mantiene con Estrella un lazo casto y sincero, basado en una amistad espiritual y en conversaciones llenas de respeto y dulzura. Lejos de los engaños y traiciones que caracterizan sus otros amoríos, la relación con Estrella se convierte en un refugio y una ilusión sagrada para él.

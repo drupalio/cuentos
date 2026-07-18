@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-huevo-pascua/657/
 
+
+**Imagen:** 1051-el-huevo-de-pascua.jpg
 ---
 
 Sinopsis:«El huevo de Pascua» (The Easter Egg) es un cuento de Saki (Hector Hugh Munro), publicado en 1911 dentro del libroThe Chronicles of Clovis. La historia se centra en lady Barbara, una aristócrata inglesa decidida y valerosa, que viaja junto a su hijo Lester a un pequeño principado centroeuropeo para pasar la Pascua. Durante los preparativos de una ceremonia oficial, un extraño matrimonio propone una pintoresca idea: que un niño vestido de ángel entregue al príncipe un huevo decorativo lleno de huevos de chorlito. El plan, en apariencia inocente, desencadena una situación inesperada que pondrá a prueba el coraje del tímido Lester.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/lev-tolstoi-despues-del-baile/21889/
 
+
+**Imagen:** 1054-después-del-baile.webp
 ---
 
 Sinopsis: «Después del baile» (Posle bala) es un cuento de Lev Tolstói escrito en 1903 y publicado póstumamente en 1911. El relato, narrado por un hombre mayor que recuerda una experiencia crucial de su juventud, evoca una noche de carnaval en la Rusia imperial, marcada por la intensidad del primer amor y la alegría de un baile deslumbrante. Iván Vasilievich, que entonces era estudiante, se enamora de la encantadora Varenka, cuya gracia parece resumir toda la belleza del mundo. Pero tras aquella noche luminosa, un hecho inesperado trastoca su percepción de la realidad y deja una huella profunda en su destino.

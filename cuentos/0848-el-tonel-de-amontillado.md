@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-tonel-amontillado/804/
 
+
+**Imagen:** 0848-el-tonel-de-amontillado.webp
 ---
 
 Sinopsis:«El tonel de amontillado» (The Cask of Amontillado) es un cuento de Edgar Allan Poe, publicado en noviembre de 1846 en la revistaGodey’s Lady’s Book. Ambientado en Italia durante el carnaval, narra la historia de un hombre que planea una sutil y calculada venganza contra Fortunato, un orgulloso conocedor de vinos a quien considera culpable de múltiples ofensas. Aprovechando su pasión por el amontillado, lo conduce a las catacumbas de su casa con el pretexto de verificar la autenticidad de un barril. Fortunato acepta, sin imaginar el siniestro propósito que se oculta tras la invitación.

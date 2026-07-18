@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alice-glaser-el-tunel-adelante/25117/
 
+
+**Imagen:** 0630-el-túnel-adelante.webp
 ---
 
 Sinopsis:«El túnel adelante» (The Tunnel Ahead) es un cuento de Alice Glaser, publicado en noviembre de 1961 enThe Magazine of Fantasy and Science Fiction. En un futuro claustrofóbico, densamente poblado y rigurosamente controlado, una familia regresa de la playa por una autopista automatizada que conduce a la ciudad. Encerrados en un diminuto coche y rodeados por una multitud de automovilistas, los padres y sus hijos enfrentan la incomodidad del trayecto mientras se aproximan al Túnel, una estructura imprevisible cuya presencia despierta ansiedad y temor entre los viajeros.

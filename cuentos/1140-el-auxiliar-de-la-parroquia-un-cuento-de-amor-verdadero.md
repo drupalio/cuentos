@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/charles-dickens-auxiliar-la-parroquia-cuento-amor-verdadero/1249/
 
+
+**Imagen:** 1140-el-auxiliar-de-la-parroquia-un-cuento-de-amor-verdadero.jpg
 ---
 
 Sinopsis:El auxiliar de la parroquia. Un cuento de amor verdaderoes un relato de Charles Dickens publicado enThe Posthumous Papers of the Pickwick Cluben 1836. La historia sigue a Nathaniel Pipkin, un tímido auxiliar de parroquia de una pequeña ciudad de provincias, cuya vida rutinaria cambia al enamorarse de Maria Lobbs, la bella hija de un acaudalado guarnicionero. A pesar de su timidez y modesta posición, Pipkin se atreve a soñar con conquistarla, aunque el carácter feroz del padre de la joven representa un obstáculo insalvable. Su ingenuo intento de acercarse a ella lo llevará a una situación inesperada.

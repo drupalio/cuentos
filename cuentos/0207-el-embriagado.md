@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/shirley-jackson-el-embriagado/27498/
 
+
+**Imagen:** 0207-el-embriagado.webp
 ---
 
 Sinopsis:«El embriagado» («The Intoxicated») es un cuento de Shirley Jackson, publicado en 1949 en el libroThe Lottery, or, The Adventures of James Harris. Durante una fiesta, un hombre algo bebido se escabulle a la cocina para escapar del bullicio y despejarse un poco. Allí se encuentra con Eileen, la hija adolescente de los anfitriones, que le ofrece café. Algo incómodo, el hombre inicia una conversación que pretende ser trivial. Sin embargo, poco a poco el diálogo adquiere un matiz perturbador cuando la joven comienza a revelarle su sombría visión sobre el futuro del mundo.

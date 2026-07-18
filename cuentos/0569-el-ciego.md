@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-el-ciego/6465/
 
+
+**Imagen:** 0569-el-ciego.webp
 ---
 
 Sinopsis:«El ciego» es un relato de Emilia Pardo Bazán publicado en 1902 en lacolección Cuentos de Navidad y Reyes. Narra la historia de Mauricio Acuña, un joven caballero, a quien la tarde del 24 de diciembre le sorprende en despoblado, a caballo y con anuncios de tormenta. En un desolado paraje, su camino se cruza con el de un anciano ciego que implora ayuda para orientarse hacia la iglesia más cercana. Mauricio, ansioso por llegar a tiempo a celebrar la Navidad en su hogar, se debate entre asistir al mendigo o continuar su camino.

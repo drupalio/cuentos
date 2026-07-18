@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-un-enigma/6212/
 
+
+**Imagen:** 1295-un-enigma.jpg
 ---
 
 En la tarde del primer día de Pascua, el consejero civil Navagin, de regreso de las tradicionales visitas, cogió la lista depositada en la antesala, en que los visitantes estampaban su firma, y con ella en la mano entró en su despacho. Después de cambiarse de traje y de beber un poco de agua de seltz, se acomodó en el diván y comenzó a examinar las firmas escritas. Cuando su mirada alcanzó el centro de una larga hilera de estas se estremeció, lanzó un bufido de asombro y, con expresión de gran sorpresa, hizo restallar los dedos.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-dulces-para-esa-dulzura/13272/
 
+
+**Imagen:** 1043-dulces-para-esa-dulzura.jpg
 ---
 
 Sinopsis:«Dulces para esa dulzura»(Sweets to the Sweet) es un perturbador cuento de Robert Bloch, publicado enWeird Talesen marzo de 1947. Narra la historia de Irma, una niña de ocho años con aspecto angelical e inteligencia precoz, criada en una sombría mansión bajo el trato cruel de su padre alcohólico y arruinado. Huérfana de madre y fascinada por la brujería, Irma vive en soledad, acompañada apenas por una ama de llaves que, alarmada por el comportamiento cada vez más extraño de la niña, busca ayuda en el tío de Irma. Escéptico al principio, el hombre decide visitar la casa, donde descubrirá una inquietante verdad.

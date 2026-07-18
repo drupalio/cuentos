@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-junto-a-la-madre-muerta/22002/
 
+
+**Imagen:** 1008-junto-a-la-madre-muerta.webp
 ---
 
 Sinopsis:«Junto a la madre muerta» es un cuento de Horacio Quiroga, publicado el 26 de diciembre de 1908 en el periódicoEl Diariode Buenos Aires. La historia comienza con dos hombres que se dirigen a la casa de un amigo cuya madre ha fallecido esa misma mañana. En un ambiente sobrio y silencioso, el hijo, conmovido por la cercanía de la pérdida, rememora con crudeza episodios de su infancia marcados por el deterioro económico del hogar, las tensiones con su padrastro y la compleja relación con su madre. La narración va revelando, poco a poco, un pasado amargo que se entrelaza con el presente del duelo.

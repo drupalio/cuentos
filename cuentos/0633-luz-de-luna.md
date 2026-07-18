@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/cixin-liu-luz-de-luna/25156/
 
+
+**Imagen:** 0633-luz-de-luna.webp
 ---
 
 Sinopsis:«Luz de luna» (Yuèyè [月夜]) es un cuento de Cixin Liu, publicado en febrero de 2009 en la revistaShēnghuó(生活). Durante el Festival de Otoño en Shanghái, un hombre se encuentra en la penumbra observando la luna cuando recibe una misteriosa llamada de alguien que dice ser su yo del futuro, que lo contacta desde el año 2123. El sujeto le explica que, debido al cambio climático causado por el uso de combustibles fósiles, el nivel del mar ha subido de forma descontrolada, poniendo en riesgo la vida humana. Por eso decidió contactarlo para encomendarle una delicada misión: intervenir y cambiar el curso de la historia.

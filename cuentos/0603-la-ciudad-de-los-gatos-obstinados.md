@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/italo-calvino-la-ciudad-de-los-gatos-obstinados/19451/
 
+
+**Imagen:** 0603-la-ciudad-de-los-gatos-obstinados.webp
 ---
 
 Sinopsis:«La ciudad de los gatos obstinados» (Il giardino dei gatti ostinati) es un cuento de Italo Calvino, publicado en 1963 dentro de la coleciiónMarcovaldo ovvero Le stagioni in città. La historia sigue a Marcovaldo, un trabajador humilde que, en sus paseos solitarios, comienza a observar el mundo secreto de los gatos urbanos. Siguiendo a un gato atigrado, descubre una ciudad oculta entre muros y azoteas, un territorio felino que sobrevive en los intersticios de la modernidad. Su curiosidad lo lleva hasta un jardín misterioso, último refugio de los animales en una ciudad en constante transformación, donde humanos y gatos parecen librar una batalla silenciosa por el espacio y el tiempo.

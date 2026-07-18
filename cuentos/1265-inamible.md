@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/baldomero-lillo-inamible/6825/
 
+
+**Imagen:** 1265-inamible.jpg
 ---
 
 Ruperto Tapia, alias “El Guarén”, guardián tercero de la policía comunal, de servicio esa mañana en la población, iba y venía por el centro de la bocacalle con el cuerpo erguido y el ademán grave y solemne del funcionario que está penetrado de la importancia del cargo que desempeña.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-alambre-de-pua/6766/
 
+
+**Imagen:** 1181-el-alambre-de-púa.jpg
 ---
 
 «El alambre de púa», cuento deHoracio Quiroga, narra la historia de dos caballos en un potrero, uno de los cuales, el malacara, logra escapar regularmente para explorar y encontrar comida, mientras el otro, el alazán, se esfuerza por descubrir cómo su compañero logra esta hazaña. Finalmente, el alazán encuentra la ruta de escape y se une al malacara en sus aventuras. Mientras ambos caballos pasean se topan con un campo de cebada cercado con un alambre de púa. Aunque los animales ambicionan entrar a comer, ninguno de ellos puede salvar el peligroso alambre, salvo uno: Barigüí, un gran toro perteneciente al campo vecino, que cada día rompe las defensas, lo que hace perder la paciencia al dueño de la plantación de cebada, que toma una drástica decisión para detener sus andanzas.

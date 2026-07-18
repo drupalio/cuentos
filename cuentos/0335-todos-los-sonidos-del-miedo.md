@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/harlan-ellison-todos-los-sonidos-del-miedo/26179/
 
+
+**Imagen:** 0335-todos-los-sonidos-del-miedo.webp
 ---
 
 Sinopsis:«Todos los sonidos del miedo» (All the Sounds of Fear) es un cuento de Harlan Ellison, publicado en 1962 en la colecciónEllison Wonderland. Narra la extraordinaria carrera del actor Richard Becker, quien desarrolla una técnica actoral revolucionaria basada en la inmersión total en sus personajes, viviéndolos en la realidad para lograr autenticidad absoluta en escena. A lo largo de veinticuatro años, Becker conquista Broadway con caracterizaciones legendarias, rechazando ofertas de Hollywood porque cree que su arte requiere la realidad del teatro. Sin embargo, su dedicación extrema a asumir identidades ajenas lo arrastra hacia un punto de quiebre donde la línea entre actor y personaje se desvanece irremediablemente.

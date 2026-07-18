@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-el-demonio-negro/22680/
 
+
+**Imagen:** 0959-el-demonio-negro.webp
 ---
 
 Sinopsis: «El demonio negro» (The Dark Demon) es un cuento de Robert Bloch, publicado en noviembre de 1936 enWeird Tales, y asociado al ciclo de los Mitos de Cthulhu. La historia sigue a un escritor que relata la decadencia de su amigo Edgar Gordon, un autor de relatos de horror fascinado por los sueños en los que explora realidades ajenas al universo conocido. En estas visiones, Gordon asegura contactar con entidades sobrenaturales que alimentan su interés por fuerzas cósmicas incomprensibles. A medida que los sueños se intensifican, afirma haber sido elegido como mensajero de un ser más allá de la comprensión humana, lo que lo conduce a un creciente aislamiento y desequilibrio.

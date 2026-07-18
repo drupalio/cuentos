@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alejandro-jodorowsky-zipelbrum/69/
 
+
+**Imagen:** 0358-zipelbrúm.webp
 ---
 
 Sinopsis: «Zipelbrúm» es un cuento del escritor chileno Alejandro Jodorowsky, publicado en 1959 en la antologíaCuentos de la generación del 50. Relata la historia de Octavio, un joven incomprendido por su entorno universitario, obsesionado con una extraña teoría sobre la Voz: una energía atrapada en el cuerpo que puede liberarse y hablar por sí sola. Rechazado y aislado, abandona sus estudios para entregarse por completo a su experimento. Encerrado en una pensión, se sumerge en una vida de privaciones y delirios, decidido a hacer realidad su visión, sin imaginar las insólitas consecuencias de su búsqueda.

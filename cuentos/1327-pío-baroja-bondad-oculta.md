@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/pio-baroja-bondad-oculta/5216/
 
+
+**Imagen:** 1327-pío-baroja-bondad-oculta.jpg
 ---
 
 El monte estaba lleno de altas escombreras negruzcas, agujereado en todas partes por bocas de galerías obstruidas y cortado en muchos sitios por profundas trincheras. Los mineros talaron el monte; las aguas, cargadas de mineral de plomo, destruyeron toda vegetación, y de aquellos lugares, antes frondosos, poblados de encinas y de robles, no quedaban más que eriales llenos de pedruscos: un paisaje de una amarga y desoladora tristeza.

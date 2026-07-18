@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mark-twain-un-cuento-medieval/13296/
 
+
+**Imagen:** 1057-un-cuento-medieval.jpg
 ---
 
 Sinopsis: «Un cuento medieval» (A Medieval Romance) es un relato satírico de Mark Twain publicado en 1870 en el periódicoBuffalo Express. Ambientado en un castillo alemán del siglo XIII, narra la historia de Conrad, una joven criada como varón por su ambicioso padre, el barón de Klugenstein, para apoderarse del ducado de Brandeburgo. Cuando el duque envejece, Conrad es llamado a ejercer funciones de gobierno, y aunque tiene discrepancias con el plan de su padre, opta por obedecerlo y se dirige a Brandeburgo. Allí conocerá a su prima Constance, quien también desconoce la verdad sobre la identidad de Conrad, lo que dará origen a una serie de situaciones incómodas.

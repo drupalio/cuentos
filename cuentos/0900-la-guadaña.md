@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-la-guadana/15053/
 
+
+**Imagen:** 0900-la-guadaña.jpg
 ---
 
 Sinopsis: «La guadaña» (Reaper), cuento de Robert Bloch publicado en 1986, narra la historia de Ross, un escritor solitario de 65 años que vive en Míchigan sin más compañía que sus libros. El día de su cumpleaños, Ross recibe una visita inesperada: la Muerte ha ido a reclamar su vida. Aterrado y aún no dispuesto a morir, Ross hace un trato con la parca: por cada persona que asesine, ella le concederá un año más de existencia. Ross acepta, pero sus intentos de cumplir el trato tendrán consecuencias inesperadas.

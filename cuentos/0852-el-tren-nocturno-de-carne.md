@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/clive-barker-el-tren-nocturno-de-carne/15449/
 
+
+**Imagen:** 0852-el-tren-nocturno-de-carne.webp
 ---
 
 Sinopsis: «El tren nocturno de carne» (The Midnight Meat Train) es un perturbador cuento de terror del escritor británico Clive Barker, publicado en 1984. Narra la historia de Leon Kaufman, un hombre que llega a Nueva York seducido por la imagen de una ciudad vibrante y llena de oportunidades, pero que pronto descubre la crudeza y violencia que laten bajo su superficie. Una noche, durante un viaje en metro, se ve arrastrado al lado más oscuro de la metrópoli, donde la brutalidad adopta formas ancestrales y el peligro proviene de horrores más antiguos que la propia ciudad.

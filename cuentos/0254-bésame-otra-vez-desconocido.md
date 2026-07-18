@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/daphne-du-maurier-besame-otra-vez-desconocido/27311/
 
+
+**Imagen:** 0254-bésame-otra-vez-desconocido.webp
 ---
 
 Sinopsis:«Bésame otra vez, desconocido» (Kiss Me Again, Stranger) es un cuento de la escritora británica Daphne du Maurier, publicado en 1952 en la colecciónThe Apple Tree. Un joven mecánico londinense, exsoldado, decide ir una noche al cine. Allí conoce a una atractiva y enigmática muchacha que trabaja como acomodadora, y queda de inmediato fascinado por ella. Impulsado por esa atracción repentina, luego de la función la sigue hasta el autobús y emprende junto a la mujer un largo viaje hacia los suburbios, cada vez más convencido de que quizá ha encontrado por fin a alguien con quien compartir su vida.

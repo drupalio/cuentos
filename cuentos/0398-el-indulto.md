@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-el-indulto/2304/
 
+
+**Imagen:** 0398-el-indulto.jpg
 ---
 
 Sinopsis: «El indulto», es un cuento de Emilia Pardo Bazán publicado en laRevista Ibéricaen abril de 1883. La historia se desarrolla en la ciudad de Marineda, donde Antonia, una mujer humilde que trabaja en un lavadero público, sufre profundamente debido a su trágica situación familiar. Su marido, un carnicero, está encarcelado por el asesinato de su madre, y Antonia vive con el constante miedo y la angustia por lo que pueda suceder cuando él salga de prisión. Un día recibe la terrible noticia: su marido será indultado.

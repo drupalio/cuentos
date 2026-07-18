@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-el-enemigo/12803/
 
+
+**Imagen:** 0275-el-enemigo-o-ganas-de-dormir.webp
 ---
 
 Sinopsis: «El enemigo» (o “Ganas de dormir”), es un cuento de Antón Chéjov publicado en 1888 en laGazeta de San Petersburgo. Narra la vida de Varka, una niña que trabaja como criada y está encargada de cuidar por las noches a un niño que llora incesantemente. En una noche de agotamiento extremo, mientras intenta vencer el sueño que la agobia, Varka experimenta una serie de visiones y recuerdos que se entrelazan con su realidad, reflejando su profundo cansancio y deseos de dormir. Luego de dos noches en vela, Varka está en el límite de sus fuerzas, y su cuerpo le pide desesperadamente que haga algo para encontrar paz y descanso.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stephen-king-los-chicos-del-maiz/14268/
 
+
+**Imagen:** 0945-los-chicos-del-maíz.jpg
 ---
 
 Sinopsis: «Los chicos del maíz» (Children of the Corn) cuento deStephen Kingpublicado en marzo de 1977 en la revistaPenthouse, es una historia de horror sobrenatural ambientada en los campos de maíz de Nebraska. Burt y Vicky, una pareja en crisis, emprenden un viaje con la esperanza de salvar su matrimonio. Durante el trayecto, deciden tomar un camino rural rodeado por un inmenso campo de maíz. En medio de constantes discusiones, Burt pierde de vista el camino y atropella accidentalmente a un niño. A pesar de las advertencias de Vicky, Burt insiste en buscar ayuda en el pueblo más cercano, sin imaginar los peligros que le acechan por no escuchar a su esposa.

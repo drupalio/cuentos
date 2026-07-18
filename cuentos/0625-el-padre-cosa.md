@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-el-padre-cosa/6443/
 
+
+**Imagen:** 0625-el-padre-cosa.webp
 ---
 
 Sinopsis:«El padre-cosa» (The Father-Thing) es un inquietante cuento de ciencia ficción de Philip K. Dick publicado en diciembre de 1954 en larevista The Magazine of Fantasy and Science Fiction. Charles, un niño de ocho años, comienza a sospechar que algo terrible está ocurriendo con su padre. Una noche, al entrar en el garaje, presencia una escena perturbadora: junto a su padre hay una réplica idéntica de él. Durante la cena, Charles se enfrenta a la inquietante criatura que, está convencido, ha usurpado el lugar de su padre. La incomprensión de su madre y la escalada de eventos que esto provoca llevan a Charles a huir de casa en busca de ayuda, desencadenando una desesperada lucha por descubrir la verdad en un ambiente que se torna cada vez más opresivo y aterrador.

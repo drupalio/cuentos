@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/haruki-murakami-los-gatos-antropofagos/629/
 
+
+**Imagen:** 0238-los-gatos-antropófagos.webp
 ---
 
 Sinopsis: «Los gatos antropófagos» (Hitokui neko) es un relato corto del reconocido autor japonés Haruki Murakami, publicado originalmente en 1991 y más tarde incluido en la colecciónSauce ciego, mujer dormida(2006). La historia sigue a una pareja que, tras ser descubierta en una relación clandestina fuera de sus matrimonios, se refugia en una remota isla griega. A partir de la anécdota de una anciana solitaria devorada por sus gatos tras su muerte, Murakami profundiza en las preocupaciones existenciales del protagonista, quien, al abandonar su vida anterior, se sumerge en una existencia ambigua marcada por la alienación y la aparente pérdida de identidad.

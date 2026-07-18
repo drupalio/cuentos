@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-viernes-santo/21581/
 
+
+**Imagen:** 1079-viernes-santo.webp
 ---
 
 Sinopsis: «Viernes Santo» es un cuento de Emilia Pardo Bazán, publicado originalmente en 1891 en el primer número de la revistaNuevo Teatro Crítico. Narrado por un cura gallego, relata los abusos cometidos por Lobeiro, un cacique implacable que domina con violencia y miedo una comarca rural de Galicia. A través del testimonio del párroco, se reconstruye un clima de opresión social, cobardía colectiva y justicia frustrada, mientras la figura del joven apodado Cristo emerge como símbolo de valentía y resistencia. La historia, cargada de crítica social, se va oscureciendo a medida que se avecina el desenlace de un crimen atroz.

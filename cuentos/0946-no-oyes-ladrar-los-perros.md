@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-rulfo-no-oyes-ladrar-los-perros/4746/
 
+
+**Imagen:** 0946-no-oyes-ladrar-los-perros.jpg
 ---
 
 Sinopsis: «No oyes ladrar los perros» es un cuento de Juan Rulfo, publicado en 1953 dentro de la colecciónEl Llano en llamas. La historia narra la travesía de un anciano que carga a su hijo herido a través del desierto nocturno en busca del pueblo de Tonaya, donde espera encontrar ayuda médica. En la penumbra del camino, el silencio pesa tanto como los recuerdos y cada paso parece ensanchar la distancia emocional entre ellos. La conversación revela una historia marcada por los reproches, la lealtad forzada y un amor quebrado por la violencia y la desilusión.

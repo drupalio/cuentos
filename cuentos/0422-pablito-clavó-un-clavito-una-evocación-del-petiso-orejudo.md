@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mariana-enriquez-pablito-clavo-un-clavito-una-evocacion-del-petiso-orejudo/3853/
 
+
+**Imagen:** 0422-pablito-clavó-un-clavito-una-evocación-del-petiso-orejudo.webp
 ---
 
 Sinopsis: «Pablito clavó un clavito: Una evocación del Petiso Orejudo» es un inquietante cuento deMariana Enríquez, publicado en la colecciónLas cosas que perdimos en el fuego(2016). La historia se centra en Pablo, un guía de tours macabros en Buenos Aires, que comienza a ver al espectro del Petiso Orejudo, un infame asesino de principios del siglo XX. La aparición sobrenatural del criminal se convierte en un perturbador reflejo de la crisis personal y familiar que vive el protagonista. Enríquez entrelaza el horror histórico con el psicológico, creando una atmósfera densa y aterradora que explora la obsesión, la culpa y la pérdida de la conexión humana.

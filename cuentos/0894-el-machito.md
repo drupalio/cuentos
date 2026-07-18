@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-machito/23193/
 
+
+**Imagen:** 0894-el-machito.webp
 ---
 
 Sinopsis: «El machito» es un cuento de Horacio Quiroga publicado el 30 de octubre de 1914 en la revistaFray Mocho. Relata las peripecias de un joven matrimonio que, tras el nacimiento de su primer hijo, se enfrenta a la inesperada tiranía del llanto persistente del recién nacido. Con un humor ácido y agudas observaciones sobre la vida doméstica, Quiroga describe el agotamiento físico y emocional de los padres y, en especial, la lucha del padre, que intenta por todos los medios calmar al niño. La historia se desarrolla en clave irónica y muestra cómo el entusiasmo inicial por tener un «hombrecito» se transforma en un combate delirante por recuperar algo de paz.

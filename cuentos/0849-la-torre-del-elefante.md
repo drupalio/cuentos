@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-e-howard-la-torre-del-elefante/15357/
 
+
+**Imagen:** 0849-la-torre-del-elefante.webp
 ---
 
 Sinopsis: «La Torre del Elefante» (The Tower of the Elephant) es un relato de espada y brujería escrito por Robert E. Howard, publicado en 1933 en la revistaWeird Tales. Este cuento es una de las primeras aventuras del icónico personaje Conan el Bárbaro, un guerrero cimmerio que se enfrenta a los peligros de un mundo repleto de magia oscura, criaturas monstruosas y dioses olvidados. En esta historia, Conan se adentra en la mística Torre del Elefante en busca de un fabuloso tesoro, enfrentando desafíos mortales y descubriendo secretos cósmicos que pondrán a prueba su fuerza y astucia. Es una obra maestra del género que destaca por su intensa atmósfera y su trama llena de acción y misterio.

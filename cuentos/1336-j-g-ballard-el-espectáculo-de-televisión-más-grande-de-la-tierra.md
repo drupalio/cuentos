@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/j-g-ballard-el-espectaculo-de-television-mas-grande-de-la-tierra/4411/
 
+
+**Imagen:** 1336-j-g-ballard-el-espectáculo-de-televisión-más-grande-de-la-tierra.jpg
 ---
 
 EL DESCUBRIMIENTO en el año 2001 de un sistema eficaz para viajar por el tiempo tuvo una serie de importantes repercusiones, aunque en nada tan notorias como en el campo de la televisión. El último cuarto del siglo veinte había sido testigo del espectacular crecimiento de la televisión a lo largo de todos los continentes del globo, y se afirmaba que los programas transmitidos por cada una de las enormes cadenas —la americana, la europea y la afroasiática— contaban con mil millones de espectadores. Pero a pesar de sus enormes recursos financieros, las empresas de televisión enfrentaban una crónica escasez de noticias y de entretenimientos. Vietnam, la primera guerra de la TV, había llevado al público toda la excitación de las transmisiones en vivo desde el campo de batalla, pero las guerras en general, amén de cualquier actividad digna de ser noticia, habían ido desapareciendo en la medida en que la población del mundo se dedicaba casi exclusivamente a mirar televisión.

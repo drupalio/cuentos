@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-encuentro-nocturno/22472/
 
+
+**Imagen:** 0961-encuentro-nocturno.webp
 ---
 
 Sinopsis:«Encuentro nocturno» (Night Meeting) es un cuento de Ray Bradbury, publicado en 1950 dentro deThe Martian Chronicles. Ambientado en un Marte colonizado por humanos, la historia sigue a Tomás Gómez, un colono terrestre que viaja por una antigua carretera marciana rumbo a una fiesta. En su trayecto, hace un alto para contemplar la belleza y la tranquilidad del paisaje nocturno. Sin embargo, su travesía da un giro insólito cuando se encuentra con un enigmático marciano. Aunque intentan saludarse con cordialidad y comunicarse, pronto descubren que algo insalvable los separa.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-la-otra-costilla-la-muerte/678/
 
+
+**Imagen:** 0351-la-otra-costilla-de-la-muerte.webp
 ---
 
 Sinopsis: «La otra costilla de la muerte» es un cuento de Gabriel García Márquez publicado en 1948 en el periódicoEl Espectadory recogido posteriormente en el libroOjos de perro azul(1974). La historia nos sumerge en la mente perturbada de un hombre que acaba de perder a su hermano gemelo. Despierto en la madrugada, rodeado de extraños olores y sensaciones, se enfrenta a un sueño inquietante que se entrelaza con la realidad. La defunción de su hermano lo lleva a reflexionar sobre la vida, la muerte y la extraña conexión entre ambos. La narración, cargada de simbolismo y una atmósfera onírica, nos muestra el desasosiego del protagonista, quien siente que su propia existencia está ligada inexorablemente a la de su hermano fallecido.

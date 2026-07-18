@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/baldomero-lillo-tienda-y-trastienda/7737/
 
+
+**Imagen:** 1264-tienda-y-trastienda.jpg
 ---
 
 Casi al final de la avenida encontré el número indicado en la hoja impresa que llevaba en el bolsillo. Pasé a la acera de enfrente y examiné la fachada del edificio en la cual se ostentaba en grandes caracteres un letrero que decía: “El Anzuelo de Plata. — Gran tienda y paquetería. Ventas por mayor y menor”.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/nathaniel-hawthorne-feathertop-una-leyenda-con-moraleja/27069/
 
+
+**Imagen:** 0303-feathertop-una-leyenda-con-moraleja.webp
 ---
 
 Sinopsis:«Feathertop: una leyenda con moraleja» (Feathertop: A Moralized Legend) es un cuento de Nathaniel Hawthorne, publicado en febrero de 1852 enThe International Magazine. Madre Rigby, una poderosa bruja de Nueva Inglaterra, fabrica un espantapájaros para su maizal utilizando palos, paja, ropa vieja y una calabaza por cabeza. Fascinada con el resultado de su obra, la bruja resuelve emplear la magia para infundirle vida. Transformado en un apuesto y refinado caballero, el muñeco —bautizado como Feathertop— es enviado por su creadora al vanidoso mundo de los humanos para probar suerte.

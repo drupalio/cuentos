@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/max-aub-la-gabardina/24355/
 
+
+**Imagen:** 0744-la-gabardina.webp
 ---
 
 Sinopsis: «La gabardina» es un cuento de Max Aub, publicado en 1955 en la colecciónCiertos cuentos. Arturo Gómez Landeiro, un joven tímido e inseguro, asiste solo a un baile de carnaval para celebrar su cumpleaños. Mientras espera a sus amigos, conoce a Susana, una muchacha de ojos azules y presencia etérea que lo deslumbra. Cuando termina la fiesta, la pareja sale a la calle y se enfrenta al frío y la lluvia. Arturo, conmovido y esperanzado, siente que aquella noche marcará su destino.

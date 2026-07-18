@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bertolt-brecht-los-tiburones-fueran-hombres/744/
 
+
+**Imagen:** 0803-si-los-tiburones-fueran-hombres.webp
 ---
 
 Sinopsis: «Si los tiburones fueran hombres» (Wenn die Haifische Menschen wären) es un relato alegórico de Bertolt Brecht, publicado en 1948 en el libroKalendergeschichten. A través de la conversación entre una niña y el señor K., el cuento imagina un mundo en el que los tiburones han desarrollado sistemas sociales, educativos y religiosos para manipular a los peces pequeños y mantenerlos complacientes y obedientes. Brecht utiliza esta parábola para criticar las estructuras de poder y las ideologías que, bajo una aparente filantropía, solo sirven como herramientas de dominación.

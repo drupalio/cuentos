@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jack-london-la-casa-del-orgullo/11689/
 
+
+**Imagen:** 1239-la-casa-del-orgullo.jpg
 ---
 
 «La casa del orgullo» de Jack London narra la historia de Percival Ford, un hombre de negocios extremadamente moralista y distante de las convenciones sociales y las relaciones superficiales, quien durante una fiesta en Hawai descubre una verdad impactante sobre su familia que lo confronta con su propia identidad y sus valores.

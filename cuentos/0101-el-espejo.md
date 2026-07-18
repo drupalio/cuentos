@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/haruki-murakami-el-espejo/28072/
 
+
+**Imagen:** 0101-el-espejo.webp
 ---
 
 Sinopsis:«El espejo» («鏡»,Kagami) es un cuento del escritor japonés Haruki Murakami, publicado en febrero de 1983 en la revistaTorefuruy recogido ese mismo año en el libroKangarū biyori. Un joven que, en plena agitación estudiantil de finales de los sesenta, ha decidido no ingresar en la universidad vaga por Japón realizando diversos oficios. Durante el otoño, acepta un empleo como vigilante nocturno en un instituto de una pequeña población de Niigata. El trabajo es tranquilo: dos rondas de inspección, una a las nueve y otra a las tres de la madrugada. Una noche ventosa de octubre, mientras se acerca un tifón, sale a cumplir la ronda de las tres con una sensación extraña que no logra definir. Todo parece en orden, pero, al cruzar el largo pasillo a oscuras rumbo a su habitación, algo lo espera en el vestíbulo.

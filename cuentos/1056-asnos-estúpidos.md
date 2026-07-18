@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-asnos-estupidos/2789/
 
+
+**Imagen:** 1056-asnos-estúpidos.jpg
 ---
 
 Sinopsis: En «Asnos estúpidos», cuento de Isaac Asimov escrito en 1957, Naron, un imponente y antiguo miembro de la raza rigeliana, se encarga de mantener los anales galácticos que registran las civilizaciones inteligentes del universo. Un día, se le informa que un nuevo grupo de organismos, provenientes de un distante planeta conocido como la Tierra, ha alcanzado la madurez necesaria para ser considerado para la Federación Galáctica. Con esta noticia, Naron debe decidir si estos nuevos candidatos merecen ser inscritos en el prestigioso registro de civilizaciones avanzadas.

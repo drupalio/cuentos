@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ricardo-piglia-la-loca-relato-del-crimen/962/
 
+
+**Imagen:** 1385-ricardo-piglia-la-loca-y-el-relato-del-crimen.jpg
 ---
 
 Gordo, difuso, melancólico, el traje de filafil verde nilo flotándole en el cuerpo, Almada salió ensayando un aire de secreta euforia para tratar de borrar su abatimiento.

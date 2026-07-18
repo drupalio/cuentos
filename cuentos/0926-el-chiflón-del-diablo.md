@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/baldomero-lillo-chiflon-del-diablo/735/
 
+
+**Imagen:** 0926-el-chiflón-del-diablo.webp
 ---
 
 Sinopsis: «El Chiflón del Diablo» es un cuento del escritor chileno Baldomero Lillo, publicado en 1904 dentro de la colecciónSub terra. La historia comienza en una sala de la mina, donde dos obreros son informados de su despido por un recorte de personal. A cambio, se les ofrece ocupar vacantes en el «Chiflón del Diablo», una galería temida por los constantes derrumbes y accidentes. A pesar de los riesgos, la necesidad les empuja a aceptar. Con un estilo realista y conmovedor, el relato retrata la dura vida de los mineros, marcada por la precariedad, el miedo y la fatal resignación.

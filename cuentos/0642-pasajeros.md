@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-silverberg-pasajeros/6858/
 
+
+**Imagen:** 0642-pasajeros.webp
 ---
 
 Sinopsis:«Pasajeros» (Passengers) es un cuento de Robert Silverberg, publicado en 1968 en la antologíaOrbit 4. En un mundo invadido por entidades que controlan a las personas sin previo aviso, un hombre despierta con la mente confusa y el cuerpo marcado por las huellas de un huésped desconocido. Sin saber qué hizo durante los últimos días, intenta reconstruir el tiempo perdido observando su entorno: el desorden del departamento, rastros de una mujer, signos de una vida ajena. Mientras la ciudad se adapta a esta forma inquietante de esclavitud, el protagonista se aferra a la ilusión de volver a ser él mismo y recuperar el control de su destino.

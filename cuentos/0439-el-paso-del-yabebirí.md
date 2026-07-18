@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-paso-del-yabebiri/26123/
 
+
+**Imagen:** 0439-el-paso-del-yabebirí.webp
 ---
 
 Sinopsis:«El paso del Yabebirí» es un cuento del escritor uruguayo Horacio Quiroga, publicado el 22 de junio de 1917 en la revistaEl Hogare incluido posteriormente enCuentos de la selva para los niños(1918). Un hombre bondadoso se instala junto al río Yabebirí, en Misiones, y prohíbe el uso de dinamita para pescar, protegiendo así a miles de peces y otras especies de una muerte inútil. Las rayas, agradecidas por su compasión, desarrollan una silenciosa amistad con él, que se pone a prueba cuando el protagonista, gravemente herido tras un enfrentamiento con un tigre, busca refugio en una isla del río.

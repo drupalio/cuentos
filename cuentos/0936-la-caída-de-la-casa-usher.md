@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-la-caida-de-la-casa-usher/14844/
 
+
+**Imagen:** 0936-la-caída-de-la-casa-usher.jpg
 ---
 
 Sinopsis: «La caída de la Casa Usher» (The Fall of the House of Usher) es un cuento gótico deEdgar Allan Poepublicado en septiembre de 1839 enBurton’s Gentleman’s Magazine. Narra la historia de un hombre que visita la casa de su amigo de la infancia, Roderick Usher, quien le ha pedido ayuda debido a su frágil estado de salud física y mental. Al llegar, se encuentra con una mansión antigua y desolada, que parece ejercer una influencia siniestra sobre sus habitantes. A medida que la visita se prolonga, el protagonista presencia no solo el deterioro mental de su amigo, sino también el declive de su hermana Madeline, afectada por una extraña enfermedad que consume su vida. La atmósfera opresiva y los eventos sobrenaturales envuelven al protagonista en una espiral de terror y desesperación.

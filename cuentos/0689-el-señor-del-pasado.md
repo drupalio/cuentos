@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-el-senor-del-pasado/16977/
 
+
+**Imagen:** 0689-el-señor-del-pasado.webp
 ---
 
 Sinopsis:«El señor del pasado» (The Past Master) es un cuento de ciencia ficción escrito por Robert Bloch, publicado en la revistaBluebooken enero de 1955. Ambientada en el apogeo de la Guerra Fría, la historia sigue a Mr. Smith, un enigmático hombre que emerge del mar. Su inesperada aparición desconcierta a George y a Dorothy, una pareja que se encuentra en la playa. George, creyendo que es un espía ruso, intenta llevarlo a la policía, pero Mr. Smith lo neutraliza y se apodera de su ropa y de su automóvil. A partir de ese momento, la trama se convierte en una frenética carrera contra el tiempo mientras Mr. Smith trata de cumplir una misteriosa misión que lo ha llevado hasta las costas de Estados Unidos.

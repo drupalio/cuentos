@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/haruki-murakami-drive-my-car/6760/
 
+
+**Imagen:** 0245-drive-my-car.webp
 ---
 
 Sinopsis: «Drive My Car» (Doraibu mai kā) es un cuento de Haruki Murakami, publicado en 2014 en la colecciónOnna no inai otokotachi. La historia sigue a Kafuku, un actor viudo que, tras perder su licencia de conducir, contrata a una joven llamada Misaki Watari como su chófer particular. Durante sus desplazamientos rutinarios por la ciudad, se va tejiendo entre ambos una relación cómplice, donde el silencio compartido y las pequeñas confidencias abren espacio a una reflexión profunda sobre el duelo, la soledad y la traición.

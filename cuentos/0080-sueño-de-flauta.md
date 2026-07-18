@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermann-hesse-sueno-de-flauta/28164/
 
+
+**Imagen:** 0080-sueño-de-flauta.webp
 ---
 
 Sinopsis:«Sueño de flauta» (Flötentraum) es un cuento del escritor alemán Hermann Hesse, publicado en 1914 en la revistaLicht und Schatten. Un joven recibe de su padre una flauta de hueso y el encargo de recorrer el mundo alegrando a la gente con su música. En su camino conoce a Brigitte, una muchacha a quien le canta una canción improvisada, comparte con ella pan y un beso, y luego se despiden. Pensativo, sigue su camino y llega a un molino, donde lo aguarda una barca con un hombre solitario de ojos grises que lo invita a navegar río abajo.

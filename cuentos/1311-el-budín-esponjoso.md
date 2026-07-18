@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hebe-uhart-el-budin-esponjoso/5569/
 
+
+**Imagen:** 1311-el-budín-esponjoso.jpg
 ---
 
 Yo quería hacer un budín esponjoso. No quería hacer galletitas porque les falta la tercera dimensión. Uno come galletitas y parece que les faltara alguna cosa; por eso se comen sin parar. Las galletitas parecen hechas con pan rallado o reconstituido. Los únicos que saben comer galletitas como corresponde son los perros: las cazan en el aire, las destrozan con un ruido fuerte y ya las tragaron en un suspiro, levantando un poco la cabeza.

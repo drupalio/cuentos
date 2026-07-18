@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-un-toque-de-mal-humor/23077/
 
+
+**Imagen:** 0826-un-toque-de-mal-humor.webp
 ---
 
 Sinopsis: «Un toque de mal humor» (A Touch of Petulance) es un cuento de Ray Bradbury, publicado en 1980 en la antologíaDark Forces. La historia comienza una tarde cualquiera, cuando Johnathen Hughes, un joven contable recién casado, toma su tren habitual y se sienta junto a un anciano que lee un periódico con una fecha futura. Intrigado, Hughes inicia una conversación que lo lleva a descubrir detalles perturbadores sobre su vida, su matrimonio y su destino. Lo que parecía un encuentro fortuito se convierte en una inquietante advertencia sobre un futuro posible.

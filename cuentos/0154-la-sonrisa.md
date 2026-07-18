@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-la-sonrisa/13807/
 
+
+**Imagen:** 0154-la-sonrisa.jpg
 ---
 
 Sinopsis: «La sonrisa» (The Smile) es un cuento de Ray Bradbury, publicado en 1952 en la revistaFantastic. La historia transcurre en un futuro postapocalíptico, donde el mundo ha sucumbido a la destrucción, las ciudades están desmoronadas y los humanos, que luchan por sobrevivir, han vuelto a vivir en cavernas. En este escenario desolado, los festivales públicos se convierten en los únicos momentos de distracción colectiva. Uno de ellos se organiza en torno a una antigua pintura: una copia de la Mona Lisa. Tom, un niño sensible y curioso, madruga para unirse a la multitud que se congrega en la plaza, sin imaginar la tensión emocional que marcará su encuentro con aquella enigmática y persistente sonrisa.

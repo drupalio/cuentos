@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-en-la-cripta/12923/
 
+
+**Imagen:** 1073-en-la-cripta.jpg
 ---
 
 Sinopsis:«En la cripta» (In the Vault) es un cuento de H. P. Lovecraft, publicado en noviembre de 1925 en la revistaThe Tryout. Relata un episodio ocurrido en el pequeño pueblo de Peck Valley, donde George Birch, un negligente director de funeraria, queda accidentalmente encerrado en la cripta del cementerio durante una tarde de abril. Mientras intenta escapar, rodeado de ataúdes y con herramientas precarias, se ve obligado a improvisar una salida. El ambiente opresivo y la insensibilidad del protagonista ante la muerte preparan el terreno para una historia inquietante, cargada de tensión y detalles macabros.

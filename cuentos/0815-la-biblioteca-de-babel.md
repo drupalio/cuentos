@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-la-biblioteca-de-babel/5260/
 
+
+**Imagen:** 0815-la-biblioteca-de-babel.webp
 ---
 
 Sinopsis: «La biblioteca de Babel» es un relato fascinante deJorge Luis Borgesincluido en el libroEl jardín de senderos que se bifurcan(1941). Imagina un universo compuesto por una biblioteca infinita de galerías hexagonales que contiene todos los libros posibles. En este cosmos caótico y vasto, los bibliotecarios se dedican a una búsqueda interminable del conocimiento absoluto o de un libro que dé sentido a su existencia. Borges explora conceptos filosóficos y metafísicos como la infinitud, la arbitrariedad del lenguaje, y el deseo humano de comprender un universo esencialmente incomprensible. Este cuento es una meditación sobre la obsesión por el conocimiento y el sentido último de la vida en un mundo donde todo ya está escrito y, sin embargo, nada puede ser comprendido del todo.

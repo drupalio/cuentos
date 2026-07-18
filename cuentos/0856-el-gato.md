@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-el-gato/23485/
 
+
+**Imagen:** 0856-el-gato.webp
 ---
 
 Sinopsis: «El gato» (Кот) es un cuento corto de Antón Chéjov, publicado en mayo de 1883 en la revista Oskolki (Fragmentos). En medio de la noche, el descanso de Varvara Petrovna y su esposo Aliosha se ve interrumpido por unos extraños ruidos procedentes del exterior de su hogar. Convencida de que podría tratarse de un niño abandonado, la mujer obliga a su esposo a investigar. Al asomarse, Aliosha descubre un escandaloso grupo de gatos que, reunidos bajo su ventana, entonan una peculiar serenata. Molestos y decididos a poner fin al alboroto, la pareja se prepara para actuar; sin embargo, una situación imprevista frustra sus planes.

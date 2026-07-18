@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-la-casa-en-la-playa/27397/
 
+
+**Imagen:** 0186-la-casa-en-la-playa.webp
 ---
 
 Sinopsis:«La casa en la playa» es un cuento del escritor peruano Julio Ramón Ribeyro, publicado en 1992 en el libroLa palabra del mudo, tomo IV. Narra cómo dos amigos, al rondar los cincuenta años y hastiados de su agitada vida en Europa, regresan al Perú para cumplir un antiguo anhelo: encontrar una playa completamente desierta donde construir un refugio y vivir apartados del mundo. Guiados por el nostálgico «llamado del desierto», emprenden sucesivas expediciones por la costa sur peruana. Pero muy pronto la búsqueda de ese lugar ideal empieza a enfrentarlos con una realidad menos simple de lo que imaginaban.

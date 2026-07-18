@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/clifford-d-simak-desercion/25190/
 
+
+**Imagen:** 0616-deserción.webp
 ---
 
 Sinopsis:«Deserción» (Desertion) es un cuento de Clifford D. Simak, publicado en noviembre de 1944 en la revistaAstounding Science Fiction. En una base instalada en Júpiter, Kent Fowler dirige un proyecto destinado a descubrir cómo permitir que los terrícolas sobrevivan en un planeta cuyas condiciones hacen imposible la vida humana. Ha enviado cuatro expediciones y ninguna ha regresado, lo que alimenta el temor de un fracaso irreversible. Ahora debe emprender un quinto intento mientras enfrenta la mirada crítica de quienes lo rodean, convencidos de que su empeño solo conduce a los hombres a la muerte.

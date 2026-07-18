@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mariana-enriquez-el-chico-sucio/4044/
 
+
+**Imagen:** 1144-el-chico-sucio.webp
 ---
 
 Sinopsis: «El chico sucio» es un cuento corto de Mariana Enríquez, publicado en el libroLas cosas que perdimos en el fuego(2016). Narra la historia de una mujer que elige vivir en una decadente casa familiar en el barrio de Constitución, en Buenos Aires, un lugar lleno de peligros, marginalidad y abandono. Allí observa a un niño indigente, «el chico sucio», que vive en la calle con su madre, una adicta embarazada. En un ambiente cargado de violencia, pobreza y superstición, Enríquez aborda los temas de la miseria social y la indiferencia, desarrollando una atmósfera oscura y perturbadora.

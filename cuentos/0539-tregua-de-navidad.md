@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-graves-tregua-de-navidad/6485/
 
+
+**Imagen:** 0539-tregua-de-navidad.webp
 ---
 
 Sinopsis:«Tregua de Navidad» (Wave No Banners o Christmas Truce) es un cuento de Robert Graves, publicado en elSaturday Evening Postel 15 de diciembre de 1962.Basado en hechos reales, narra la historia de un abuelo, veterano de la Primera Guerra Mundial, que cuenta a su nieto, Stanley, la inesperada fraternización entre soldados británicos y alemanes durante la Navidad de 1914. A través de su relato, marcado por anécdotas y detalles cotidianos de la vida en las trincheras, emerge una reflexión sobre la humanidad compartida incluso en medio de la guerra. Mientras Stanley busca inspiración para sus propias luchas, el abuelo confronta su optimismo con una visión pragmática y desencantada del mundo moderno.

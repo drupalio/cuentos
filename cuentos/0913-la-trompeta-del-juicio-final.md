@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-la-trompeta-del-juicio-final/15067/
 
+
+**Imagen:** 0913-la-trompeta-del-juicio-final.jpg
 ---
 
 Sinopsis:«La trompeta del Juicio Final»(The Last Trump) es un cuento de Isaac Asimov, publicado en junio de 1955 en la revistaFantastic Universey recogido en el libroEarth Is Room Enough. La historia comienza con el arcángel Gabriel a punto de hacer sonar la trompeta que anunciará el Día de la Resurrección, mientras el serafín Etheriel cuestiona la oportunidad y las consecuencias del acto. Tras la señal celestial, los muertos comienzan a levantarse, pero el mundo que emerge no es glorioso ni redentor. En una Tierra desprovista de sentido y propósito, resurgen antiguos conflictos, la rutina persiste y el milagro de la resurrección se transforma en un desconcertante retorno al absurdo.

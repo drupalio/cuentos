@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/silvina-ocampo-el-sotano/9406/
 
+
+**Imagen:** 1203-el-sótano.jpg
 ---
 
 En “El sótano”, cuento aparecido en el libro “La furia” (1959), la escritora argentinaSilvina Ocamponos dibuja un retrato intenso de una mente perturbada. En un texto narrado en primera persona, con un estilo que juega con el misterio y el monólogo interior, nos relata la vida de una mujer que vive en un sótano. Nada nos dice sobre su origen ni por qué llegó ahí, sólo sabemos que convive con las ratas y que tiene una relación difícil con los demás seres humanos. ¿Su historia, su ocupación? Sólo podemos adivinarla. En “El sótano” Ocampo nos provee pistas, no certezas.

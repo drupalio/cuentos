@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-el-collar/4189/
 
+
+**Imagen:** 0476-el-collar.jpg
 ---
 
 Sinopsis:«El collar» (La parure) es un cuento de Guy de Maupassant, publicado el 17 de febrero de 1884 enLe Gaulois. Narra la historia de Mathilde Loisel, una mujer de origen humilde que sueña con una vida de lujos y refinamiento que no puede alcanzar. Atrapada en un matrimonio modesto con un empleado del Ministerio de Instrucción Pública, Mathilde sufre al comparar su realidad cotidiana con las elegantes fantasías que pueblan su imaginación. Cuando su marido consigue una codiciada invitación a una velada ministerial, ella se debate entre la ilusión de asistir y la vergüenza de no poseer las galas apropiadas para lucir en semejante ocasión.

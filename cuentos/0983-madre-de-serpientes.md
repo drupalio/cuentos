@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-madre-de-serpientes/22314/
 
+
+**Imagen:** 0983-madre-de-serpientes.webp
 ---
 
 Sinopsis: «Madre de serpientes» (Mother of Serpents) es un cuento de Robert Bloch publicado en diciembre de 1936 en la revistaWeird Tales. Ambientado en Haití, narra la historia de un ambicioso hombre que, tras llegar a la presidencia del país, reniega de su origen y margina a su madre, una influyente y temida sacerdotisa vudú que no encaja en su nueva vida de sofisticación, riqueza y poder. El relato, ambientado en una atmósfera cargada de superstición y cultos ancestrales, evoca un pasado marcado por los oscuros ritos de Obeah y por el temido culto a la Serpiente, cuyas raíces siguen acechando desde la selva, entre tambores lejanos y amenazas que ni el poder político puede contener.

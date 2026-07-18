@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-hombre-muerto/2851/
 
+
+**Imagen:** 1194-el-hombre-muerto.webp
 ---
 
 SINOPSIS: «El hombre muerto» es un cuento de Horacio Quiroga, publicado en 1920 enLa Naciónde Buenos Aires. La historia se centra en un campesino que vive con su familia en la zona rural de Misiones, en un entorno natural y solitario. Una mañana, como cualquier otra, se levanta temprano para continuar con sus labores habituales en el bananal. Tras horas de trabajo duro bajo el sol, decide tomarse un descanso. Sin embargo, un descuido aparentemente insignificante durante su faena transforma de manera abrupta la tranquilidad de su rutina,  alterando completamente su percepción de la vida y la inminencia del destino.

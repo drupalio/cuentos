@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/charles-bukowski-conseguir-te-publiquen/855/
 
+
+**Imagen:** 1196-cómo-conseguir-que-te-publiquen.webp
 ---
 
 EnCómo conseguir que te publiquen(How to Get Published), Charles Bukowski, a través de su alter ego Henry Chinaski, relata una peculiar experiencia en el mundo editorial underground. Chinaski entabla una relación epistolar con H. R. Mulloch, un excéntrico exconvicto y editor de la revistaDemise, quien, fascinado por su poesía, desea publicar un libro suyo, aunque sin pagarle derechos de autor. Mulloch y su enigmática esposa, Honeysuckle, viajan a Los Ángeles para conocer a Chinaski, alojándose en un sórdido hotel repleto de personajes marginales. Entre perros, un loro parlanchín y abundante alcohol, Mulloch, quien se jacta de haber sido un ladrón de diamantes, decidirá si publicar o no el libro de Chinaski.

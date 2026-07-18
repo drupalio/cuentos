@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/katherine-mansfield-en-la-bahia/2283/
 
+
+**Imagen:** 0708-katherine-mansfield-en-la-bahía.jpg
 ---
 
 De mañana, muy temprano. Aún no se había levantado el sol, y la bahía entera se escondía bajo una blanca niebla llegada del mar. Al fondo, las grandes colinas recubiertas de maleza, aparecían sumergidas. No se podía ver dónde acababan, dónde empezaban las praderas y losbungalows.La carretera arenosa había desaparecido, con losbungalowsy los pastos al otro lado; más allá, no se veían más que dunas blancas cubiertas de una hierba rojiza; nada indicaba qué era playa, ni dónde se encontraba el mar. Había caído un abundante rocío. La hierba era azul. Gruesas gotas colgaban de los matorrales, dispuestas a caer sin acabar de caer; eltoï-toïplateado y flecudo pendía flojamente de sus largos tallos. La humedad inclinaba hasta la tierra todos los ranúnculos y claveles de los jardines. Estaban mojadas las frías fucsias. Redondas perlas de rocío descansaban en las hojas llanas de las capuchinas. Se hubiese dicho que el mar había venido a golpear dulcemente hasta allí, en las tinieblas, que una ola inmensa y única había venido a chapotear, a chapotear… ¿Hasta dónde? Quizá, al despertarse a mitad de la noche, se hubiera podido ver un pez gordo rozar bruscamente la ventana y huir.

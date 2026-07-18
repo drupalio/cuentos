@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/margarita-aguirre-el-nieto/2029/
 
+
+**Imagen:** 0373-el-nieto.webp
 ---
 
 Sinopsis:«El nieto» es un cuento de la escritora chilena Margarita Aguirre, publicado en 1954 en el libroAntología del nuevo cuento chileno. Guillermo es un niño que vive junto a su abuela, una anciana de comportamiento extraño que habla de duendes y hadas. Mientras sus hermanos pasan el día fuera, él permanece sentado escuchándola y observando desde lejos a Isabel, una niña que vive al otro lado de la calle. Tímido y solitario, Guillermo imagina cómo sería acercarse a ella y tener por fin una amiga, aunque salir al mundo exterior le produce temor.

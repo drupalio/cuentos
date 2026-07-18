@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/kate-chopin-arrepentimiento/22049/
 
+
+**Imagen:** 1009-arrepentimiento.webp
 ---
 
 Sinopsis:«Arrepentimiento» (Regret) es un cuento de Kate Chopin, publicado en mayo de 1895 en la revistaCenturyy recogido luego en el libroA Night in Acadie(1897). La historia se centra en Mamzelle Aurélie, una mujer de campo de carácter firme y vida solitaria, que nunca se ha casado ni ha sentido deseos de hacerlo. Un día, su tranquila rutina se ve trastocada cuando debe hacerse cargo de los cuatro hijos pequeños de su vecina. Sin experiencia con niños y reacia al afecto, Mamzelle Aurélie inicia una convivencia forzada que pondrá a prueba sus costumbres, su paciencia y sus certezas más profundas.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-el-ultimo-viaje-del-buque-fantasma/4067/
 
+
+**Imagen:** 0562-el-último-viaje-del-buque-fantasma.webp
 ---
 
 Sinopsis:«El último viaje del buque fantasma» es un cuento de Gabriel García Márquez, escrito en 1968 y publicado en 1972 como parte de la colecciónLa increíble y triste historia de la cándida Eréndira y de su abuela desalmada. Ambientado en un pequeño pueblo costero, el relato narra la historia de un niño que, una noche, presencia la aparición de un colosal trasatlántico que emerge de las tinieblas y desaparece sin dejar rastro. La visión, desestimada por los demás como un sueño o un espejismo, lo acompaña a través de los años, mientras crece en él la firme determinación de probar la realidad de su experiencia.

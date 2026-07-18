@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/monica-ojeda-caninos/24545/
 
+
+**Imagen:** 0718-caninos.webp
 ---
 
 Sinopsis:«Caninos» es un perturbador relato de la escritora ecuatoriana Mónica Ojeda, publicado por primera vez en 2017 y luego incluido en la colecciónLas voladoras(2020). Narra la historia de una joven que, tras la muerte de su padre, vive sola con su perro Godzilla en una casa heredada, corroída por el pasado. En su aislamiento, desarrolla un inquietante vínculo con la dentadura postiza del difunto, a la que cuida, oculta y desplaza como si se tratara de un ser vivo. En un universo privado marcado por la pérdida, la violencia y los recuerdos grotescos, las esporádicas visitas de su madre y su hermana amenazan con hacer aflorar historias familiares que la memoria preferiría olvidar.

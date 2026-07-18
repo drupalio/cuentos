@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bertolt-brecht-manto-del-hereje/1001/
 
+
+**Imagen:** 0291-el-manto-del-hereje.webp
 ---
 
 Sinopsis:«El manto del hereje» (Der Mantel des Ketzers) es un cuento del escritor alemán Bertolt Brecht, publicado en 1949 en el libroKalendergeschichten. Tras ser acusado de herejía, Giordano Bruno se encuentra encarcelado en Venecia, sometido a un largo proceso ante el Santo Oficio. Al momento de su abrupta detención, deja una deuda pendiente: el pago de un manto de invierno confeccionado a medida por el sastre Gabriele Zunto. Mientras el pensador se enfrenta a las graves acusaciones que amenazan su vida, la obstinada esposa del artesano emprende una persistente cruzada para recuperar el dinero que le adeuda el ilustre prisionero.

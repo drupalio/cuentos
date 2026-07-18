@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alice-munro-las-lunas-de-jupiter/26552/
 
+
+**Imagen:** 0361-las-lunas-de-júpiter.webp
 ---
 
 Sinopsis:«Las lunas de Júpiter» (The Moons of Jupiter) es un cuento de la escritora canadiense Alice Munro, publicado el 22 de mayo de 1978 en la revistaThe New Yorkery luego recogido en el libroThe Moons of Jupiter(1982). Una mujer viaja a Toronto para acompañar a su padre, internado en el hospital por una grave afección cardíaca que podría requerir una cirugía. Mientras intenta lidiar con la enfermedad de su padre, la protagonista recuerda episodios de su vida familiar, reflexiona sobre la relación con sus hijas y enfrenta la dificultad de aceptar la fragilidad de quienes ama.

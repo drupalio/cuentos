@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emile-zola-simplicio/24290/
 
+
+**Imagen:** 0753-simplicio.webp
 ---
 
 Sinopsis: «Simplicio» (Simplice) es un cuento fantástico de Émile Zola, publicado en 1864 en la colecciónContes à Ninon. Narra la historia de un príncipe ingenuo e incomprendido, hijo de un rey brutal y una reina vanidosa. Desde joven muestra una naturaleza distinta a la de su entorno: compasivo en la guerra y ajeno a los excesos de la corte. Su bondad, tomada como estupidez por quienes lo rodean, lo aparta de las expectativas reales y lo conduce hacia la naturaleza y sus criaturas, un refugio donde su sensibilidad puede desplegarse sin temor ni reproches.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/e-t-hoffmann-vampirismo/976/
 
+
+**Imagen:** 0943-vampirismo.jpg
 ---
 
 Sinopsis: «Vampirismo» (Vampirismus) es un cuento del escritor alemán E. T. A. Hoffmann, publicado en 1821 dentro de la colecciónDie Serapions-Brüder. La historia comienza con el regreso del joven conde Hippolyt a su castillo ancestral, decidido a embellecerlo tras años de viajes. Su vida da un giro inesperado cuando recibe la visita de una enigmática baronesa, antigua enemiga de su padre, que llega acompañada de su encantadora hija, Aurelie. Fascinado por la joven, el conde se ve arrastrado a una apasionada relación, sin advertir que extraños secretos del pasado, inquietantes presentimientos y una atmósfera creciente de incertidumbre comienzan a envolver el castillo.

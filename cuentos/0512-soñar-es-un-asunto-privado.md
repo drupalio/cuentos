@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-sonar-es-un-asunto-privado/4238/
 
+
+**Imagen:** 0512-soñar-es-un-asunto-privado.webp
 ---
 
 Sinopsis:«Soñar es un asunto privado» (Dreaming Is a Private Thing) es un relato de ciencia ficción de Isaac Asimov, publicado enThe Magazine of Fantasy and Science Fictionen diciembre de 1955. En un futuro donde los sueños se han convertido en la forma suprema de entretenimiento gracias a una tecnología que permite grabarlos y reproducirlos, un reducido grupo de personas dotadas de una imaginación extraordinaria crea experiencias oníricas que el resto de la humanidad puede disfrutar. En este contexto, Jesse Weill, director de Sueños Inc., se dedica a buscar nuevos talentos que puedan alimentar este lucrativo mercado. Un día, un reclutador le presenta a Tommy Slutsky, un niño de diez años con aptitudes prometedoras.

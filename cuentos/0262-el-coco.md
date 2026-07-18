@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stephen-king-el-boogeyman/12898/
 
+
+**Imagen:** 0262-el-coco.jpg
 ---
 
 Sinopsis:«El coco» (The Boogeyman) es un cuento de Stephen King, publicado en marzo de 1973 en la revistaCavaliery recopilado luego en la colecciónNight Shift(1978). Narra la inquietante confesión de Lester Billings, un hombre que acude a un psiquiatra convencido de que una entidad sobrenatural asesinó a sus tres hijos. Durante la sesión, Lester describe con creciente angustia los extraños sucesos ocurridos en su hogar: ruidos nocturnos, puertas de armarios entreabiertas y el terror de sus hijos al quedarse solos. A medida que su relato avanza, se revela una atmósfera opresiva marcada por el miedo, la culpa y la sombra persistente del coco.

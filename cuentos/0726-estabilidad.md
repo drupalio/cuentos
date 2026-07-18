@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-estabilidad/24559/
 
+
+**Imagen:** 0726-estabilidad.webp
 ---
 
 Sinopsis: «Estabilidad» (Stability), cuento escrito por Philip K. Dick hacia 1947 (cuando aún era un adolescente) y publicado póstumamente en 1987 en la antologíaBeyond Lies the Wub, narra la historia de Robert Benton, un ciudadano de una sociedad futura donde todo cambio ha sido prohibido en nombre de la Estabilidad. Un día es llamado por la Oficina de Control para hablar sobre una invención que, según dicen, él presentó. Pero Benton no recuerda haber creado nada. Intrigado, recupera un misterioso artefacto registrado a su nombre. Al activarlo en su casa, descubre que se trata de una máquina del tiempo que lo conducirá hacia un destino incierto.

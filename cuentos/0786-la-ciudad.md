@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-la-ciudad/23967/
 
+
+**Imagen:** 0786-la-ciudad.webp
 ---
 
 Sinopsis:«La ciudad» (The City) es un cuento de Ray Bradbury, publicado en julio de 1950 en la revistaStartling Storiese incluido después enThe Illustrated Man(1951). En un planeta lejano, entre torres oscuras y calles vacías, una urbe milenaria parece sumida en una interminable espera. Todo cambia cuando un cohete terrestre desciende cerca y un grupo de exploradores se interna en sus murallas silenciosas, sin sospechar el misterio que los rodea ni el enigma oculto en sus estructuras.

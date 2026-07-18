@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/may-sinclair-donde-su-fuego-nunca-se-apaga/65/
 
+
+**Imagen:** 0380-donde-su-fuego-nunca-se-apaga.webp
 ---
 
 Sinopsis: «Donde su fuego nunca se apaga» (Where Their Fire is not Quenched) es un cuento de May Sinclair publicado en octubre de 1922 enEnglish Review. La historia sigue a Harriott Leigh, una mujer en busca del amor, que tras varias desilusiones entabla una relación clandestina con Oscar Wade, un hombre casado. Sin embargo, su relación se deteriora con el tiempo debido a la falta de compatibilidad y el aburrimiento mutuo, lo que los lleva a separarse. Casi 20 años después, cuando Harriott cree haberse transformado en una mujer devota y piadosa, un trágico suceso trae de vuelta a Wade a su vida, amenazando con atormentarla para siempre. Este inquietante relato, que explora una visión aterradora del infierno, fue considerado por Jorge Luis Borges como uno de los más memorables que jamás había leído.

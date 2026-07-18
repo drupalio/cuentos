@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ana-maria-matute-los-relojes/111/
 
+
+**Imagen:** 1445-ana-maría-matute-los-relojes.jpg
 ---
 
 Me avergüenza confesar que hasta hace muy poco no he comprendido el reloj. No me refiero a su engranaje interior -ni la radio, ni el teléfono, ni los discos de gramófono los comprendo aún: para mí son magia pura por más que me los expliquen innumerables veces-, sino a la cifra resultante de la posición de sus agujas. Éstas han sido para mí uno de los mayores y más fascinantes misterios, y aún me atrevo a decir que lo son en muchas ocasiones. Si me preguntan de improviso qué hora es y debo mirar un reloj rápidamente, creo que en muy contadas ocasiones responderé con acierto. Sin embargo, si algo deseo de verdad, es tener un reloj. Nunca en mi vida lo he tenido. De niña, nunca lo pedí, porque siempre lo consideré algo fuera de mi alcance, más allá de mi comprensión y de mi ciencia. Me gustaban, eso sí. Recuerdo un reloj alto, de carillón, que daba las horas lentamente, precedidas de una tonada popular:

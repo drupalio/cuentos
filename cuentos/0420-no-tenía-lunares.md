@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-no-tenia-lunares/182/
 
+
+**Imagen:** 0420-no-tenía-lunares.webp
 ---
 
 Sinopsis:«No tenía lunares» es un cuento de Mario Benedetti, publicado en 1967 en el libroEsta mañana y otros cuentos. Rafael Arias es un oficinista de mediana edad que despierta una mañana sumido en una profunda sensación de rechazo hacia su esposa, Aurora. Mientras evita despertarla, el protagonista se sumerge en un monólogo interior donde repasa las tensiones de su matrimonio, la sospechosa irrupción de un compañero de trabajo en su vida doméstica y las humillaciones que sufre en su empleo. En un ambiente de mediocridad y asfixiante rutina, Rafael se aproxima a una verdad amarga que amenaza con desmoronar su realidad.

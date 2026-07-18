@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-g-wells-el-bazar-magico/2562/
 
+
+**Imagen:** 0811-el-bazar-mágico.webp
 ---
 
 Sinopsis: «El bazar mágico» (The Magic Shop) es un cuento de H. G. Wells publicado en 1903, que nos transporta a un lugar lleno de misterios y sorpresas. Un padre, acompañado por su hijo Gip, se adentra en una tienda de objetos de magia aparentemente ordinaria que se revela como un espacio encantado, donde lo asombroso cobra vida. Bolas de cristal que se materializan de la nada, espejos que distorsionan la realidad, puertas que aparecen y desaparecen… crean una atmósfera que oscila entre lo maravilloso y lo inquietante. En este bazar mágico la delgada línea entre la fantasía y la realidad se difumina por completo.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/sergio-pitol-la-pantera/2307/
 
+
+**Imagen:** 1404-sergio-pitol-la-pantera.jpg
 ---
 
 para Elena Poniatowska

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-el-lago/15503/
 
+
+**Imagen:** 0969-el-lago.webp
 ---
 
 Sinopsis: «El lago» (The Lake) es un breve y conmovedor relato de Ray Bradbury, publicado en mayo de 1944 en la revistaWeird Tales. La historia sigue a Harold, un niño que realiza su última visita al lago Michigan antes de mudarse al oeste de Estados Unidos. Durante esa visita, se aleja de su madre para recordar a su amiga Tally, quien desapareció en el lago un año antes. Tiempo después, Harold, ahora adulto y casado, regresa al lugar de su infancia con su esposa, sin imaginar que el destino le tiene reservada una experiencia inquietante y reveladora.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isabel-allende-la-gorda-de-porcelana/24152/
 
+
+**Imagen:** 0325-la-gorda-de-porcelana.webp
 ---
 
 Sinopsis: «La gorda de porcelana» es un cuento de Isabel Allende, publicado en 1984. Narra la vida de don Cornelio, un hombre solitario, rutinario, tímido y meticuloso que trabaja en una notaría. Siempre vestido con un traje y fiel a una puntualidad casi obsesiva, su mundo transcurre entre la oficina polvorienta, la lucha diaria contra los ratones y sus silenciosos almuerzos en la plaza. Todo parece condenado a la monotonía hasta que, un día, descubre en un escaparate una extraña figura de porcelana que lo atrae irresistiblemente.

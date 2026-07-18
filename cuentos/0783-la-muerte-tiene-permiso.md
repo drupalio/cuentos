@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edmundo-valades-la-muerte-tiene-permiso/24088/
 
+
+**Imagen:** 0783-la-muerte-tiene-permiso.webp
 ---
 
 Sinopsis: «La muerte tiene permiso» es un cuento del escritor mexicano Edmundo Valadés, publicado en 1955. En una asamblea rural, campesinos y técnicos del gobierno se reúnen para discutir los problemas del campo. Tras una serie de intervenciones en que los ejidatarios plantean sus preguntas y reclamos, un hombre llamado Sacramento toma la palabra en nombre de su comunidad. Con voz serena y firme, cargada de dignidad, hace un relato minucioso en el que describe una serie de abusos sufridos a manos de una autoridad local. El asombro cunde cuando, al finalizar, plantea una petición insólita que pone a prueba los límites de la justicia institucional.

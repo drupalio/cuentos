@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/amparo-davila-el-huesped/2469/
 
+
+**Imagen:** 0724-el-huésped.webp
 ---
 
 Sinopsis: «El huésped» es un cuento de suspenso y terror psicológico de Amparo Dávila publicado en la olección de relatos “Tiempo destrozado (1959). Narra la inquietante historia de una familia que vive una experiencia perturbadora tras la llegada de un misterioso huésped a su hogar. La protagonista, esposa y madre, se encuentra cada vez más angustiada y aterrorizada por la presencia de esta figura enigmática, cuya naturaleza y propósitos le son desconocidos. A medida que el relato se desarrolla, la atmósfera en la casa se vuelve más tensa y opresiva, reflejando las luchas internas y los miedos profundos de la protagonista.

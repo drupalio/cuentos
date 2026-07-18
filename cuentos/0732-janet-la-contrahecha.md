@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-louis-stevenson-janet-la-contrahecha/24429/
 
+
+**Imagen:** 0732-janet-la-contrahecha.webp
 ---
 
 Sinopsis: «Janet la contrahecha» (Thrawn Janet) es un cuento de Robert Louis Stevenson, publicado en octubre de 1881 enThe Cornhill Magazine. El joven reverendo Soulis llega a la aldea escocesa de Balweary para hacerse cargo de la parroquia. Ignorando las advertencias de los lugareños, contrata como sirvienta a Janet M’Clour, una mujer de mala fama, acusada de brujería. Tras un tenso enfrentamiento con las mujeres del lugar, Janet jura en público renunciar al demonio. Desde entonces, algo perturbador se manifiesta en torno a ella, y la rectoría queda envuelta en un clima de creciente temor y misterio.

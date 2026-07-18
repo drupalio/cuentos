@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/lester-del-rey-el-dia-ha-muerto/16866/
 
+
+**Imagen:** 0695-el-día-ha-muerto.webp
 ---
 
 Sinopsis: «El día ha muerto» (The Day Is Done) es un relato de ciencia ficción de Lester del Rey, publicado en mayo de 1939 en la revistaAstounding Science-Fiction. La historia sigue a Hwoogh, un viejo Neanderthal que contempla con tristeza el declive de su mundo. En su juventud, su pueblo fue fuerte y dominante, pero ahora los «Habladores» (como llama a los Cromañón) han invadido sus tierras, imponiendo nuevas costumbres y tecnologías. Mientras Hwoogh recuerda los días de gloria de su tribu, siente el peso de la decadencia y la inminente extinción de su especie. Un relato conmovedor que, según contaba Isaac Asimov, lo hizo llorar mientras viajaba en el metro camino a dar clases en la Universidad de Columbia.

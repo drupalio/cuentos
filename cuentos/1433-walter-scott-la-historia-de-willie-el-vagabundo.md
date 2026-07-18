@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/walter-scott-la-historia-willie-vagabundo/931/
 
+
+**Imagen:** 1433-walter-scott-la-historia-de-willie-el-vagabundo.jpg
 ---
 
 PUEDE que hayáis oído hablar de Sir Robert Redgauntlet, del señorío de Redgauntlet, que vivió en estas tierras hace ya mucho tiempo. Siempre se le recordará en la región; nuestros padres solían contener el aliento cuando oían su nombre. Ya estaba con los Highlanders en tiempos de Montrose y estuvo nuevamente en las colinas con Glencairn en el año de 1652; y cuando volvió el rey Carlos II ¿quién gozaba más de su favor sino el señor de Redgauntlet? Fue armado caballero en la corte de Londres por la propia espada del rey. Y como era prelatista acérrimo vino a estas tierras, fiero como un león, con el nombramiento de teniente (y, por lo que sé, de loco) para aplastar a los Whigs y a los Covenanters del país. Y no se anduvo con contemplaciones. Porque los Whigs eran tan tercos como fieros los caballeros y se trataba de ver quien se cansaría primero. Redgauntlet era partidario de emplear mano dura y su nombre era tan conocido en el país como los de Claverhouse o Tom Dalyell. Ni valle, ni ladera, ni montaña, ni cueva servían para ocultar a la pobre gente de las montañas cuando Redgauntlet salía en su persecución con cuernos de caza y sabuesos, como si de ciervos se tratase. Y la verdad es que, cuando alcanzaban a alguien, no se andaban con más ceremonias que con un corzo. Tan sólo le preguntaban: «¿Quieres prestar juramento?» Y si no: «Preparados, listos, ¡fuego!», y allí yacía el renegado.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-el-murcielago-es-mi-hermano/17277/
 
+
+**Imagen:** 0685-el-murciélago-es-mi-hermano.webp
 ---
 
 Sinopsis: «El murciélago es mi hermano» (The Bat Is My Brother), es un cuento de terror del escritor Robert Bloch, publicado en la revistaWeird Talesen noviembre de 1944. Al despertar un día, Graham Keene descubre que ha sido enterrado vivo. Sumido en la desesperación, logra romper el ataúd y abrirse paso por entre la tierra que cubre su tumba. Ansioso y desorientado pide ayuda a un hombre que se encuentra en el cementerio, quien le revela una terrible verdad: Keene es ahora un vampiro. El desconocido lo acoge y lo lleva a su hogar, donde comienza a orientarlo en sus primeros pasos como No-Muerto.

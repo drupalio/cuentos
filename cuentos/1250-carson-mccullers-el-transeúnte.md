@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/carson-mccullers-el-transeunte/8182/
 
+
+**Imagen:** 1250-carson-mccullers-el-transeúnte.jpg
 ---
 
 Esa mañana, la frontera crepuscular entre el sueño y la vigilia era romana: fuentes salpicando y calles estrechas con arcos. La dorada y pródiga ciudad de flores y piedra pulida por los años. A veces, en su semiinconsciencia estaba otra vez en París, o entre escombros de guerra alemanes, o esquiando en Suiza y en un hotel en la nieve. Algunas veces también era un barbero de Georgia en una madrugada de caza. Era Roma esta mañana, en la región sin tiempo de los sueños.

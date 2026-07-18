@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/rudyard-kipling-la-marca-de-la-bestia/6672/
 
+
+**Imagen:** 1061-la-marca-de-la-bestia.jpg
 ---
 
 Sinopsis: «La marca de la bestia» (The Mark of the Beast) es un cuento de Rudyard Kipling publicado en julio de 1890 en el periódicoThe Pioneer. Ambientada en la India colonial, narra la extraña historia de Fleete, un inglés que, tras profanar un templo dedicado a Hanuman, el dios mono, es marcado en el pecho por un misterioso leproso conocido como el Hombre de Plata. A medida que la marca en el pecho de Fleete se transforma, él mismo comienza a cambiar de manera alarmante. Sus amigos se esfuerzan por comprender y mejorar su condición, tratando de conciliar la racionalidad occidental con las fuerzas misteriosas de una antigua creencia local.

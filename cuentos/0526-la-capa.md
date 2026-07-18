@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/dino-buzzati-la-capa/3819/
 
+
+**Imagen:** 0526-la-capa.webp
 ---
 
 Sinopsis:«La capa» (Il mantello) es un cuento de Dino Buzzati, publicado el 14 de julio de 1940 enCorriere della Sera. Narra el regreso de Giovanni, un joven soldado que vuelve a casa tras dos años de ausencia para reencontrarse con su madre y sus hermanos. La familia lo recibe con inmensa alegría después de meses de angustiosa espera, pero el muchacho se muestra extrañamente distante y melancólico, como si algo lo inquietara. Además, Giovanni no ha llegado solo: un misterioso personaje lo espera en el camino.

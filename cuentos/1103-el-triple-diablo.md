@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-el-triple-diablo/21213/
 
+
+**Imagen:** 1103-el-triple-diablo.webp
 ---
 
 Sinopsis: «El triple diablo» (Triple Devil) es un cuento de Isaac Asimov, publicado en agosto de 1985 en la revistaEllery Queen’s Mystery Magazine. La historia comienza en una cena del club de los Viudos Negros, donde el invitado de honor, Benjamin Manfred, relata su ascenso desde la pobreza hasta convertirse en un exitoso librero. A través de una conversación sobre los hombres que se han hecho a sí mismos, Manfred despierta la curiosidad del grupo con una historia de su pasado que involucra a un misterioso benefactor, una biblioteca repleta de volúmenes valiosos y una pista enigmática relacionada con un libro oculto.

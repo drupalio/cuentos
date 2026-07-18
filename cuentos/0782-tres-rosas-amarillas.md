@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/raymond-carver-tres-rosas-amarillas/24019/
 
+
+**Imagen:** 0782-tres-rosas-amarillas.webp
 ---
 
 Sinopsis: «Tres rosas amarillas» (Errand) es un cuento de Raymond Carver, publicado el 1 de junio de 1987 en la revistaThe New Yorkere incluido después en el libroWhere I’m Calling From(1988). Con una prosa sobria y cargada de emotividad, Carver reconstruye el último tramo en la vida de Antón Chéjov, desde una cena en Moscú hasta su deceso en un balneario alemán, consumido por la tuberculosis. Desgranando con delicadeza cada gesto y cada detalle, el relato se convierte en una meditación lúcida y profundamente humana sobre la dignidad frente a la muerte. Paradójicamente, fue también el relato de despedida del propio Carver, quien moriría poco después de su publicación.

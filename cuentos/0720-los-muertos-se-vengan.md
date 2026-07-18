@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/claude-vignon-los-muertos-se-vengan/17240/
 
+
+**Imagen:** 0720-los-muertos-se-vengan.webp
 ---
 
 Sinopsis: «Los muertos se vengan» (Les morts se vengent) es un cuento gótico de Claude Vignon, publicado en 1856 dentro de la colecciónMinuit!! Récits de la veillée. En el elegante salón de la señora de M., una selecta concurrencia se reúne para celebrar la festividad de Todos los Santos. Afuera, el otoño impregna el jardín de una melancolía inquietante, mientras que en el salón un grupo de jóvenes aburridos busca cómo entretenerse. Para animarlos, los invitados deciden jugar a las prendas y retan a la joven Paulina a que le dé un beso en la mejilla al doctor Maynaud. La inesperada reacción del doctor genera una atmósfera de completo desconcierto entre los asistentes.

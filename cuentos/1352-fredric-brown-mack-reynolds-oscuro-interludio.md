@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fredric-brown-mack-reynolds-oscuro-interludio/4221/
 
+
+**Imagen:** 1352-fredric-brown-mack-reynolds-oscuro-interludio.jpg
 ---
 
 Los ojos del sheriff Ben Rand tenían una expresión grave.

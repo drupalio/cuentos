@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/truman-capote-la-botella-de-plata/25515/
 
+
+**Imagen:** 0560-la-botella-de-plata.webp
 ---
 
 Sinopsis:«La botella de plata» (Jug of Silver) es un cuento de Truman Capote, publicado en 1949 en la revistaCornhilly recogido ese mismo año en la colecciónA Tree of Night and Other Stories. En un pequeño pueblo del sur de Estados Unidos, el dueño de un café idea un ingenioso concurso navideño para atraer clientes a su local: llena una botella con monedas y reta a los habitantes a adivinar cuánto dinero hay en su interior. El objeto despierta la curiosidad de los habitantes del lugar y, en particular, la de un extraño niño que parece decidido a llevarse el premio.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-el-otro-cielo/3147/
 
+
+**Imagen:** 0709-el-otro-cielo.webp
 ---
 
 Sinopsis:«El otro cielo»es un cuento de Julio Cortázar, publicado en 1966 en la colecciónTodos los fuegos el fuego. Narra la vida de un hombre dividido entre su rutina en el Buenos Aires de los años 40 y un París imaginario, crepuscular, hecho de pasajes cubiertos y luces de gas. Mientras cumple con las obligaciones del presente (el trabajo, la familia, la estabilidad), en ese otro mundo lo espera Josiane, una mujer enigmática con quien comparte una existencia más libre y secreta, cuya intensidad amenaza con eclipsar todo lo que lo ata a su vida real.

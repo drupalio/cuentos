@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-la-loba/13873/
 
+
+**Imagen:** 0991-la-loba-el-aprendiz-de-brujo.jpg
 ---
 
 Sinopsis: «La loba» (The She-Wolf) es un cuento de Hector Hugh Munro (Saki), publicado el 6 de agosto de 1912 en elMorning Post. Narra la historia de Leonard Bilsiter, un hombre fascinado por el esoterismo que, tras un viaje a Rusia, regresa a Inglaterra con relatos sobre «magia siberiana». Durante una estancia en casa de Mary Hampton, las conversaciones sobre poderes ocultos se intensifican y Mary desafía a Leonard a convertirla en una loba. Lo que comienza como una propuesta intrigante se transforma en una serie de eventos inesperados que pondrán a prueba las creencias y los nervios de todos los presentes.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-los-pocillos/264/
 
+
+**Imagen:** 0164-los-pocillos.webp
 ---
 
 Sinopsis: «Los pocillos» es un cuento de Mario Benedetti, publicado en 1959 dentro del libroMontevideanos. La historia tiene lugar en el ambiente íntimo de una sala de estar, donde tres personas comparten la rutina del café: Mariana, su esposo ciego José Claudio y el hermano de este, Alberto. José Claudio, amargado por la ceguera, ha adoptado una actitud distante y sarcástica que ha ido erosionando su relación con Mariana. En este contexto, a través de gestos mínimos y diálogos cargados de tensión, se despliega un complejo entramado emocional marcado por la frustración, la dependencia y los afectos desplazados, donde las apariencias ocultan verdades incómodas.

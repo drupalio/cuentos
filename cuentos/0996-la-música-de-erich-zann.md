@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-la-musica-de-erich-zann/22131/
 
+
+**Imagen:** 0996-la-música-de-erich-zann.webp
 ---
 
 Sinopsis:«La música de Erich Zann»(The Music of Erich Zann) es un cuento de H. P. Lovecraft, publicado en marzo de 1922 en la revistaThe National Amateur. La historia sigue a un joven estudiante de metafísica que, en busca de un alojamiento barato, se instala en una ruinosa pensión en la Rue d’Auseil, una calle escarpada y extrañamente inaccesible. Allí conoce a Erich Zann, un violinista mudo que vive en la buhardilla más alta. Fascinado por la música inquietante que escucha cada noche desde su habitación, el narrador intenta acercarse al misterioso músico, sin advertir que tras cada nota se oculta una realidad ajena y aterradora.

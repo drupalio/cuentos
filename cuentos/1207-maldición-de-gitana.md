@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-maldicion-de-gitana/6126/
 
+
+**Imagen:** 1207-maldición-de-gitana.jpg
 ---
 
 En «Maldición de gitana», cuento de Emilia Pardo Bazán, Gustavo Lizana narra una experiencia inquietante con el fatídico número trece. Durante una cena, él y sus amigos, los hermanos Mayoral, asisten a una cena donde son trece comensales, lo que supone malos augurios. Posteriormente, durante una expedición de caza, encuentran a una gitana que ofrece leer la buenaventura a uno de los hermanos, quien la rechaza con desdén. La mujer no tardará en tomar venganza por el desprecio de que ha sido objeto.

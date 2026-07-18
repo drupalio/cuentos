@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/aldous-huxley-los-claxton/1126/
 
+
+**Imagen:** 0973-los-claxton.webp
 ---
 
 Sinopsis: «Los Claxton» (The Claxtons) es un cuento satírico de Aldous Huxley, publicado en agosto de 1929 en la revistaLondon Mercuryy recopilado enBrief Candles(1930). La historia retrata con ironía la vida de los Claxton, una familia vegetariana, espiritualista y pretenciosamente idealista que habita una bucólica casa en el campo inglés. A través de pequeñas escenas domésticas, Huxley expone las contradicciones, hipocresías y neurosis de este modelo de vida supuestamente elevado. En el centro del conflicto está Silvia, la hija rebelde, cuya naturaleza indócil pone en evidencia los límites del rígido sistema moral de sus padres y cuestiona su autoridad espiritual.

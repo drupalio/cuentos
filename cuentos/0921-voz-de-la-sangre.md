@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-voz-de-la-sangre/14685/
 
+
+**Imagen:** 0921-voz-de-la-sangre.jpg
 ---
 
 Sinopsis: En «Voz de la sangre», cuento de Emilia Pardo Bazán publicado el 29 julio 1895 enEl Imparcial, Sabino y Leonarda disfrutan de un matrimonio feliz, aunque sin hijos. Luego de un largo viaje el matrimonio regresa con una niña llamada Aurora, que aseguran haber tenido en París. Aurora crece y se convierte en una joven encantadora y muy querida por sus padres. Un día un misterioso hombre aparece en su hogar, amenazando con privarlos de su amada hija.

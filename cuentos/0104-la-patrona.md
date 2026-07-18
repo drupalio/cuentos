@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roald-dahl-la-patrona/2700/
 
+
+**Imagen:** 0104-la-patrona.jpg
 ---
 
 Sinopsis: En «La Patrona» (The Landlady), cuento de Roald Dahl publicado enThe New Yorkeren noviembre de 1959, el joven Billy Weaver llega a Bath por negocios y busca un alojamiento barato para pasar la noche. Aunque inicialmente se dirige hacia el hotel «La Campana y el Dragón», un cartel de «Alojamiento y desayuno» en una casa lo atrae irresistiblemente. La vivienda, que parece acogedora y confortable, está regentada por una mujer amable y maternal que lo recibe con gran hospitalidad. A pesar de la apariencia tranquila y hogareña, una atmósfera inquietante envuelve el lugar y a su patrona, y gradualmente se revela que no todo es lo que parece. A medida que Billy se sumerge más en la comodidad de la casa, comienza a descubrir detalles peculiares y perturbadores sobre sus anteriores huéspedes.

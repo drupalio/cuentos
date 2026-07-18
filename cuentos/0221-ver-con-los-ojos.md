@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/miguel-de-unamuno-ver-con-los-ojos/3668/
 
+
+**Imagen:** 0221-ver-con-los-ojos.jpg
 ---
 
 Sinopsis:«Ver con los ojos» es un cuento de Miguel de Unamuno publicado el 25 de octubre de 1886 enEl Noticiero Bilbaíno. Retrata la vida en un pequeño y tranquilo pueblo, donde la comunidad celebra la vida cotidiana con gratitud y sencillez. La excepción es Juan, un joven que ha ido a estudiar a la ciudad y regresa de ella sumido en un profundo pesimismo, incapaz de disfrutar de su entorno. Lejos de la alegría de sus vecinos, vaga por el campo sumido en pensamientos sombríos. Su refugio es un pequeño emparrado donde trabaja Magdalena, una muchacha alegre y luminosa que, sin proponérselo, comenzará a despertar en Juan una silenciosa transformación interior.

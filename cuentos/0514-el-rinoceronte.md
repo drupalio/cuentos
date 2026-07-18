@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-jose-arreola-rinoceronte/537/
 
+
+**Imagen:** 0514-el-rinoceronte.webp
 ---
 
 Sinopsis:«El rinoceronte», cuento escrito por Juan José Arreola y publicado enBestiario(1972), narra la experiencia de una mujer que compara a su exesposo, el juez McBride, con un imponente rinoceronte. A través de vívidas imágenes, describe la lucha diaria contra su carácter autoritario y las tensiones de un matrimonio marcado por el dominio y la sumisión. La narradora reflexiona sobre el sacrificio de sus sueños y el poder transformador de una nueva relación que enfrenta al «rinoceronte» con estrategias femeninas diferentes.

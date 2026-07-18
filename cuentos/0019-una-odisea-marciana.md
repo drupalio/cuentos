@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stanley-g-weinbaum-una-odisea-marciana/28444/
 
+
+**Imagen:** 0019-una-odisea-marciana.webp
 ---
 
 Sinopsis:«Una odisea marciana» (A Martian Odyssey) es un cuento del escritor estadounidense Stanley G. Weinbaum, publicado en julio de 1934 en la revistaWonder Stories. Durante la primera expedición humana a Marte, el químico Dick Jarvis parte solo a explorar el planeta a bordo de una nave auxiliar, pero una avería lo obliga a aterrizar a más de mil kilómetros de la nave principal. Sin posibilidad de reparar el vehículo, emprende a pie el largo camino de regreso. Al caer la noche, encuentra a Tweel, una inteligente criatura marciana a la que salva del ataque de un depredador. Aunque apenas logran comunicarse, ambos entablan amistad y prosiguen juntos el viaje a través de un mundo poblado por formas de vida desconcertantes.

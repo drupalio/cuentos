@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stephen-king-el-caso-del-doctor/22029/
 
+
+**Imagen:** 1006-el-caso-del-doctor.webp
 ---
 
 Sinopsis: «El caso del doctor» (The Doctor’s Case) es un cuento de Stephen King, publicado en 1987 en la antologíaThe New Adventures of Sherlock Holmes. El relato comienza cuando el inspector Lestrade irrumpe en el 221B de Baker Street con un desafío irresistible para Sherlock Holmes: un asesinato cometido en una habitación cerrada. La víctima es un aristócrata cruel y odiado por su familia, que ha sido apuñalado. Con la escena del crimen intacta y los sospechosos aún presentes, Holmes y Watson se dirigen al lugar de los hechos, sin imaginar que esta vez será el doctor quien resolverá el misterio.

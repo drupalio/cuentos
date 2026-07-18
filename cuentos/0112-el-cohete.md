@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-el-cohete/27378/
 
+
+**Imagen:** 0112-el-cohete.webp
 ---
 
 Sinopsis:«El cohete» (The Rocket) es un cuento de ciencia ficción del escritor estadounidense Ray Bradbury, publicado en marzo de 1950 en la revistaSuper Science Storiese incluido luego en el libroThe Illustrated Man(1951). Fiorello Bodoni es un chatarrero que vive fascinado por los cohetes que cruzan el cielo nocturno y sueña con viajar algún día al espacio. Tras años de sacrificio, ha logrado reunir el dinero necesario para costear el viaje de uno de los miembros de su numerosa familia. Pero elegir quién cumplirá ese sueño y quién deberá quedarse en la Tierra pronto convierte la ilusión en un dilema doloroso.

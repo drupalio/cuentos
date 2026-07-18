@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/rubem-fonseca-feliz-ano-nuevo/9874/
 
+
+**Imagen:** 0521-feliz-año-nuevo.webp
 ---
 
 Sinopsis:«Feliz año nuevo» (Feliz ano novo), cuento de Rubem Fonseca publicado en 1975, refleja con crudeza un Brasil fracturado por la desigualdad y la violencia. En el marco de las celebraciones de fin de año, un grupo de hombres marginados enfrenta la miseria cotidiana mientras observa, con una mezcla de ironía y resentimiento, los excesos de la élite adinerada. Entre comentarios cínicos, supersticiones y la angustia de los sueños incumplidos, trazan un plan que podría cambiar su destino. Con una narrativa directa y sin concesiones, Fonseca muestra el brutal contraste entre el lujo de unos pocos y la desesperación de quienes luchan por sobrevivir en los márgenes de la sociedad.

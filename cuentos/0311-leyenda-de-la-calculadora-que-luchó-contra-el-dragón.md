@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stanislaw-lem-leyenda-de-la-calculadora-que-lucho-contra-el-dragon/6539/
 
+
+**Imagen:** 0311-leyenda-de-la-calculadora-que-luchó-contra-el-dragón.webp
 ---
 
 Sinopsis:«Leyenda de la calculadora que luchó contra el dragón» (Bajka o maszynie cyfrowej, co ze smokiem walczyla) es un cuento del escritor polaco Stanislaw Lem, publicado en 1964 en el libroBajki Robotów. En Ciberia, el belicoso rey Poliandro Partobonio ha llenado su reino de armas y artefactos cibernéticos, obsesionado con convertir sus dominios en una gran potencia militar. Como no encuentra enemigos reales a su altura, ordena crear ejércitos artificiales para combatirlos, además de un poderoso electrodragón que se instala en la Luna. Pronto, este peligroso monstruo escapa a todo control, poniendo en riesgo al monarca y a todo su mundo.

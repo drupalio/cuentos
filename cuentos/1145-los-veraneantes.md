@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/shirley-jackson-los-veraneantes/16120/
 
+
+**Imagen:** 1145-los-veraneantes.webp
 ---
 
 Sinopsis: «Los veraneantes» (The Summer People), es un inquietante relato de la aclamada autora estadounidense Shirley Jackson, publicado en septiembre de 1950 en la revistaCharm. El cuento explora la historia de un matrimonio de ancianos, los Allisons, quienes, tras años de pasar los veranos en una tranquila cabaña rural, deciden prolongar su estadía más allá de la temporada habitual. Sin embargo, esta decisión aparentemente inofensiva desencadena una serie de sucesos inesperados.

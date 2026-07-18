@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/o-henry-la-ultima-hoja/28322/
 
+
+**Imagen:** 0047-la-última-hoja.webp
 ---
 
 Sinopsis:«La última hoja» (The Last Leaf) es un cuento del escritor estadounidense O. Henry, publicado el 15 de octubre de 1905 enThe New York Sunday World. Sue y Johnsy son dos jóvenes artistas que comparten un estudio en Greenwich Village. Su vida bohemia se ve alterada cuando Johnsy cae gravemente enferma de neumonía. Postrada en cama y cada vez más débil, la muchacha se convence de que morirá cuando caiga la última hoja de una hiedra que ve desde su ventana. Sue intenta cuidarla y devolverle la esperanza, pero cada nueva mirada hacia el muro parece alejar a Johnsy de la vida.

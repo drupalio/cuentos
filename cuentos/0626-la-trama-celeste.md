@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/adolfo-bioy-casares-la-trama-celeste/25150/
 
+
+**Imagen:** 0626-la-trama-celeste.webp
 ---
 
 Sinopsis:«La trama celeste» es un cuento de Adolfo Bioy Casares, publicado en 1948. Un hombre recibe un misterioso manuscrito escrito por el doctor Carlos Servian, un médico homeópata que narra la historia de Ireneo Morris, un piloto de pruebas argentino que sufre un desconcertante accidente aéreo. Mientras ensaya un nuevo método para probar un avión monoplano, Morris se desmaya y despierta detenido en el Hospital Militar de Buenos Aires. Allí, pese a identificarse como oficial, todos desconfían de su identidad, nadie parece conocerlo y lo tratan como a un posible espía. Sólo una enfermera, la enigmática Idibal, parece dispuesta a ayudarlo.

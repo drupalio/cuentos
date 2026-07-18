@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-tres-versiones-de-judas/21587/
 
+
+**Imagen:** 0264-tres-versiones-de-judas.webp
 ---
 
 Sinopsis: «Tres versiones de Judas» es un cuento de Jorge Luis Borges, publicado en 1944 en el libroFicciones. A través de una erudita y ficticia investigación teológica, Borges presenta la figura de Nils Runeberg, un estudioso sueco obsesionado con reinterpretar el papel de Judas Iscariote en la historia cristiana. Runeberg publica dos libros donde desarrolla ideas heterodoxas que escandalizan a los teólogos, proponiendo que la traición de Judas no fue sino un acto necesario para la redención. Sus teorías, consideradas heréticas, lo conducen por un camino que transforma radicalmente su destino.

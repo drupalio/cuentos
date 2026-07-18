@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/maria-luisa-bombal-las-islas-nuevas/22559/
 
+
+**Imagen:** 0970-las-islas-nuevas.webp
 ---
 
 Sinopsis: «Las islas nuevas» es un cuento de María Luisa Bombal, publicado en febrero de 1939 en la revistaSur. Ambientado en una estancia solitaria de la pampa argentina, narra la historia de Yolanda, una mujer enigmática, frágil y melancólica que parece vivir entre el sueño y la vigilia. La llegada de Juan Manuel, un visitante de Buenos Aires, altera su rutina y desencadena una serie de experiencias inquietantes, donde el deseo y la memoria se confunden con lo onírico, envolviendo a los personajes en una atmósfera de extravío y misterio.

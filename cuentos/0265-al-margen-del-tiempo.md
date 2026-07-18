@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/murray-leinster-al-margen-del-tiempo/27279/
 
+
+**Imagen:** 0265-al-margen-del-tiempo.webp
 ---
 
 Sinopsis:«Al margen del tiempo» (Sidewise in Time) es un cuento del escritor estadounidense Murray Leinster, publicado en junio de 1934 en la revistaAstounding Stories. Una serie de fenómenos inexplicables sacude la Tierra hasta que, un día, la realidad comienza a fracturarse: bosques milenarios brotan de la nada, dinosaurios asoman desde el patio de una granja, legiones romanas marchan por las calles de Missouri y barcos vikingos asaltan las costas de Nueva Inglaterra. Mientras el mundo reacciona con estupor, un solo hombre parece comprender lo que ocurre: el profesor Minott, matemático de una pequeña universidad de Virginia, que lleva meses preparándose en secreto para un cataclismo que amenaza no solo a la humanidad, sino también al espacio y al tiempo tal como los concebimos.

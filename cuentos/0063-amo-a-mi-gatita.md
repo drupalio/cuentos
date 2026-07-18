@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-amo-a-mi-gatita/25897/
 
+
+**Imagen:** 0063-amo-a-mi-gatita.webp
 ---
 
 Sinopsis:«Amo a mi gatita» (I Love Little Pussy) es un cuento de Isaac Asimov, publicado en noviembre de 1988 enIsaac Asimov’s Science Fiction Magazine. George es un hombre ambicioso con una prima rica, Andromache, de quien espera heredar. La mujer, solitaria y sin pretendientes, decide adoptar una gata, Pussy, en la que vuelca todo su afecto. Sin embargo, Pussy es un animal altivo e indiferente que parece desdeñar a los humanos. Para congraciarse con su prima, George le promete convertir a Pussy en una gata cariñosa, y para ello recurre a Azazel, un diminuto ser extraterrestre dotado de capacidades tecnológicas avanzadas. La operación parece exitosa al principio, pero George pronto descubrirá que manipular las emociones de un felino puede tener consecuencias inesperadas.

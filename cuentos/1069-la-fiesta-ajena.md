@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/liliana-heker-la-fiesta-ajena/2676/
 
+
+**Imagen:** 1069-la-fiesta-ajena.webp
 ---
 
 Sinopsis: «La fiesta ajena«, de Liliana Heker, es un cuento publicado en 1982 en la colecciónLas peras del mal. Narra la historia de Rosaura, una niña de nueve años que asiste al cumpleaños de Luciana, una niña de posición acomodada a quien considera su amiga. Aunque su madre le advierte sobre las diferencias de clase y la percepción que los demás tienen de ella por ser hija de la empleada doméstica, Rosaura desatiende sus consejos, ya que está emocionada por participar en la celebración que promete ser espectacular. La niña está dispuesta a demostrar que su madre se equivoca y que sus opiniones son solo fruto del prejuicio.

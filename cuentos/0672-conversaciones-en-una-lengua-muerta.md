@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/thomas-ligotti-conversaciones-en-una-lengua-muerta/17265/
 
+
+**Imagen:** 0672-conversaciones-en-una-lengua-muerta.webp
 ---
 
 Sinopsis: «Conversaciones en una lengua muerta» (Conversations in a Dead Language) es un inquietante relato de terror psicológico de Thomas Ligotti, publicado enDeathrealmen 1989. La historia sigue a Samuel, un solitario cartero que cada año se prepara meticulosamente para celebrar Halloween. Con su casa decorada y una generosa provisión de dulces, Samuel espera con ansias la llegada de los niños que desfilan por su hogar. Sin embargo, a medida que el tiempo avanza, el deterioro físico y mental de Samuel se hace evidente, lo que parece despertar en él inquietantes fantasías.

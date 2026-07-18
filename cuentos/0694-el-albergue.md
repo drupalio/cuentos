@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-el-albergue/14985/
 
+
+**Imagen:** 0694-el-albergue.jpg
 ---
 
 Sinopsis: «El albergue» (L’auberge) es un cuento de Guy de Maupassant, publicado el 1 de septiembre de 1886 en la revistaLes Lettres et les Arts. Ambientado en los Alpes suizos, narra la historia de Ulrich Kunsi y Gaspard Han, dos guías de montaña que quedan aislados durante el invierno en un refugio, encargados de cuidarlo hasta la primavera. Rodeados de un paisaje hostil y silencioso, con la nieve cubriendo los accesos y la soledad como única compañía, los hombres se enfrentan al encierro prolongado, al tedio, al miedo y a una amenaza invisible que poco a poco se cierne sobre ellos, envolviéndolos en un ambiente de creciente tensión psicológica.

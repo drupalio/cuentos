@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/nathaniel-hawthorne-wakefield/2853/
 
+
+**Imagen:** 0301-wakefield.webp
 ---
 
 Sinopsis:«Wakefield» es un cuento del escritor estadounidense Nathaniel Hawthorne, publicado enThe New-England Magazineen mayo de 1835. Bajo el pretexto de hacer un breve viaje, un hombre abandona su hogar y a su esposa, y se instala en secreto en una habitación de la calle contigua a su domicilio. Sin motivo aparente, observa desde la distancia la vida que ha dejado atrás, convirtiéndose en un espectador invisible de su propia ausencia. Lo que sería una escapada de pocos días se va alargando, mientras Wakefield se sumerge en el anonimato y posterga indefinidamente su regreso.

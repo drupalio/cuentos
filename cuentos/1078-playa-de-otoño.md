@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/pio-baroja-playa-de-otono/4269/
 
+
+**Imagen:** 1078-playa-de-otoño.webp
 ---
 
 Sinopsis:«Playa de otoño» es un cuento de Pío Baroja, publicado en 1900 dentro de la colecciónVidas sombrías. Narra el viaje solitario de María Luisa a un pueblo costero del País Vasco, adonde acude cada otoño para reencontrarse con su pasado. En medio del paisaje marino, envuelto en una atmósfera brumosa y silenciosa, el relato traza un retrato íntimo, cargado de nostalgia y emociones contenidas. La calma del entorno, los sonidos del campo y el vaivén de las olas despiertan en la protagonista una melancolía serena que enlaza el recuerdo con un incierto porvenir.

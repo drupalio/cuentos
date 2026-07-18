@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ramon-del-valle-inclan-mi-hermana-antonia/27722/
 
+
+**Imagen:** 0178-mi-hermana-antonia.webp
 ---
 
 Sinopsis:«Mi hermana Antonia» es un cuento del escritor español Ramón del Valle-Inclán, publicado el 21 de agosto de 1909 en la revistaCaras y Caretase incluido ese mismo año enCofre de sándalo. Ambientado en Santiago de Galicia, narra los recuerdos de infancia de un niño marcado por la figura de su hermana mayor, Antonia, una joven pálida y de aire melancólico, asediada por Máximo Bretal, un sombrío estudiante de Teología cuya figura espectral y mirada inquietante infunden temor en la casa. Rechazado por la madre de Antonia, Bretal parece dispuesto a recurrir a cualquier medio para conseguir a la muchacha, incluso a sacrificar su alma.

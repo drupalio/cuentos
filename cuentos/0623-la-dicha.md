@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-la-dicha/25175/
 
+
+**Imagen:** 0623-la-dicha.webp
 ---
 
 Sinopsis:«La dicha» (Le bonheur) es un cuento de Guy de Maupassant, publicado el 16 de marzo de 1884 enLe Gaulois. En una villa que domina el Mediterráneo, un grupo de invitados conversa sobre el amor y se pregunta si es posible que se mantenga a lo largo de los años. La charla continúa hasta que, en el horizonte, aparece la silueta de Córcega, visible desde el continente solo en ocasiones excepcionales. Esa visión inesperada anima a un anciano caballero a intervenir y compartir un episodio vivido en la isla: una historia que, según él, revela de manera sencilla cómo el amor puede perdurar a través del tiempo.

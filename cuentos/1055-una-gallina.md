@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/clarice-lispector-una-gallina/5648/
 
+
+**Imagen:** 1055-una-gallina.webp
 ---
 
 Sinopsis: «Una gallina» (Uma galinha) es un cuento de Clarice Lispector, publicado en 1952 en la recopilación de relatosAlguns contos. La historia comienza una mañana de domingo, cuando una gallina destinada al almuerzo de una familia escapa inesperadamente por los tejados del vecindario. En su huida, la humilde ave revela una energía insospechada, desatando una absurda persecución que altera la rutina del hogar. Lo que parecía un episodio trivial se transforma en una pequeña conmoción doméstica que, por un momento, hace que los personajes vean al animal y a sí mismos de manera distinta.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-emilio-pacheco-triptico-del-gato/13877/
 
+
+**Imagen:** 0627-tríptico-del-gato.jpg
 ---
 
 Sinopsis:«Tríptico del gato», relato de José Emilio Pacheco publicado en 1957, es una exploración poética y filosófica sobre la naturaleza y el simbolismo de los gatos a lo largo de la historia. La narración se divide en tres partes: en «Biografía del gato,» Pacheco plantea la idea de que los gatos fueron los primeros animales en la tierra, describiendo sus características y su relación ambivalente con los humanos. «El gato en la noche» retrata las intensas y crudas interacciones nocturnas de los gatos, que simbolizan los aspectos más primitivos y esenciales de la existencia. Finalmente, en «Los tres pies del gato,» un capricho infantil de un niño rico desencadena una serie de eventos trágicos y violentos, destacando la crueldad y la indiferencia humanas hacia los animales.

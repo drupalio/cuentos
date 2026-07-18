@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/walter-scott-la-camara-los-tapices/1240/
 
+
+**Imagen:** 0855-la-cámara-de-los-tapices.jpg
 ---
 
 Sinopsis:«La cámara de los tapices»(The Tapestried Chamber) es un relato de terror gótico escrito por Walter Scott, publicado en 1828 enThe Keepsake. La historia sigue al general Browne, un veterano de la Guerra de Independencia Americana, quien se reencuentra por casualidad con su amigo de la infancia, lord Woodville, recientemente heredero de un antiguo castillo. Invitado a pasar unos días en la ancestral mansión, Browne es alojado en un aposento que ha estado abandonado durante años. Lo que comienza como una visita placentera se convierte en una experiencia aterradora para la que ni siquiera sus años como militar lo han preparado.

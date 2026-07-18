@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/yasunari-kawabata-lugar-soleado/689/
 
+
+**Imagen:** 0356-lugar-soleado.jpg
 ---
 
 Sinopsis: «Lugar soleado» (Hinata) es un cuento del escritor japonés Yasunari Kawabata, escrito en 1923 y publicado en 1971 en el libroTenohira no Shōsetsu. Relata el encuentro entre un joven de veinticuatro años y una muchacha en una posada junto al mar, donde surge entre ellos una conexión especial. El protagonista, marcado por una costumbre adquirida en la infancia, tiene el hábito de observar fijamente a las personas, lo que genera en la joven una mezcla de incomodidad y comprensión. A medida que interactúan, un recuerdo de su abuelo ciego y su pasado resurge al contemplar un rincón soleado en la playa, iluminando una parte de sí mismo que hasta entonces había permanecido oculta.

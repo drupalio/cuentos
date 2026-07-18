@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-conan-doyle-el-carbunclo-azul/4739/
 
+
+**Imagen:** 0548-el-carbunclo-azul.jpg
 ---
 
 Sinopsis:«El carbunclo azul» (The Adventure of the Blue Carbuncle) es un cuento de Arthur Conan Doyle, publicado en enero de 1892 enThe Strand Magazine. Dos días después de Navidad, el Dr. Watson encuentra a Sherlock Holmes examinando un viejo sombrero y un ganso extraviados tras un altercado callejero. Lo que parece un incidente sin importancia cambia de tono cuando en el interior del ave aparece una valiosa joya robada días antes. A partir de este hallazgo inesperado, Holmes inicia una investigación minuciosa para seguir el recorrido del ganso y esclarecer cómo una pieza de tanto valor terminó oculta en un escondite tan improbable.

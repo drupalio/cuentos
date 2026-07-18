@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-la-mascara-de-la-muerte-roja/2742/
 
+
+**Imagen:** 0733-la-máscara-de-la-muerte-roja.webp
 ---
 
 Sinopsis: «La máscara de la Muerte Roja» (The Masque of the Red Death) es un cuento corto de Edgar Allan Poe, publicado en mayo de 1842 enGraham’s Magazine. En una región azotada por una plaga devastadora conocida como la Muerte Roja, el príncipe del reino decide aislarse en su abadía fortificada junto con otros nobles, buscando escapar de la enfermedad. En su refugio, organiza un lujoso baile de máscaras, ignorando el sufrimiento que asola el exterior. Sin embargo, hay figuras que acuden, incluso cuando nadie las ha invitado.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ana-maria-matute-la-conciencia/5505/
 
+
+**Imagen:** 1158-la-conciencia.jpg
 ---
 
 Sinopsis:La concienciaes un cuento de Ana María Matute, publicado en la colecciónHistorias de la Artámilaen 1961. Cuenta la historia de Mariana, una posadera que, una noche de tormenta, da refugio a un viejo vagabundo. Sin embargo, lo que parecía un acto de caridad se convierte en una carga insoportable cuando el hombre insinúa que conoce un secreto de su pasado. A medida que pasan los días, Mariana se ve atrapada en un juego de manipulación y miedo, mientras el vagabundo se instala cómodamente en su casa, desafiando su voluntad y perturbando su tranquilidad.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-oh-ser-un-blobel/17220/
 
+
+**Imagen:** 0669-oh-ser-un-blobel.webp
 ---
 
 Sinopsis:«¡Oh, ser un blobel!» (Oh, to Be a Blobel!) es un relato antimilitarista de ciencia ficción escrito por Philip K. Dick, publicado enGalaxy Magazineen febrero de 1964. La historia sigue a George Munster, un veterano marcado por el trauma de haber participado en una guerra interestelar contra los blobels, una especie de alienígenas unicelulares. Durante el conflicto, Munster sirvió como espía, lo que le obligó a asumir la forma física de un blobel para infiltrarse en sus filas. Sin embargo, al terminar la guerra, los procedimientos médicos no logran revertir completamente la transformación, lo cual afecta profundamente sus relaciones y su vida cotidiana.

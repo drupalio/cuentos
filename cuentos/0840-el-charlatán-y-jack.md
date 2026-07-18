@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/clive-barker-el-charlatan-y-jack/15595/
 
+
+**Imagen:** 0840-el-charlatán-y-jack.webp
 ---
 
 Sinopsis:«El charlatán y Jack» (The Yattering and Jack) es un relato de Clive Barker incluido en su célebre colecciónThe Books of Blood(1984). La historia, que combina terror y humor negro, sigue las desventuras de un demonio menor enviado a la Tierra con la misión de atormentar y llevar a la locura a Jack Polo, un sencillo comerciante de pepinillos. Aunque el demonio desprecia la tarea por considerarla indigna, pronto descubre en Jack un oponente inesperadamente formidable: no importa cuánto se esfuerce en acosarlo, Jack permanece imperturbable. La llegada de la navidad, y la visita de las hijas de Jack, da una última oportunidad al demonio, que pondrá todo su empeño en cumplir su objetivo.

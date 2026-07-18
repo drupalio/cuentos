@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jack-london-encender-una-hoguera-primera-version/19615/
 
+
+**Imagen:** 0407-encender-una-hoguera-primera-versión.webp
 ---
 
 Sinopsis: «Encender una hoguera» (To Build a Fire) es un cuento de Jack London, publicado en mayo de 1902 enThe Youth’s Companion. Relata la solitaria travesía de Tom Vincent a través del gélido paisaje del Yukón en pleno invierno. Confiado en su fortaleza y experiencia, el protagonista ignora las advertencias sobre los peligros de viajar sin compañía. Sin embargo, el frío extremo pronto se revela como un enemigo despiadado, y lo que parecía un recorrido rutinario se transforma en una lucha desesperada por la supervivencia. Esta es la primera versión del cuento, que London reescribiría y publicaría con el mismo título en 1908.

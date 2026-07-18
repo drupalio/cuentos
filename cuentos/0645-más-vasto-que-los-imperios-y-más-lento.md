@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ursula-k-le-guin-mas-vasto-que-los-imperios-y-mas-lento/21458/
 
+
+**Imagen:** 0645-más-vasto-que-los-imperios-y-más-lento.webp
 ---
 
 Sinopsis: «Más vasto que los imperios y más lento» (Vaster Than Empires and More Slow) es un cuento de ciencia ficción de Ursula K. Le Guin, publicado en 1971 en la antologíaNew Dimensions 1. La historia sigue a una expedición compuesta por científicos de distintos mundos que llega a un planeta inexplorado, cubierto por una densa vegetación sin vida animal. El equipo está liderado por la doctora Haito Tomiko y cuenta con Osden, un empático capaz de percibir las emociones de todos a su alrededor. Aislados en un entorno alienígena y enfrentados a su propia fragilidad emocional, los tripulantes comienzan a experimentar un miedo inexplicable.

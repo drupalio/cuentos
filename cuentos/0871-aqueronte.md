@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-emilio-pacheco-aqueronte/14651/
 
+
+**Imagen:** 0871-aqueronte.jpg
 ---
 
 Sinopsis: En «Aqueronte», cuento deJosé Emilio Pachecopublicado en 1963 en la antologíaEl viento distante, una joven entra sola a un café un domingo lluvioso. Pide una limonada y se sumerge en la escritura de su cuaderno, despertando la curiosidad de los demás clientes. Desde la terraza, un joven la observa con creciente interés. Entre ambos se establece un sutil juego de miradas a través del ventanal, hasta que la muchacha, aún en silencio, escribe algo en una hoja y llama al mesero. Ese pequeño gesto desencadena una reacción inesperada que transforma el ambiente del lugar.

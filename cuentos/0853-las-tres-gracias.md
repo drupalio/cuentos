@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-las-tres-gracias/8279/
 
+
+**Imagen:** 0853-las-tres-gracias.webp
 ---
 
 Sinopsis: «Las tres gracias», cuento deJulio Ramón Ribeyroincluido enRelatos santacrucinos(1992), explora las tensiones de una comunidad burguesa en Lima ante la llegada de tres misteriosas y atractivas mujeres. Su presencia desata un torrente de chismes y prejuicios, alimentados por la curiosidad y el deseo reprimido de los vecinos. Ribeyro utiliza una narrativa sutil y mordaz para desentrañar los mecanismos sociales que transforman la sospecha en condena, cuestionando la moralidad y la hipocresía de la vida urbana. El cuento es un agudo retrato de la intolerancia y el poder destructivo del rumor en una sociedad cerrada y vigilante.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-ligeia/13999/
 
+
+**Imagen:** 0979-ligeia.jpg
 ---
 
 Sinopsis: «Ligeia» es un relato de terror gótico de Edgar Allan Poe publicado el 18 de septiembre de 1838 en la revistaAmerican Museum. Narra la intensa relación del protagonista con Ligeia, una mujer de extraordinaria belleza e inteligencia, a quien conoció en una ruinosa ciudad cerca del Rin. En su unión, comparten amor, pasión y un profundo respeto intelectual. La muerte de Ligeia sumerge al protagonista en una espiral de decadencia de la que ni siquiera su matrimonio con la hermosa Rowena logra rescatarlo. El recuerdo y la obsesión por Ligeia persiguen al protagonista, atormentándolo a pesar de que ella descansa en la tumba.

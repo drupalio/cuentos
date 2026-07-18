@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-usher-ii/14824/
 
+
+**Imagen:** 0923-usher-ii.jpg
 ---
 
 Sinopsis: En «Usher II» (Carnival of Madness), cuento de Ray Bradbury publicado en abril de 1950 enThrilling Wonder Storiesy recogido luego enThe Martian Chronicles(1950), el Sr. William Stendahl ha construido una réplica exacta de la Casa Usher de Edgar Allan Poe en Marte, como protesta contra la censura que ha destruido la literatura fantástica en la Tierra. En una sociedad donde todo lo imaginativo está prohibido, Stendahl invita a miembros de la Sociedad de Represión de la Fantasía a un macabro evento en su casa recién construida, donde vivirán una experiencia sorprendente.

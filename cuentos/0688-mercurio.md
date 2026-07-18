@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/d-h-lawrence-mercurio/24807/
 
+
+**Imagen:** 0688-mercurio.webp
 ---
 
 Sinopsis: «Mercurio» (Mercury) es un cuento de D. H. Lawrence, publicado enThe Atlantic Monthlyen febrero de 1927. En un sofocante domingo de verano, multitudes ascienden a la colina de Mercurio buscando escapar del calor que oprime los valles. En la cima, en medio del bosque de pinos, el tiempo parece detenerse: nadie tiene prisa ni propósito. Pero, a medida que el día avanza, el calor se espesa y una tensión silenciosa se adueña del ambiente, como si la naturaleza misma aguardara un acontecimiento inminente.

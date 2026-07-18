@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/luis-enrique-delano-las-manos/618/
 
+
+**Imagen:** 1440-luis-enrique-délano-las-manos.jpg
 ---
 
 BIEN puedo decir que cada vez aquella niña se me entraba más adentro en el corazón. Insensiblemente iba yo dejando mis ratos de alegría para cuando estuviera a su lado, es decir esperaba impaciente su presencia, porque cuando estaba junto a ella mi indiferencia cuotidiana se iba diluyendo para dejar paso a una alegría suave, delicada. Y hasta un poco de mi rudeza habitual fué desapareciendo, deshecha entre las manos de la chiquilla. Finalmente, un día en un diálogo conmigo mismo tuve que confesar que estaba enamorado de ella…

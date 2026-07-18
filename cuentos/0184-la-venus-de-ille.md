@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/prosper-merimee-la-venus-de-ille/12908/
 
+
+**Imagen:** 0184-la-venus-de-ille.jpg
 ---
 
 Sinopsis: «La Venus de Ille», es un cuento del escritor francés Prosper Mérimée publicado en mayo de 1837 en la Revue des deux Mondes. Un arqueólogo visita el pequeño pueblo francés de Ille por recomendación de un amigo y se hospeda en la casa de M. de Peyrehorade, un entusiasta anticuario, quien recientemente ha realizado un gran hallazgo: una estatua romana de la diosa Venus, en perfecto estado de conservación. Durante la estancia del protagonista se celebra la boda del hijo de Peyrehorade, Alphonse, con una rica joven de la localidad. Sin embargo, la celebración se ve enturbiada por una serie de eventos sobrenaturales, aparentemente provocados por la estatua de la diosa, que carga sobre sí una terrible maldición.

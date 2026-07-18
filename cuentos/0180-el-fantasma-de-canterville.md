@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/oscar-wilde-fantasma-canterville-narracion-hilo-idealista/1015/
 
+
+**Imagen:** 0180-el-fantasma-de-canterville.webp
 ---
 
 Sinopsis: «El fantasma de Canterville» (The Canterville Ghost) es un cuento del escritor irlandés Oscar Wilde, publicado originalmente en 1887 en la revistaThe Court and Society Review. Narra la historia del señor Hiram B. Otis, un diplomático estadounidense que compra el castillo inglés de Canterville, a pesar de las advertencias sobre la presencia de un fantasma. Al instalarse con su familia, los Otis enfrentan sin miedo y con humor pragmático al espectro, conocido como sir Simon, que durante siglos ha aterrorizado a los habitantes del castillo. El encuentro entre la moderna familia estadounidense y el antiguo fantasma inglés desencadena situaciones divertidas e inesperadas.

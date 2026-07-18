@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-esta-manana/612/
 
+
+**Imagen:** 0495-esta-mañana.webp
 ---
 
 Sinopsis:«Esta mañana» es un cuento de Mario Benedetti, publicado en 1949. Narra el despertar de Jorge Ayolas, un empleado que, desde el primer momento del día, se siente distinto. Mientras se viste, desayuna y viaja hacia la oficina, su pensamiento vuelve una y otra vez a la figura de Gálvez, su jefe. Un episodio reciente en el trabajo ha quebrado su idea de sí mismo, alterando su mundo y la forma de mirar a otros. La mañana se vuelve entonces un tiempo de espera y de presión interior, en el que Jorge se aproxima, sin nombrarla, a una resolución que se hace cada vez más nítida.

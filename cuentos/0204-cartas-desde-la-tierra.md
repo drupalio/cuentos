@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mark-twain-las-cartas-de-satan-desde-la-tierra/876/
 
+
+**Imagen:** 0204-cartas-desde-la-tierra.webp
 ---
 
 Sinopsis:«Cartas desde la Tierra» (Letters from the Earth) es una pieza satírica del escritor estadounidense Mark Twain, escrita en 1909 y publicada póstumamente en 1962. Tras asistir a la creación del universo y del hombre, el arcángel Satanás es desterrado del cielo por un día celestial a causa de sus comentarios burlones sobre las obras del Creador. Aprovechando el destierro, viaja a la Tierra para observar cómo marcha el experimento de la especie humana. Lo que encuentra lo deja perplejo: una criatura absurda que se proclama la obra más noble de Dios, que reza sin ser escuchada, que ha imaginado un cielo lleno de todo lo que detesta, y que cree ciegamente en una Biblia repleta de contradicciones. Desde allí escribe a los arcángeles Miguel y Gabriel para contarles sus hallazgos.

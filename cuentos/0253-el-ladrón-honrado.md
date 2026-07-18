@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fiodor-dostoyevski-el-ladron-honrado/26451/
 
+
+**Imagen:** 0253-el-ladrón-honrado.webp
 ---
 
 Sinopsis:«El ladrón honrado» (Честный вор) es un cuento de Fiódor Dostoyevski, publicado en abril de 1848 en la revistaОтечественные записки. Por sugerencia de su ama de llaves, un hombre solitario acepta arrendar una modesta habitación de su casa a Astáfi Ivánovich, un locuaz veterano cuyos relatos rompen la monotonía del hogar. Un día, un desconocido entra en el vestíbulo y roba un abrigo. El incidente impulsa a Astáfi a contar la historia de Emelián Ilich, un vagabundo alcohólico y desvalido con quien convivió en el pasado, y un episodio doméstico que marcaría profundamente su relación.

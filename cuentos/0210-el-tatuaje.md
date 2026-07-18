@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/junichiro-tanizaki-el-tatuaje/21566/
 
+
+**Imagen:** 0210-el-tatuaje.webp
 ---
 
 Sinopsis: «El tatuaje» (Shisei) es un cuento del escritor japonés Junichiro Tanizaki, publicado por primera vez en noviembre de 1910 en la revistaShin-Shicho. Ambientado en el Japón de la era Edo, narra la historia de Seikichi, un tatuador reconocido por su audaz estilo artístico y su inquietante fascinación por el dolor. Obsesionado con encontrar a la mujer ideal sobre cuya piel plasmar su obra maestra, un día descubre por azar a una joven que parece encarnar la figura que ha buscado durante años. Lo que comienza como una búsqueda estética pronto se convierte en un juego de poder y fascinación.

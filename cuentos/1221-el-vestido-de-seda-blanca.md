@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/richard-matheson-el-vestido-de-seda-blanca/9129/
 
+
+**Imagen:** 1221-el-vestido-de-seda-blanca.jpg
 ---
 
 En «El vestido de seda blanca» de Richard Matheson, una niña, bajo el cuidado de su abuela, está obsesionada con el vestido de seda blanca de su madre fallecida. La abuela le prohíbe entrar en la habitación de su madre, pero la niña desobedece constantemente para sentir la conexión con su madre a través del vestido. Un día, su amiga Mary Jane la reta a demostrar la existencia del vestido. Cuando la niña finalmente lo muestra, una confrontación estalla, desencadenando un evento inquietante.

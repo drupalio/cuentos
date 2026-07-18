@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gustavo-adolfo-becquer-la-rosa-de-pasion/23873/
 
+
+**Imagen:** 0806-la-rosa-de-pasión.webp
 ---
 
 Sinopsis: «La Rosa de Pasión» es un relato de Gustavo Adolfo Bécquer, publicado el 24 de marzo de 1864 en el periódicoEl Contemporáneo. Ambientado en el Toledo medieval, narra la historia de Sara, una joven hebrea de extraordinaria belleza, hija de un sombrío y enigmático judío llamado Daniel Leví. Encerrada en su hogar bajo la severa vigilancia de su padre, la muchacha rechaza a todos sus pretendientes, lo que alimenta los rumores entre sus vecinos. La sospecha de que está enamorada de un cristiano despierta la inquietud de la comunidad y la amenaza latente de una tragedia motivada por el fanatismo y el odio religioso.

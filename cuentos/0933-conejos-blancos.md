@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/leonora-carrington-conejos-blancos/762/
 
+
+**Imagen:** 0933-conejos-blancos.jpg
 ---
 
 Sinopsis:«Conejos blancos»(White Rabbits) es un perturbador cuento de la escritora surrealista Leonora Carrington, publicado en los números 9-10 de la revistaViewentre 1941 y 1942. Considerado por Julio Cortázar como uno de los mejores relatos de la historia, narra la experiencia de una joven que, poco después de instalarse en una inquietante y brumosa calle de Nueva York, descubre que la sombría casa de enfrente, que ella creía vacía, está ocupada por una misteriosa mujer que alimenta a un cuervo desde su balcón. Entre ambas se entabla una breve conversación, en la que la mujer le hace una extraña petición. Intrigada, la protagonista cruza la calle para cumplir el encargo, sin sospechar la macabra experiencia que le espera.

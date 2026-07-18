@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/william-gibson-el-continuo-de-gernsback/2417/
 
+
+**Imagen:** 1396-william-gibson-el-continuo-de-gernsback.jpg
 ---
 
 Por fortuna, el asunto empieza a desvanecerse, a convertirse en un episodio. Cuando todavía capto la extraña visión, es periférica; meros fragmentos de cromo de científico loco, que se limitan al rabillo del ojo. Hubo aquella ala volante sobre San Francisco la semana pasada, pero era casi translúcida. Y los descapotables de aleta de tiburón se han vuelto más escasos, y las autopistas evitan discretamente desplegarse, para no convertirse en esos esplendorosos monstruos de ochenta carriles que forzosamente tuve que recorrer el mes pasado en mi Toyota alquilado. Y sé que nada de eso me seguirá hasta Nueva York; mi visión se está estrechando, centrándose en una única longitud de onda de probabilidad. He trabajado duro para lograrlo. La televisión ayudó mucho.

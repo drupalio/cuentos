@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hans-christian-andersen-el-soldadito-de-plomo/6014/
 
+
+**Imagen:** 1182-el-soldadito-de-plomo.webp
 ---
 
 «El soldadito de plomo» (Den standhaftige tinsoldat), cuento corto de Hans Christian Andersen publicado en 1838, es una emotiva narración sobre un soldadito de juguete con una sola pierna, único entre sus veinticinco hermanos idénticos. Regalado a un niño en su cumpleaños, el soldadito se enamora de una bailarina de papel. A lo largo del relato, el valiente soldadito debe enfrentarse a una serie de infortunios que lo alejan de su amada. Sin embargo, a pesar de las dificultades, el soldadito demuestra una admirable fortaleza y lealtad, especialmente en su amor inquebrantable por la bailarina.

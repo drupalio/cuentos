@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/clark-ashton-smith-el-regreso-del-brujo/15926/
 
+
+**Imagen:** 1146-el-regreso-del-brujo.webp
 ---
 
 Sinopsis: «El regreso del brujo» (The Return of the Sorcerer) es un cuento deClark Ashton Smith, publicado en 1931, que forma parte del ciclo de los Mitos de Cthulhu. La historia sigue a un hombre desempleado que acepta un trabajo como secretario de John Carnby, un solitario erudito especializado en demonología y brujería. Carnby le pide que utilice sus conocimientos de árabe para ayudarlo a descifrar pasajes delNecronomicón, un antiguo y oscuro libro. A medida que avanza en su trabajo, el protagonista empieza a sospechar que el interés de su empleador va más allá de la pura erudición y que detrás de su fachada se esconden secretos oscuros y diabólicos.

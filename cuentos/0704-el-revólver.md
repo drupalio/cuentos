@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-el-revolver/4025/
 
+
+**Imagen:** 0704-el-revólver.jpg
 ---
 
 Sinopsis: «El revólver» es un cuento corto de Emilia Pardo Bazán, publicado en febrero de 1895 en el periódicoEl Imparcial. La historia se centra en una mujer que, tras un año de matrimonio feliz, comienza a notar un cambio drástico en el carácter de su esposo. Sus celos irracionales convierten el amor en una amenaza constante y opresiva. A través de su voz cansada se revela la huella que el terror ha dejado en su vida, un temor tan profundo que ha enfermado su cuerpo y transformado su pasado en una herida imposible de cerrar.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/charles-dickens-el-retorno-del-presidiario/14754/
 
+
+**Imagen:** 0930-el-retorno-del-presidiario.jpg
 ---
 
 Sinopsis: «El retorno del presidiario» (The Convict’s Return) es un relato de Charles Dickens publicado en 1837 enThe Posthumous Papers of the Pickwick Club. Narra la dura historia de una familia en Inglaterra. El padre, Edmunds, es un hombre despreciado por la comunidad debido a su naturaleza violenta y su vida disoluta. Su esposa, a pesar del constante maltrato, permanece dedicada a su hijo, al que cuida con amor y esmero. El niño, que crece en un entorno de abusos, se convierte en un joven rebelde, fiel reflejo de su padre. Con el paso de los años, el muchacho se aleja del buen camino y cae en desgracia, mientras su madre, firme en su amor, intenta sostenerlo con fe y sacrificio.

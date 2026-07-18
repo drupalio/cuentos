@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-llamazares-piloto-suicida/5331/
 
+
+**Imagen:** 1329-julio-llamazares-piloto-suicida.jpg
 ---
 
 Aquella mañana, mientras desayunaba en la cocina de su casa, a las siete y media en punto, igual que de costumbre, Antonio Segura no podía imaginar lo que el destino le tenía reservado en ese día.

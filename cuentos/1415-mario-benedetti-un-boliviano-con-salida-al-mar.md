@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-un-boliviano-con-salida-al-mar/2031/
 
+
+**Imagen:** 1415-mario-benedetti-un-boliviano-con-salida-al-mar.jpg
 ---
 
 Nunca he podido confirmarlo, pero dicen que en plena guerra de las Malvinas le preguntaron a Borges qué solución se le ocurría para el conflicto, y él, con su sorna metafísica de siempre, respondió: «Creo que Argentina y Gran Bretaña tendrían que ponerse de acuerdo y adjudicar las Malvinas a Bolivia, para que este país logre por fin su salida al mar».

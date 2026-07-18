@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-e-howard-el-dios-del-cuenco/15413/
 
+
+**Imagen:** 0812-el-dios-del-cuenco.webp
 ---
 
 Sinopsis: «El dios del cuenco» (The God in the Bowl) es un cuento de Robert E. Howard, publicado en septiembre de 1952 enSpace Science Fiction. Durante una ronda nocturna, un guardia descubre el cuerpo sin vida de un acaudalado coleccionista en el interior de un templo convertido en galería de objetos antiguos. En el lugar aparece un forastero de mirada feroz y espada al cinto, cuyo silencio levanta sospechas. Mientras las autoridades lo interrogan, Conan se ve envuelto en una investigación que desentierra un secreto prohibido ligado a las ancestrales sombras de Estigia.

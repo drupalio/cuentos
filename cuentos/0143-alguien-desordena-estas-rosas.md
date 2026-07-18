@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-alguien-desordena-estas-rosas/14222/
 
+
+**Imagen:** 0143-alguien-desordena-estas-rosas.jpg
 ---
 
 Sinopsis: «Alguien desordena estas rosas» es un cuento corto de Gabriel García Márquez, publicado en 1952 enCrónicay recopilado enOjos de perro azul(1974). Narra la historia del espíritu de un niño que intenta cada domingo tomar rosas para llevarlas a su tumba. Las flores son cultivadas por una mujer devota que habita la antigua casa donde él vivió. A través de sus observaciones silenciosas, se va desvelando el vínculo íntimo que los une, en un relato cargado de melancolía y atmósfera surrealista.

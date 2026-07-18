@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/algernon-blackwood-el-wendigo/16062/
 
+
+**Imagen:** 0320-el-wendigo.webp
 ---
 
 Sinopsis: «El Wendigo» (The Wendigo) es un relato de terror psicológico y sobrenatural del escritor británicoAlgernon Blackwood, publicado en 1910 como parte de la colecciónThe Lost Valley and Other Stories. La historia se adentra en los vastos y gélidos bosques canadienses, donde un grupo de cazadores se enfrenta a la aterradora criatura conocida como el Wendigo. Esta figura mítica, surgida de las leyendas indígenas, simboliza la ferocidad y el salvajismo indomable de la naturaleza. Con una atmósfera opresiva y envolvente, Blackwood profundiza en los límites de la cordura humana y el temor ancestral que provocan los paisajes inhóspitos.

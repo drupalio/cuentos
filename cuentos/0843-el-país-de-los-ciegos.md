@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-g-wells-el-pais-de-los-ciegos/23499/
 
+
+**Imagen:** 0843-el-país-de-los-ciegos.webp
 ---
 
 Sinopsis: «El país de los ciegos» (The Country of the Blind) es un cuento de H. G. Wells, publicado en abril de 1904 en la revistaThe Strand Magazine. Narra la historia de un guía de montaña que, durante una expedición por los Andes, sufre un accidente que lo lleva a un valle remoto, aislado del mundo exterior. Allí descubre una población que ha vivido durante siglos sin el sentido de la vista y que ha desarrollado su vida, sus costumbres y sus creencias sin ninguna referencia al mundo visible. Convencido de que su capacidad de ver le otorgará una ventaja, intenta imponerse como líder, sin sospechar que deberá afrontar desafíos para los que podría no estar preparado.

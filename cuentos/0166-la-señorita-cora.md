@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-la-senorita-cora/13550/
 
+
+**Imagen:** 0166-la-señorita-cora.jpg
 ---
 
 Sinopsis: «La señorita Cora«, cuento deJulio Cortázarpublicado en la colecciónTodos los fuegos el fuego(1966), narra la historia de Pablo, un adolescente que ingresa al hospital para una operación de apendicitis. Allí conoce a Cora, una joven enfermera por quien Pablo siente una atracción inmediata.  Escrito desde múltiples perspectivas, el relato se despliega como un mosaico de emociones, revelando los pensamientos y sentimientos de los distintos personajes, lo que ofrece al lector una visión más amplia y compleja para comprender la trama conforme esta se desarrolla.

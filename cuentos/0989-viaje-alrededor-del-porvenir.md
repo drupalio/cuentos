@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/cesar-vallejo-viaje-alrededor-del-porvenir/13989/
 
+
+**Imagen:** 0989-viaje-alrededor-del-porvenir.jpg
 ---
 
 Sinopsis: «Viaje alrededor del porvenir» es un cuento de César Vallejo, publicado en 1929 en la revistaAmauta. Ambientado en la sierra peruana, narra la vida íntima del administrador de una hacienda que, tras casarse por conveniencia con una joven emparentada con su patrón, vive obsesionado con la idea de engendrar un hijo varón para obtener la recompensa en dinero que este le ha prometido.A través de escenas y diálogos cargados de resignación y esperanza, Vallejo construye un retrato descarnado donde las relaciones de poder, el arribismo y la ambición son los protagonistas.

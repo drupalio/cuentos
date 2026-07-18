@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isabel-allende-si-me-tocaras-el-corazon/23696/
 
+
+**Imagen:** 0134-si-me-tocaras-el-corazón.webp
 ---
 
 Sinopsis: «Si me tocaras el corazón» es un cuento de Isabel Allende, publicado en 1989 en el libroCuentos de Eva Luna. Amadeo Peralta, criado en una familia de hombres violentos y autoritarios, aprende desde niño que el poder se impone con astucia y brutalidad. Obligado por su padre a mejorar la reputación familiar, debe casarse con una joven de apellido respetable. Durante un viaje a la provincia, en medio del calor y el tedio de un pueblo olvidado, Amadeo descubre a una adolescente que toca un salterio, encuentro que con el tiempo marcará un giro decisivo en su destino.

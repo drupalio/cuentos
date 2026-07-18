@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roald-dahl-edward-el-conquistador/23844/
 
+
+**Imagen:** 0808-edward-el-conquistador.webp
 ---
 
 Sinopsis: «Edward el Conquistador» (Edward the Conqueror) es un cuento de Roald Dahl, publicado el 31 de octubre de 1953 en la revistaThe New Yorker. La historia comienza con Louisa, una melómana aficionada al piano, que encuentra un gato de pelaje plateado merodeando en su jardín. Al llevarlo a casa, descubre que el animal parece reaccionar con sensibilidad extraordinaria a ciertas piezas musicales, en especial a las composiciones de Liszt. Fascinada por su comportamiento, Louisa empieza a sospechar que el gato encierra un misterio, lo que provoca tensiones con su incrédulo esposo.

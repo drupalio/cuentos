@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-espantos-de-agosto/8359/
 
+
+**Imagen:** 0139-espantos-de-agosto.webp
 ---
 
 Sinopsis: «Espantos de agosto» es un cuento de Gabriel García Márquez, publicado en 1992 en la colecciónDoce cuentos peregrinos. Narra la historia de una familia que visita un castillo renacentista en Italia, propiedad del escritor Miguel Otero Silva. Lo que comienza como un idílico día de verano en la Toscana pronto se entrelaza con las historias del pasado del edificio, donde se conserva intacto el dormitorio de Ludovico, un señor feudal marcado por una tragedia pasional. A medida que avanza la jornada, las viejas leyendas impregnan el ambiente, insinuando que el pasado aún reclama su lugar.

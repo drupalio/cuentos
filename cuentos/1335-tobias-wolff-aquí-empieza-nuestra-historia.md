@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/tobias-wolff-aqui-empieza-nuestra-historia/5238/
 
+
+**Imagen:** 1335-tobias-wolff-aquí-empieza-nuestra-historia.jpg
 ---
 
 La niebla entró temprano otra vez. Este era el décimo día consecutivo. Los camareros y las camareras se reunieron junto al ventanal para verla, y Charlie empujó su carrito a través del comedor para poder mirarla con ellos mientras llenaba los vasos de agua. Las barcas iban entrando adelantándose a la niebla, que se alzaba amenazadora tras ellas como una enorme ola. Las gaviotas planeaban desde el cielo hasta los pilones del muelle, donde se sacudían las plumas, se balanceaban de un lado a otro y miraban furiosas a los turistas que pasaban.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gustavo-adolfo-becquer-la-corza-blanca/16683/
 
+
+**Imagen:** 0558-la-corza-blanca.webp
 ---
 
 Sinopsis:«La corza blanca» es un relato de Gustavo Adolfo Bécquer, publicado en junio de 1863 enLa América. La historia se sitúa en un pequeño pueblo de Aragón durante la Edad Media. Don Dionís, un caballero retirado, se dedica a la caza en compañía de su hija Constanza, célebre por su extraordinaria belleza. En una de sus expediciones, los cazadores se encuentran con Esteban, un pastor que les relata una inquietante historia sobre los ciervos de la región y una misteriosa corza blanca. Aunque el relato despierta incredulidad entre los cazadores, Garcés, un joven montero, decide investigar la verdad.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-primer-amor/5784/
 
+
+**Imagen:** 1023-primer-amor.jpg
 ---
 
 Sinopsis: «Primer amor» es un cuento de Emilia Pardo Bazán, publicado enLa Revista Ibéricaen 1883. Narra la turbulencia y la intensidad de la primera experiencia amorosa de un adolescente. La historia sigue a un joven que descubre en un cajón de su casa la miniatura de una misteriosa y encantadora mujer. Esta sorprendente y bella imagen despierta en él emociones profundas y novedosas, desencadenando una silenciosa y ferviente obsesión. Al explorar estos nuevos sentimientos de adoración y deseo, experimenta un impacto emocional tan intenso que termina afectando gravemente su salud.

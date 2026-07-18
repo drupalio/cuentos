@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alfonso-reyes-la-cena/5173/
 
+
+**Imagen:** 0593-la-cena.webp
 ---
 
 Sinopsis:«La cena» es un cuento de Alfonso Reyes, publicado en 1920 en el libroEl plano oblicuo. Narra la experiencia de un hombre que recibe una misteriosa invitación para cenar con unas desconocidas. Perseguido por la obsesión de llegar antes de que el reloj marque las nueve campanadas, el protagonista corre febrilmente por las calles. Al arribar a la casa, se encuentra con un ambiente inquietante donde dos mujeres vestidas de negro lo reciben con extraña cordialidad, como si lo conocieran de siempre. Durante la velada, la conversación deriva hacia temas cada vez más enigmáticos, mientras la tensión aumenta imperceptiblemente.

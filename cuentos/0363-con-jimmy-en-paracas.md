@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alfredo-bryce-echenique-con-jimmy-en-paracas/128/
 
+
+**Imagen:** 0363-con-jimmy-en-paracas.jpg
 ---
 
 Sinopsis:«Con Jimmy, en Paracas» es un cuento del escritor peruano Alfredo Bryce Echenique, publicado en 1968 en el libroHuerto cerrado. Manolo viaja con su padre a Paracas, donde este debe asistir a una reunión de negocios organizada por la empresa en la que trabaja. El muchacho observa con atención el comportamiento de su padre en el elegante hotel del balneario, mientras ambos intentan desenvolverse con naturalidad en un ambiente que les resulta ajeno. Durante el almuerzo en el comedor del hotel aparece Jimmy, un compañero de colegio de Manolo que personifica un mundo de riqueza y privilegios. Su presencia introduce una nueva tensión en aquel fin de semana junto al mar.

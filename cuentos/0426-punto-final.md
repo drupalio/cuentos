@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/cristina-peri-rossi-punto-final/5461/
 
+
+**Imagen:** 0426-punto-final.webp
 ---
 
 Sinopsis: «Punto final»es un cuento de Cristina Peri Rossi, publicado en 1983 en la colecciónEl museo de los esfuerzos inútiles. Con un estilo poético y evocador, la historia explora la relación de una pareja unida por un objeto simbólico: un «punto final» que ella le entrega como un acto de confianza, destinado a ser usado en el momento adecuado. Durante un tiempo, la felicidad los envuelve y el punto queda relegado al olvido, como un amuleto innecesario. Pero cuando el amor se erosiona, su ausencia se convierte en un peso asfixiante, que los trapa en un vínculo que se desmorona, pero que, sin embargo, no pueden romper.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jack-london-la-peste-escarlata/2745/
 
+
+**Imagen:** 0754-la-peste-escarlata.webp
 ---
 
 Sinopsis: «La peste escarlata» (The Scarlet Plague) es un relato postapocalíptico de ciencia ficción escrito por Jack London, publicado en 1912. Ambientado en el año 2073, narra la historia de Granser, el único superviviente de una devastadora plaga que aniquiló a la mayor parte de la humanidad en 2013. La epidemia, conocida como «la peste escarlata», se propagó rápidamente, causando millones de muertes hasta que quedaron vivas muy pocas personas. Granser, un antiguo profesor universitario, cuenta a sus tres nietos cómo era la vida antes de que la plaga pusiera fin a la civilización. El cuento sirve como una advertencia sobre la arrogancia humana y la posibilidad de que la sociedad pueda colapsar rápidamente ante una catástrofe global.

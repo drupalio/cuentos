@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-hijo-del-vampiro/535/
 
+
+**Imagen:** 0722-el-hijo-del-vampiro.webp
 ---
 
 Sinopsis:«El hijo del vampiro» es un cuento gótico de Julio Cortázar, escrito en 1937 y publicado póstumamente en 1994 dentro de susCuentos completos. Duggu Van es un vampiro milenario que sale de su tumba cada medianoche en busca de sangre. Una noche encuentra dormida en su lecho a Lady Vanda, y algo en ella lo detiene: por primera vez, el deseo de alimentarse se enfrenta al poder de la belleza y a una atracción inexplicable. Lo que sucede entre ambos marcará un cambio con consecuencias terribles.

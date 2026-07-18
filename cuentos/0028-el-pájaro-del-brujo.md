@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermanos-grimm-el-pajaro-del-brujo/28386/
 
+
+**Imagen:** 0028-el-pájaro-del-brujo.webp
 ---
 
 Sinopsis:«El pájaro del brujo» («Fitchers Vogel») es un cuento de los Hermanos Grimm, publicado en 1812 enKinder- und Haus-Märchen. Un hechicero toma la apariencia de un mendigo y recorre las casas pidiendo limosna, pero en realidad busca capturar muchachas hermosas. Un día llega al hogar de un hombre con tres hijas y se lleva a la mayor hasta una espléndida morada en medio de un bosque oscuro, donde le ofrece riquezas y comodidades. Antes de marcharse de viaje, le entrega a la joven las llaves del lugar y un huevo, con una sola orden: no entrar en la habitación prohibida.

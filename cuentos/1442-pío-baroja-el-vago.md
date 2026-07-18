@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/pio-baroja-vago/525/
 
+
+**Imagen:** 1442-pío-baroja-el-vago.jpg
 ---
 
 Apoyado en una farola de la Puerta del Sol, mira entretenido pasar la gente.

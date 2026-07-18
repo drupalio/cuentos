@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stefan-zweig-la-estrella-sobre-el-bosque/13030/
 
+
+**Imagen:** 1070-la-estrella-sobre-el-bosque.jpg
 ---
 
 Sinopsis:«La estrella sobre el bosque» (Der Stern über dem Walde) es un cuento de Stefan Zweig, publicado en 1904 en la colecciónDie Liebe der Erika Ewald. Relata la historia de François, un joven y reservado camarero  que trabaja en un elegante hotel de la Riviera. Durante una cena, queda profundamente cautivado por la presencia de una condesa polaca, y desde ese momento su vida se transforma. En silencio, comienza a cultivar un amor devoto y sin esperanzas, construyendo un universo interior marcado por la entrega, la idealización y la irrealidad de un sentimiento que las diferencias sociales hacen imposible.

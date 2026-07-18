@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-el-pozo-y-el-pendulo/6889/
 
+
+**Imagen:** 0891-el-pozo-y-el-péndulo.webp
 ---
 
 Sinopsis: «El pozo y el péndulo» (The Pit and the Pendulum), cuento de Edgar Allan Poe publicado en 1842, es un escalofriante relato que sigue las angustias de un prisionero durante la Inquisición española. El protagonista, tras ser condenado, despierta en una oscura y siniestra celda, desconociendo el destino que le aguarda. En este lugar claustrofóbico, descubre que la pena que le ha sido asignada fue concebida por una mente retorcida y sádica. Enfrentándose a diversos mecanismos de tortura, el prisionero se ve sometido a un tormento físico y psicológico extremo, donde el terror y la desesperación se convierten en sus únicos compañeros mientras lucha por sobrevivir en este infierno terrenal.

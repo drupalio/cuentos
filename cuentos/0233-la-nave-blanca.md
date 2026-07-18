@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-la-nave-blanca/13034/
 
+
+**Imagen:** 0233-la-nave-blanca.jpg
 ---
 
 Sinopsis: «La nave blanca» (The white ship) es un cuento de Howard Phillips Lovecraft, publicado en 1919 en la revistaThe United Amateur. Narra la experiencia de Basil Elton, un solitario farero de North Point, que cada luna llena contempla la aparición de una misteriosa embarcación que surca las silenciosas aguas. Atraído por su presencia, una noche decide abordarla y emprende un fantástico viaje hacia tierras desconocidas, guiado por un enigmático hombre barbudo. A medida que la nave avanza hacia el sur, se suceden paisajes oníricos y maravillas que evocan sueños olvidados y la promesa de revelaciones más allá de los límites del tiempo y el espacio.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ivan-turguenev-un-sueno/23945/
 
+
+**Imagen:** 0797-un-sueño.webp
 ---
 
 Sinopsis: «Un sueño» (Сон) es un cuento de Iván Turguénev publicado en enero de 1877 en el periódicoNovoe Vremia. Un joven vive solo con su madre, una mujer aún hermosa y melancólica que lo ama con ternura, aunque a veces parece rechazarlo sin motivo. Criado en un ambiente silencioso y solitario, el muchacho se refugia en la lectura, la contemplación y, sobre todo, en los sueños. Uno de ellos, extraño y recurrente, en el que busca a su padre, lo perturba profundamente. Todo se vuelve más inquietante cuando, a plena luz del día, cree ver en la calle a un misterioso hombre que hasta entonces solo habitaba en la sombra de su imaginación.

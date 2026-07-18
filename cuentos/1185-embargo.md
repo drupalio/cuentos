@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-saramago-embargo/5368/
 
+
+**Imagen:** 1185-embargo.jpg
 ---
 
 «Embargo», es un cuento de José Saramago que narra la angustiosa experiencia de un hombre atrapado al interior de su automóvil. La historia comienza con la cotidianidad de la vida del protagonista, quien experimenta una mañana típica antes de dirigirse al trabajo. Sin embargo, lo que parece ser un día normal se transforma en una experiencia kafkiana cuando su coche comienza a comportarse de manera extraña, demostrando tener voluntad propia. A medida que el hombre intenta llevar a cabo sus tareas diarias, se encuentra cada vez más atrapado, tanto física como psicológicamente, en su vehículo. Un relato de tintes fantásticos y surrealistas donde Saramago hace gala de todo su oficio para atrapar al lector en una historia claustrofóbica.

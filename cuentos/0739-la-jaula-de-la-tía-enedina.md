@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/adela-fernandez-la-jaula-de-la-tia-enedina/24381/
 
+
+**Imagen:** 0739-la-jaula-de-la-tía-enedina.webp
 ---
 
 Sinopsis: «La jaula de la tía Enedina» es un cuento de la escritora mexicana Adela Fernández, publicado en 1986 en el libroDuermevelas. La historia sigue a un joven marginado por su familia y rechazado por su entorno, cuya tarea es llevar comida a su tía Enedina, considerada loca y confinada desde hace años en un cuarto oscuro al fondo del patio. La mujer, marcada por una antigua tragedia amorosa, vive obsesionada con la idea de tener un canario. Con el paso del tiempo, entre ambos se va forjando un vínculo extraño, ambiguo y cada vez más perturbador.

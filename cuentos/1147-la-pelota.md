@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/felisberto-hernandez-la-pelota/12041/
 
+
+**Imagen:** 1147-la-pelota.jpg
 ---
 
 Sinopsis: En «La pelota«, cuento de Felisberto Hernández publicado en 1945, un niño de ocho años que pasa tiempo con su abuela en una casa humilde, desea intensamente una pelota colorida vista en un almacén. Ante la imposibilidad de su abuela para comprarla, ella le confecciona una pelota de trapo, lo que en principio frustra y enfada al niño. A través del juego con la pelota, el niño va descubriendo una serie de emociones que oscilan entre el fastidio, la curiosidad, el aburrimiento y el amor a su abuela.

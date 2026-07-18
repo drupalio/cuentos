@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-en-fiestas/6507/
 
+
+**Imagen:** 0575-en-fiestas.webp
 ---
 
 Sinopsis:«En fiestas» (На святках) es un cuento de Antón Chéjov publicado en laGaceta de San Petersburgoen enero de 1900. La historia sigue a una pareja de campesinos analfabetos que, angustiados por años sin recibir noticias de su hija, acuden a Egor, el hermano del tabernero, para redactar una carta para saludarla por Navidad. Sin embargo, mientras los ancianos intentan plasmar en palabras el cúmulo de emociones que los invade, Egor, con su actitud indiferente y pragmática, parece tener ideas muy distintas acerca de lo que una carta debe contener.

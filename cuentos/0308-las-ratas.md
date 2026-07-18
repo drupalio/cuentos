@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guadalupe-duenas-las-ratas/21131/
 
+
+**Imagen:** 0308-las-ratas.webp
 ---
 
 Sinopsis:«Las ratas» es un cuento de la escritora mexicana Guadalupe Dueñas, publicado en 1958 en el libroTiene la noche un árbol. Una mujer entabla una breve conversación con un bolero, un hombre inquietante de aspecto enfermizo. Mientras lustra sus zapatos, le narra un relato perturbador sobre su antiguo trabajo como velador en un cementerio. A través de sus palabras, emerge un mundo subterráneo y macabro, donde las ratas reinan sobre los muertos.

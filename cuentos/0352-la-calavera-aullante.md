@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/f-marion-crawford-la-calavera-aullante/20918/
 
+
+**Imagen:** 0352-la-calavera-aullante.webp
 ---
 
 Sinopsis: «La calavera aullante» (The Screaming Skull) es un cuento del escritor estadounidense F. Marion Crawford, publicado el 11 de julio de 1908 en la revistaCollier’s. Narrado en un tono íntimo y confesional, relata la inquietante experiencia de un viejo marinero que hereda una antigua casa marcada por un pasado oscuro. Desde su llegada, afirma oír, noche tras noche, los alaridos de una calavera guardada en una sombrerera, atribuyéndolos a un extraño vínculo con una tragedia del pasado. Más que una historia de fantasmas, el cuento explora el poder persistente de la culpa, la sugestión y los secretos que se niegan a permanecer enterrados.

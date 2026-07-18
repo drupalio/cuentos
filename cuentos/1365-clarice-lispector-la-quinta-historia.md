@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/clarice-lispector-la-quinta-historia/3921/
 
+
+**Imagen:** 1365-clarice-lispector-la-quinta-historia.jpg
 ---
 
 Esta historia podría llamarse «Las estatuas». Otro nombre posible es «El asesinato». Y también «Cómo matar cucarachas». Entonces haré por lo menos tres historias verdaderas, porque ninguna de ellas desmiente a la otra. Aunque una sola serían mil y una, si me dieran mil y una noches.

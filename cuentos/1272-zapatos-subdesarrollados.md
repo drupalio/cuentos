@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/manuel-rojas-zapatos-subdesarrollados/6829/
 
+
+**Imagen:** 1272-zapatos-subdesarrollados.jpg
 ---
 
 —¿Su nombre?

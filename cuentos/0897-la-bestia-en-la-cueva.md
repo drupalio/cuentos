@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-la-bestia-en-la-cueva/14989/
 
+
+**Imagen:** 0897-la-bestia-en-la-cueva.jpg
 ---
 
 Sinopsis: «La bestia en la cueva» (The Beast in the Cave) es uno de los primeros relatos de terror H. P. Lovecraft, escrito en la primavera de 1904, cuando solo tenía 15 años de edad, y luego publicado enThe Vagranten junio de 1918. La historia sigue a un hombre que durante un paseo se pierde en las profundidades de una caverna. Mientras vaga desesperado por los oscuros pasajes, su antorcha se apaga y se encuentra completamente solo y sin esperanza de rescate. Cuando el hombre parece resignado a su destino, percibe en medio de la oscuridad la presencia de una criatura desconocida que parece seguirlo.

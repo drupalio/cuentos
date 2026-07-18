@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-vampiro/5459/
 
+
+**Imagen:** 1206-horacio-quiroga-el-vampiro-primera-versión.jpg
 ---
 
 —Sí —dijo el abogado Rhode—. Yo tuve esa causa. Es un caso, bastante raro por aquí, de vampirismo. Rogelio Castelar, un hombre hasta entonces normal fuera de algunas fantasías, fue sorprendido una noche en el cementerio arrastrando el cadáver recién enterrado de una mujer. El individuo tenía las manos destrozadas porque había removido un metro cúbico de tierra con las uñas. En el borde de la fosa yacían los restos del ataúd, recién quemado. Y como complemento macabro, un gato, sin duda forastero, yacía por allí con los riñones rotos. Como ven, nada faltaba al cuadro.

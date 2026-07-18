@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gustavo-adolfo-becquer-el-cristo-de-la-calavera/12886/
 
+
+**Imagen:** 1107-el-cristo-de-la-calavera.jpg
 ---
 
 Sinopsis: «El Cristo de la Calavera«, es un relato de Gustavo Adolfo Bécquer publicado en julio de 1862 en el diarioEl Contemporáneo. Narra la rivalidad entre Alonso de Carrillo y Lope de Sandoval, ambos enamorados de doña Inés de Tordesillas, en la Toledo del siglo XV. Durante un sarao, los dos hombres se ven envueltos en un incidente debido a un guante que deja caer doña Inés. La disputa se vuelve desafío y el desafío promesa de duelo. Alonso y Lope se dan cita tarde en la noche para resolver sus diferencias, y escogen como lugar de combate el único sitio que encuentran iluminado a esa hora: junto al Cristo de la Calavera. Cuando los hombres, antaño amigos, se disponen a iniciar su enfrentamiento, un hecho sobrenatural los interrumpe.

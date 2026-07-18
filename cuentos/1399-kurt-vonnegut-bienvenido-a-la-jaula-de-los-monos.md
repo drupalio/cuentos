@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/kurt-vonnegut-bienvenido-a-la-jaula-de-los-monos/2424/
 
+
+**Imagen:** 1399-kurt-vonnegut-bienvenido-a-la-jaula-de-los-monos.jpg
 ---
 
 Peter Crocker, comisario del Condado de Barnstable, que era la totalidad del Cabo Cod, entró en el Salón de Suicidio Ético Federal de Hyannis una tarde de mayo… y les dijo a las dos Anfitrionas de seis pies de altura que allí estaban que no debían alarmarse, pero que se presumía que un notorio cabezahueca llamado Billy el Poeta se encaminaba hacia el Cabo.

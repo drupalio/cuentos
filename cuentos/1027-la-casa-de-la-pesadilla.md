@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edward-lucas-white-la-casa-de-la-pesadilla/21861/
 
+
+**Imagen:** 1027-la-casa-de-la-pesadilla.webp
 ---
 
 Sinopsis:«La casa de la pesadilla» (The House of the Nightmare) es un cuento de Edward Lucas White, publicado en septiembre de 1906 enSmith’s Magazine. Un viajero solitario, tras sufrir un accidente en una remota zona rural, se ve obligado a pasar la noche en una vieja y aislada casa de piedra. El sombrío lugar le es ofrecido como refugio por un extraño muchacho de aspecto rudo y comportamiento inquietante. A medida que cae la noche, el viajero comienza a percibir señales de una presencia invisible, mientras el ambiente se vuelve cada vez más opresivo y se llena de oscuros presagios.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/sheridan-le-fanu-carmilla/13556/
 
+
+**Imagen:** 1016-carmilla.jpg
 ---
 
 Sinopsis: «Carmilla«, cuento escrito por Sheridan Le Fanu en 1872, es un relato gótico situado en el romántico y misterioso paisaje de Estiria. Cuenta la historia de Laura, una joven que vive con su padre en un aislado castillo, cuya tranquila existencia se ve alterada por la llegada de Carmilla, una enigmática y hermosa joven que se convierte en su compañera. A medida que la relación entre ambas se profundiza y la salud de Laura se deteriora, el peculiar comportamiento de Carmilla comienza a despertar sospechas sobre su verdadera naturaleza e intenciones.

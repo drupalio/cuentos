@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-casi-humano/27570/
 
+
+**Imagen:** 0205-casi-humano.webp
 ---
 
 Sinopsis:«Casi humano» es un cuento del escritor estadounidenseRobert Bloch, publicado en 1943 en la revistaFantastic Adventures. Duke, un criminal calculador y despiadado, irrumpe en la casa del profesor Blasserman, un anciano científico europeo refugiado en Estados Unidos tras huir de la guerra. Bajo amenaza, Duke obliga al profesor a conducirlo hasta un cuarto subterráneo donde guarda celosamente su creación más secreta: Junior, un robot con un cerebro artificial capaz de hablar y aprender, pero con la ingenuidad de un niño. Fascinado por las posibilidades del invento, Duke concibe un plan siniestro para aprovecharse de la mente moldeable de la criatura metálica.

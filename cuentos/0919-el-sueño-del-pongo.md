@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-maria-arguedas-sueno-del-pongo/1062/
 
+
+**Imagen:** 0919-el-sueño-del-pongo.webp
 ---
 
 Sinopsis: «El sueño del pongo«, cuento popular recopilado por José María Arguedas, narra la vida de un pongo, un sirviente indígena en una hacienda, que sufre constantes humillaciones y abusos por parte de su patrón. A pesar de su estatus humilde y su apariencia frágil, el pongo realiza sus tareas diligentemente, aunque siempre rodeado de un aura de tristeza y resignación. Un día, el pongo le relata a su patrón un sueño en el que ambos aparecen muertos y son juzgados de una manera muy peculiar por San Francisco, revelando una profunda reflexión sobre la justicia y la dignidad humana.

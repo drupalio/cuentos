@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roberto-arlt-jorobadito/896/
 
+
+**Imagen:** 1435-roberto-arlt-el-jorobadito.jpg
 ---
 
 LOS DIVERSOS y exagerados rumores desparramados con motivo de la conducta que observé en compañía de Rigoletto, el jorobadito, en la casa de la señora X, apartaron en su tiempo a mucha gente de mi lado.

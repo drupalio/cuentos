@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bram-stoker-el-secreto-del-oro-que-crece/16241/
 
+
+**Imagen:** 0309-el-secreto-del-oro-que-crece.webp
 ---
 
 Sinopsis: «El secreto del oro que crece» (The Secret of the Growing Gold) es un perturbador cuento gótico de Bram Stoker, publicado el 23 de enero de 1892 en la revistaBlack and White. La historia se desarrolla en Brent’s Rock, una antigua mansión rural donde la llegada de Margaret Delandre escandaliza a la comunidad. Tras romper con su familia, Margaret se instala con el aristócrata Geoffrey Brent, en una convivencia que muchos consideran impropia. La relación entre ambos es tempestuosa y violenta. En un ambiente cargado de resentimientos y pasiones desbordadas, se gesta una intriga llena de secretos, en la que el pasado amenaza con volver a la superficie de formas insospechadas.

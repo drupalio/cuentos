@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-enoch/14121/
 
+
+**Imagen:** 0716-enoch.jpg
 ---
 
 Sinopsis: «Enoch» es un cuento de Robert Bloch publicado en la revistaWeird Tales en septiembre de 1946. Narra la historia de Seth, un hombre que vive en una cabaña solitaria junto a un pantano, atormentado por una entidad invisible llamada Enoch. Este ser diminuto y siniestro habita sobre su cabeza y le susurra órdenes que Seth no puede ignorar. Enoch le obliga a cometer terribles actos para poder seguir existiendo. A pesar de los esfuerzos de Seth por resistirse, la influencia de Enoch es implacable. La situación se complica cuando, un día, el sheriff del pueblo llega a la puerta de Seth mientras Enoch duerme, poniendo en riesgo los oscuros secretos que ambos comparten.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-puritano/25728/
 
+
+**Imagen:** 0519-el-puritano.webp
 ---
 
 Sinopsis:«El puritano» es un cuento de Horacio Quiroga, publicado el 11 de julio de 1926 enLa Nacióny recogido luego en la colecciónMás allá(1935). En un estudio cinematográfico de Hollywood, los actores muertos deambulan como espectros fotográficos. Entre ellos aparece una célebre actriz que, a diferencia de los demás, continúa sufriendo las pasiones de sus personajes durante las proyecciones. Su tormento se intensifica al saber que Dougald Mac Namara, el hombre que amó en vida, asiste cada noche al cine para verla en la pantalla, mientras ella permanece atrapada como un fantasma cinematográfico, incapaz de alcanzarlo.

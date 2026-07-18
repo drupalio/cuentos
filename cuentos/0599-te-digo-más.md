@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roberto-fontanarrosa-te-digo-mas/17470/
 
+
+**Imagen:** 0599-te-digo-más.webp
 ---
 
 Sinopsis:«Te digo más…» es un cuento de Roberto Fontanarrosa, publicado en 2001 en la colecciónTe digo más… y otros cuentos. Narra la historia del Gordo Luis, un hombre bonachón que, en plena crisis económica argentina, acepta disfrazarse de Papá Noel para promocionar un negocio de electrodomésticos en Rosario. Bajo el sol infernal del verano, debe soportar un pesado traje de felpa mientras reparte caramelos en la calle. El relato ironiza sobre el consumismo y la imposición de tradiciones extranjeras, mientras en medio del caos emerge la absurda y entrañable figura del Gordo, atrapado entre el calor y la desesperación.

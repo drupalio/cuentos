@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roberto-bolano-el-gaucho-insufrible/135/
 
+
+**Imagen:** 0294-el-gaucho-insufrible.webp
 ---
 
 Sinopsis: «El gaucho insufrible» es un cuento de Roberto Bolaño, publicado en 2003 en el libro homónimo. Héctor Pereda, abogado jubilado y viudo, decide dejar Buenos Aires tras el colapso económico del país y regresar a su vieja estancia en la pampa. Lejos del confort urbano, adopta una vida austera, marcada por el aislamiento y una idea nostálgica de la tradición. Mientras el país parece desmoronarse, Pereda se aferra a un modo de vida que ya no existe, buscando en el campo una forma de dignidad que la ciudad le ha negado.

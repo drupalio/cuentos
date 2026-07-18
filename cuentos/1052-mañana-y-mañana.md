@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-manana-y-manana/21709/
 
+
+**Imagen:** 1052-mañana-y-mañana.webp
 ---
 
 Sinopsis:«Mañana y mañana» (Tomorrow and Tomorrow) es un cuento de Ray Bradbury, publicado en mayo de 1947 en la revistaFantastic Adventures. La historia comienza en Los Ángeles, en 1955, donde Steve Temple, un joven escritor sin trabajo ni esperanzas, regresa a su apartamento y descubre una extraña máquina de escribir que no le pertenece. Brillante, metálica y viva, la máquina comienza a escribir por sí sola, estableciendo contacto con una mujer del año 2442. Este inesperado vínculo entre pasado y futuro abre un intenso diálogo entre dos desconocidos separados por quinientos años, cuyas palabras comienzan a alterar la realidad que los rodea.

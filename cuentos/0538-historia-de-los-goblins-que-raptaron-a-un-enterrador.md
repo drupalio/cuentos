@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/charles-dickens-historia-de-los-goblins-que-raptaron-a-un-enterrador/12344/
 
+
+**Imagen:** 0538-historia-de-los-goblins-que-raptaron-a-un-enterrador.jpg
 ---
 
 Sinopsis:«Historia de los goblins que raptaron a un enterrador» (The Story of the Goblins who stole a Sexton) es un cuento de Charles Dickens publicado enThe Pickwick Papersen 1837. Narra la historia de Gabriel Grub, un enterrador amargado y hosco que trabaja en un cementerio la víspera de Navidad. Gabriel desprecia la alegría navideña y observa con rencor las celebraciones de los vecinos. Mientras cava una tumba al anochecer, se encuentra con un extraño goblin sentado sobre una lápida que lo observa con expresión burlona. Este encuentro marca el inicio de una experiencia extraordinaria que transformará para siempre la perspectiva del malhumorado sepulturero sobre la vida y la felicidad humana.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/leopoldo-lugones-la-lluvia-de-fuego/2834/
 
+
+**Imagen:** 0202-la-lluvia-de-fuego.webp
 ---
 
 Sinopsis:«La lluvia de fuego» es un cuento de Leopoldo Lugones, publicado en 1906 en la colecciónLas fuerzas extrañas. Narrado desde la perspectiva de un habitante de la antigua Gomorra, el relato describe la misteriosa destrucción de la ciudad. En un día aparentemente común, mientras la población se abandona al lujo y al placer, comienza a caer desde el cielo una lluvia inexplicable de chispas de cobre incandescente. Lo que al principio parece una rareza atmosférica pronto se convierte en el anuncio de una catástrofe que sumerge a la ciudad en el desconcierto y el espanto.

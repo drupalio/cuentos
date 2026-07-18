@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/amparo-davila-musica-concreta/13830/
 
+
+**Imagen:** 0999-música-concreta.jpg
 ---
 
 Sinopsis:«Música concreta» es un cuento de Amparo Dávila, publicado en 1961. La historia comienza cuando Sergio, un hombre atrapado en la rutina laboral, se topa por casualidad con Marcela, una amiga de juventud a quien no ha visto en mucho tiempo. Marcela luce abatida y desmejorada, y al intentar reconectar con ella, Sergio descubre que atraviesa una profunda crisis personal marcada por el deterioro de su matrimonio. Lo que en un principio parece un drama íntimo y cotidiano adquiere pronto un matiz inquietante, cuando Marcela empieza a relatar una serie de sucesos extraños, que desafían toda lógica.

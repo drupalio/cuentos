@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/rubem-fonseca-la-fuerza-humana/2208/
 
+
+**Imagen:** 1410-rubem-fonseca-la-fuerza-humana.jpg
 ---
 
 Quería seguir de frente pero no podía. Me quedaba parado en medio de aquel montón de negros: unos balanceando el pie o la cabeza, otros moviendo los brazos; pero algunos, como yo, duros como un palo, fingiendo que no estábamos allí, fingiendo que miraban un disco en la vitrina, avergonzados. Es gracioso, que un sujeto como yo sienta vergüenza de quedarse oyendo la música en la puerta de la tienda de discos. Si suena alto es para que las personas lo escuchen; y si no les gustara que la gente se quedara allí oyendo, bastaba con desconectar y listo: todo el mundo se alejaría en seguida. Además sólo ponen música buena, de la que tienes que ponerte a oír y que hace que las mujeres buenas caminen diferente, como caballo del ejército enfrente de la banda.

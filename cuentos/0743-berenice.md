@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-berenice/5189/
 
+
+**Imagen:** 0743-berenice.webp
 ---
 
 Sinopsis: «Berenice» es un cuento de Edgar Allan Poe, publicado en 1835, que sumerge al lector en un mundo de obsesión y misterio. La historia se centra en Egaeus, un joven de una familia noble, conocido por su introspección y melancolía. Egaeus se encuentra profundamente perturbado por la enfermedad de su prima y prometida, Berenice, quien sufre una transformación drástica debido a una misteriosa dolencia. A medida que Berenice se ve cada vez más consumida por su enfermedad, Egaeus desarrolla una obsesión inquietante y singular que domina su pensamiento y altera su percepción de la realidad.

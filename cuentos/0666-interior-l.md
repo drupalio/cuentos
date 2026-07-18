@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-interior-l/825/
 
+
+**Imagen:** 0666-interior-l.jpg
 ---
 
 Sinopsis:«Interior «L»»es un cuento del escritor peruano Julio Ramón Ribeyro, publicado en 1955 dentro del libroLos gallinazos sin plumas. Narra la historia de un colchonero que, tras una ardua jornada de trabajo, regresa exhausto a su casa. En la humilde habitación lo espera su hija adolescente, Paulina, que lo atiende mientras el hombre rememora una serie de situaciones difíciles que han marcado recientemente su hogar. El relato profundiza en el agotamiento físico y emocional del colchonero y en su compleja relación con su hija, ofreciendo un crudo retrato de la vida familiar en un entorno de pobreza y desamparo.

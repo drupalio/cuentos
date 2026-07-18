@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edmondo-de-amicis-el-pequeno-escribiente-florentino/26210/
 
+
+**Imagen:** 0429-el-pequeño-escribiente-florentino.webp
 ---
 
 Sinopsis:«El pequeño escribiente florentino» (Il piccolo scrivano fiorentino) es un cuento de Edmondo De Amicis, publicado en 1886 en el libroCuore. Narra la historia de Julio, un niño de doce años, hijo de un empleado de ferrocarriles que, agobiado por las estrecheces económicas, realiza trabajos nocturnos como copista. Preocupado por el cansancio y la salud de su padre, el muchacho decide ayudarlo sin que se entere, levantándose cada noche para adelantar la labor y aumentar las ganancias. Mientras el padre ignora el sacrificio y exige mayor dedicación escolar, Julio soporta el agotamiento y las reprensiones, decidido a aliviar la carga familiar sin revelar su secreto.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/miguel-de-unamuno-ramon-nonnato-suicida/4187/
 
+
+**Imagen:** 0222-miguel-de-unamuno-ramón-nonnato-suicida.jpg
 ---
 
 Cuando harto de llamar a la puerta de su cuarto entró, forzándola, el criado, encontróse a su amo lívido y frío en la cama, con un hilo de sangre que le destilaba de la sien derecha, y junto a él, aquel retrato de mujer que traía constantemente consigo, casi como un amuleto, y en cuya contemplación se pasaba tantas horas.

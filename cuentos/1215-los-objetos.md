@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/silvina-ocampo-los-objetos/1050/
 
+
+**Imagen:** 1215-los-objetos.jpg
 ---
 
 En «Los objetos» Silvina Ocampo narra la historia de Camila Ersky, una mujer que, a lo largo de su vida, pierde diversos objetos valiosos. Al principio, Camila muestra indiferencia ante la desaparición de sus posesiones, sin embargo, su actitud cambia cuando, inesperadamente, empieza a recuperar estos objetos perdidos. Cada cosa que reaparece trae consigo recuerdos y emociones olvidadas. Lo que inicialmente es una alegría se convierte en obsesión y miedo, ya que los objetos comienzan a aparecer en lugares inesperados y en momentos inoportunos.

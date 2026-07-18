@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stefan-zweig-suenos-olvidados/24106/
 
+
+**Imagen:** 0773-sueños-olvidados.webp
 ---
 
 Sinopsis: «Sueños olvidados» (Vergessene Träume) es un cuento temprano de Stefan Zweig, publicado el 22 de julio de 1900 en laBerliner Illustrirte Zeitung, cuando el autor tenía apenas 18 años. En una elegante villa costera, entre jardines sombreados y el rumor de las olas, una mujer se abandona al sosiego matinal y al placer de la lectura. La irrupción de un criado que anuncia la llegada de un visitante inesperado interrumpe aquella calma. El encuentro con un hombre al que no veía desde hace mucho pronto despierta memorias de juventud y sentimientos largamente olvidados.

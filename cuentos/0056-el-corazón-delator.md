@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-el-corazon-delator/168/
 
+
+**Imagen:** 0056-el-corazón-delator.jpg
 ---
 
 Sinopsis: «El corazón delator» (The Tell-Tale Heart) es un cuento de Edgar Allan Poe, publicado en 1843 en la revistaThe Pioneer. Narrado en primera persona, un hombre confiesa su obsesión con un anciano con quien convive. Cada noche lo acecha en su habitación, espiándolo mientras duerme, hasta que la paranoia y el horror lo consumen por completo y comienza a planear su muerte. El relato avanza con un ritmo tenso, sumergiendo al lector en la mente perturbada del protagonista, que se debate entre la razón, la locura y la culpa.

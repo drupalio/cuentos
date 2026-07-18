@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/virginia-woolf-el-cuarteto-de-cuerdas/20379/
 
+
+**Imagen:** 0269-el-cuarteto-de-cuerdas.webp
 ---
 
 Sinopsis: «El cuarteto de cuerdas» (The String Quartet) es un cuento de Virginia Woolf, publicado en 1921 en la colecciónMonday or Tuesday. La narración captura la experiencia sensorial de un concierto de música de cámara a través de la mente de una espectadora inmersa en un flujo de pensamientos y recuerdos. Mientras observa a los músicos y escucha la melodía, su conciencia se desliza entre impresiones fugaces de la audiencia, diálogos entre desconocidos y escenas evocadas por la música. La historia, fragmentada y lírica, explora la relación entre el arte y la percepción, dejando que la armonía del cuarteto se entrelace con la corriente de la memoria y la imaginación.

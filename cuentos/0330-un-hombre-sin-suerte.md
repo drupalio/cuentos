@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/samanta-schweblin-un-hombre-sin-suerte/14670/
 
+
+**Imagen:** 0330-un-hombre-sin-suerte.jpg
 ---
 
 Sinopsis: «Un hombre sin suerte» es un cuento de la escritora argentina Samanta Schweblin publicado el 8 de febrero de 2013 enPágina/12y posteriormente incluido en el libroSiete casas vacías(2015). Narra un extraño episodio en la vida de una niña de ocho años que, tras un accidente doméstico familiar, se queda sola en la sala de espera de un hospital. Allí conoce a un hombre desconocido que entabla conversación con ella. Lo que comienza como un gesto amable y trivial adquiere progresivamente un tono inquietante, lleno de ambigüedades y tensiones que resaltan la vulnerabilidad y la inocencia de la niña en un mundo impredeciblemente peligroso.

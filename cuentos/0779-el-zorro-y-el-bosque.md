@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-el-zorro-y-el-bosque/5424/
 
+
+**Imagen:** 0779-el-zorro-y-el-bosque.webp
 ---
 
 Sinopsis: «El zorro y el bosque» («The Fox and the Forest») es un relato de ciencia ficción escrito porRay Bradbury, publicado en 1950 en la revistaCollier’sy posteriormente incluido en la colecciónEl hombre ilustrado(The Illustrated Man) en 1951. La historia sigue a William y Susan Travis, una pareja que, a través de una agencia de viajes en el tiempo, escapa de un futuro distópico en el año 2155 y se refugia en el México de 1938. Mientras intentan adaptarse y disfrutar de su nueva vida en un entorno más pacífico, su tranquilidad se ve amenazada por Simms, un agente enviado desde el futuro con la misión de devolverlos a su época, donde William desempeña un papel crucial en el esfuerzo bélico. Desesperados por evitar regresar a un futuro marcado por la desolación y la guerra, la pareja hará todo lo posible por evadir a su perseguidor y conservar su libertad.

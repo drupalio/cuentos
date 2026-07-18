@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-cinco-anos-de-vida/5602/
 
+
+**Imagen:** 0676-cinco-años-de-vida.webp
 ---
 
 Sinopsis:«Cinco años de vida» es un cuento de Mario Benedetti, publicado en 1968 dentro del libroLa muerte y otras sorpresas. Una noche cualquiera en París, Raúl Morales, escritor uruguayo, abandona una reunión de amigos para alcanzar el último metro. En el tren conoce a Mirta, una joven pintora argentina, con quien queda atrapado en una estación cerrada. Lo que al principio parece un simple contratiempo nocturno se transforma, poco a poco, en una oportunidad inesperada de cercanía y complicidad entre dos desconocidos marcados por la nostalgia, el desarraigo y el deseo de empezar de nuevo.

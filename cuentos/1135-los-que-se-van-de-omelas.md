@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ursula-k-le-guin-los-que-se-van-de-omelas/2421/
 
+
+**Imagen:** 1135-los-que-se-van-de-omelas.webp
 ---
 
 Sinopsis: «Los que se van de Omelas» (The Ones Who Walk Away from Omelas) es un cuento breve de Ursula K. Le Guin publicado en 1973. La historia nos transporta a una ciudad utópica, donde la felicidad de todos los habitantes depende de un oscuro y terrible secreto. A través de una prosa envolvente y provocadora, Le Guin nos invita a cuestionar la moralidad y el precio de la felicidad colectiva. En esta ciudad de ensueño, algunos eligen quedarse, pero otros, conmovidos por la injusticia, deciden abandonar Omelas para siempre. Este relato desafía al lector a reflexionar sobre el sacrificio y la ética en la búsqueda de una sociedad ideal.

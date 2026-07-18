@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/sheridan-le-fanu-el-pacto-de-sir-dominick/14184/
 
+
+**Imagen:** 0060-el-pacto-de-sir-dominick.jpg
 ---
 
 Sinopsis:«El pacto de Sir Dominick» es un cuento de Sheridan Le Fanu, publicado el 6 de julio de 1872 enAll the Year Round. Cautivado por su atmósfera melancólica, un viajero explora las ruinas de la mansión Dunoran. Allí, un anciano jorobado le cuenta la trágica historia de Sir Dominick Sarsfield, el último señor de Dunoran. Desesperado por sus deudas, Sir Dominick hace un pacto con un misterioso caballero en el bosque de Murroa, obteniendo riqueza inmediata a cambio de una inquietante promesa. A medida que el plazo para pagar la deuda se acerca, Sir Dominick, cada vez más angustiado, busca la ayuda del obispo. Este le proporciona una estrategia para librarse de su terrible destino, pero la incertidumbre y el miedo persisten mientras el plazo final se aproxima.

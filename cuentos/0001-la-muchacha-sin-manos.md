@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermanos-grimm-la-muchacha-sin-manos/28519/
 
+
+**Imagen:** 0001-la-muchacha-sin-manos.webp
 ---
 
 Sinopsis:«La muchacha sin manos» (Das Mädchen ohne Hände) es un cuento de los hermanos Grimm, publicado en 1812 en el primer volumen deKinder- und Hausmärchen. Un molinero empobrecido acepta la propuesta de un desconocido que promete hacerlo rico a cambio de aquello que se encuentra detrás de su molino. Convencido de haber entregado solo un manzano, descubre demasiado tarde que el visitante era el diablo y que, sin saberlo, le ha prometido a su propia hija. Cuando llega el momento de cumplir el pacto, la pureza de la joven impide que el Maligno se acerque a ella. Furioso, este exige al molinero un sacrificio terrible que cambiará para siempre la vida de la muchacha.

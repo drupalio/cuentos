@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/agatha-christie-la-senal-en-el-cielo/2844/
 
+
+**Imagen:** 1136-la-señal-en-el-cielo.jpg
 ---
 
 Sinopsis: «La señal en el cielo» (The Sign in the Sky) es un relato de Agatha Christie seleccionado por Jorge Luis Borges y Adolfo Bioy Casares para su antología «Los mejores cuentos policiales» (1962). La trama gira en torno a Mr. Satterthwaite, quien tras presenciar un juicio en el que Martin Wylde es condenado por el asesinato de Vivian Barnaby, alberga dudas sobre la culpabilidad del acusado. A pesar de las contundentes pruebas, la personalidad y el carácter de Wylde hacen sospechar a Satterthwaite. En una cena casual en un restaurante, se encuentra con Harley Quin, un personaje enigmático cuya visión sobre los hechos inspira a Satterthwaite a investigar más a fondo y buscar pruebas que puedan librar a Wylde del verdugo.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/j-g-ballard-el-leonardo-perdido/16318/
 
+
+**Imagen:** 0341-el-leonardo-perdido.webp
 ---
 
 Sinopsis: «El Leonardo perdido» (The Lost Leonardo) es un relato de intriga y suspense de J. G. Ballard, publicado en 1964 enThe Magazine of Fantasy and Science Fiction. La invaluable pintura La Crucifixión, de Leonardo da Vinci, desaparece misteriosamente del Louvre, lo que conmociona al mundo del arte y al público en general. El director de la prestigiosa casa de subastas Northeby viaja a París para unirse a Georg de Stael en la investigación del insólito robo. Juntos se adentran en un laberinto de pistas y enigmas que desafían la lógica y ponen a prueba sus conocimientos sobre arte e historia. A medida que exploran extrañas conexiones entre obras maestras y antiguos misterios, se dan cuenta de que este caso es mucho más complejo de lo que parecía en un principio.

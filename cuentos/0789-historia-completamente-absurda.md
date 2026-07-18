@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/giovanni-papini-historia-completamente-absurda/2288/
 
+
+**Imagen:** 0789-historia-completamente-absurda.webp
 ---
 
 Sinopsis: «Historia completamente absurda» (Storia completamente assurda) es un relato de Giovanni Papini, publicado en diciembre de 1906 enLa Riviera Ligure. La trama sigue a un hombre que, mientras escribe sus memorias, recibe la inesperada visita de un extraño. Este le plantea un desafío peculiar: escuchar la lectura de su único libro y dar una opinión definitiva sobre él. Si el relato le gusta, deberá ayudarlo a alcanzar la fama en poco tiempo; si no, el extraño se suicidará, ya que su vida carecería de sentido. A medida que el protagonista le oye leer, descubre verdades perturbadoras que trastornarán por completo su tranquilidad.

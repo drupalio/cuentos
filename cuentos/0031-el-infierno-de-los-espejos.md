@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edogawa-rampo-el-infierno-de-los-espejos/22931/
 
+
+**Imagen:** 0031-el-infierno-de-los-espejos.webp
 ---
 
 Sinopsis: «El infierno de los espejos» (Kagami Jigoku) es un cuento del escritor japonés Edogawa Rampo, publicado en octubre de 1926 en la revistaTaishu Bungei. La historia está narrada por un hombre que recuerda la extraña amistad que mantuvo con Kan Tanuma, un joven excéntrico obsesionado desde niño con los espejos, las lentes y los instrumentos ópticos. Fascinado por el mundo de las imágenes reflejadas y amplificadas, Tanuma se aleja de toda vida social para entregarse por completo a su pasión, que, lejos de ser un simple pasatiempo, se transforma en una fuerza absorbente que lo arrastra hacia laberintos más allá de toda comprensión racional.

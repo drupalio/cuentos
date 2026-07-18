@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-carlos-onetti-el-cerdito/5322/
 
+
+**Imagen:** 0865-el-cerdito.webp
 ---
 
 Sinopsis:«El cerdito»es un cuento corto de Juan Carlos Onetti publicado en 1982 en laRevista de Bellas Artes. Narra la historia de una anciana solitaria, siempre vestida de negro, que encuentra consuelo en la compañía de unos niños sucios y hambrientos que acuden cada tarde a su casa en buscando refugio y comida. Para la anciana, cada uno de ellos es un reflejo del nieto que perdió. Un día en que los niños acuden a la habitual cita, en agradecimiento por sus atenciones, dan a la anciana una sorpresa completamente inesperada.

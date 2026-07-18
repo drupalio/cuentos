@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emile-zola-el-paraiso-de-los-gatos/2654/
 
+
+**Imagen:** 0347-el-paraíso-de-los-gatos.jpg
 ---
 
 Sinopsis: «El paraíso de los gatos» (Le paradis des chats) es un cuento del escritor francés Émile Zola publicado en 1874 enNouveaux contes à Ninon. Narra la historia de un gato que experimenta una crisis de identidad. Criado en la comodidad y el lujo de un hogar, donde es mimado con abundante comida y un lugar cálido para dormir, el gato se siente insatisfecho y anhela experimentar la libertad y las aventuras del mundo exterior, idealizando la vida de los gatos callejeros. Sin embargo, pronto descubrirá que en la calle no todo es como pensaba.

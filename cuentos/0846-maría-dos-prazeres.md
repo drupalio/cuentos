@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-maria-dos-prazeres/15658/
 
+
+**Imagen:** 0846-maría-dos-prazeres.webp
 ---
 
 Sinopsis: «María dos Prazeres» es un cautivador relato deGabriel García Márquez, incluido en la colecciónDoce cuentos peregrinos(1992). La historia sigue a una anciana de 76 años que, convencida de su cercana muerte, decide planificar meticulosamente los detalles de su entierro. María, que vive en Barcelona, elige un sepulcro en el cementerio de Montjuïc para yacer cerca de la tumba de Buenaventura Durruti. Además, enseña a su perro, Noi, a llegar solo a su futura tumba para que llore por ella tras su partida. A lo largo del relato, María dos Prazeres reflexiona sobre su vida, su pasado como prostituta, y enfrenta con valentía el miedo y la incertidumbre ante la muerte.

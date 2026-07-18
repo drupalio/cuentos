@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-rulfo-en-la-madrugada/2332/
 
+
+**Imagen:** 0103-en-la-madrugada.jpg
 ---
 
 Sinopsis: «En la madrugada» es un cuento del escritor mexicano Juan Rulfo, publicado en 1953 en el libroEl llano en llamas. Al amanecer de un día en San Gabriel, mientras la noche cede lugar a la aurora, un anciano campesino de nombre Esteban conduce un rebaño de vacas para que alimenten a los terneros. Una vez en el rancho, Esteban tiene un encuentro fortuito con su patrón, don Justo Brambila, quien había pasado la noche con su sobrina, Margarita. Lo ocurrido en esa madrugada dejará una huella indeleble en la vida de ambos hombres.

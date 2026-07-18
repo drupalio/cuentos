@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fredric-brown-no-mires-hacia-atras/24406/
 
+
+**Imagen:** 0736-no-mires-hacia-atrás.webp
 ---
 
 Sinopsis:«No mires hacia atrás» (Don’t Look Behind You) es un cuento de Fredric Brown, publicado en mayo de 1947 enEllery Queen’s Mystery Magazine. Narra la historia de Justin Dean, un modesto grabador que trabaja en una imprenta de Ohio, cuya vida cambia al conocer a Harley Prentice, un hombre apuesto, refinado y enigmático. Fascinado por su elegancia y seguridad, Justin acepta asociarse con él en un arriesgado negocio que promete fortuna. Pero tras la apariencia de éxito se esconden secretos inquietantes que los arrastrarán hacia un destino incierto y cada vez más ominoso.

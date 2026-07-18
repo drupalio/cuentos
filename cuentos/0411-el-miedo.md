@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ramon-del-valle-inclan-miedo/512/
 
+
+**Imagen:** 0411-el-miedo.webp
 ---
 
 Sinopsis:«El miedo» es un cuento de Ramón del Valle-Inclán, publicado en 1903 en la colecciónJardín umbrío. Un joven granadero regresa al pazo familiar para recibir la bendición de su madre y confesarse antes de incorporarse al Regimiento del Rey. Mientras espera la llegada del Prior de Brandeso, su madre y sus hermanas rezan en la penumbra de la capilla señorial. La quietud del momento se rompe cuando unos ruidos inexplicables brotan del interior del sepulcro que preside el presbiterio.

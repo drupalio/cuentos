@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/orson-scott-card-el-juego-de-ender/25551/
 
+
+**Imagen:** 0549-el-juego-de-ender.webp
 ---
 
 Sinopsis:«El juego de Ender» (Ender’s Game ) es un cuento de Orson Scott Card, publicado en agosto de 1977 en la revistaAnalog Science Fiction/Science Fact. La historia se sitúa en una escuela militar espacial donde niños con habilidades especiales son entrenados para el combate en simulaciones de gravedad cero. Ender Wiggins, un comandante excepcionalmente joven, recibe un escuadrón de reclutas novatos y debe convertirlos en una fuerza eficaz mediante tácticas innovadoras y disciplina extrema. Mientras demuestra un talento estratégico poco común, Ender enfrenta la presión constante de instructores y mandos que aceleran su formación, poniendo a prueba su resistencia, su liderazgo y su capacidad para pensar bajo condiciones límite.

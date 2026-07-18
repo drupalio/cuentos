@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-la-ventana-abierta/3449/
 
+
+**Imagen:** 0306-la-ventana-abierta.jpg
 ---
 
 Sinopsis: «La ventana abierta» (The Open Window), es un cuento de Hector Hugh Munro (Saki), publicado en noviembre de 1911 enThe Westminster Gazette. Narra la visita de Framton Nuttel a la casa de la familia Sappleton. Nuttel, un hombre que se ha ido al campo debido a una enfermedad nerviosa, es recibido por la joven sobrina de la señora Sappleton, quien, mientras esperan, le cuenta una inquietante historia familiar. Aunque Nuttel se muestra escéptico ante el relato de la joven, un evento inesperado lo sumergirá en un momento aterrador.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-una-desgracia/26267/
 
+
+**Imagen:** 0414-una-desgracia.webp
 ---
 
 Sinopsis:«Una desgracia» (Несчастье) es un cuento de Antón Chéjov, publicado el 16 de agosto de 1886 en el periódicoNovoye Vremya. Narra la historia de Sofía Petrovna, una joven esposa que, durante un sofocante paseo estival por el bosque, intenta poner fin al insistente galanteo de su vecino, el abogado Iván Ilín. Apelando a su matrimonio, a su hija y a la estabilidad de su hogar, Sofía le exige que la deje en paz y se limiten a la antigua amistad. Sin embargo, las apasionadas confesiones de Ilín y la tensión del encuentro abren en ella una inquietante fisura entre la convicción moral y la fuerza del deseo.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-conversa/8420/
 
+
+**Imagen:** 1204-conversa.webp
 ---
 
 «Conversa» es un cuento corto deMario Benedettique se encuentra en su libroBuzón del tiempo(1999). En este relato, dos desconocidos, Alejandro y Estela, se encuentran en un café y entablan una conversación que fluye llena de matices y revelaciones personales. A través de un diálogo ingenioso y directo, Benedetti nos sumerge en la intimidad de dos almas solitarias que se descubren mutuamente en un breve pero intenso intercambio.

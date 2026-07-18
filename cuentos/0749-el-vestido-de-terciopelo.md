@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/silvina-ocampo-el-vestido-de-terciopelo/5575/
 
+
+**Imagen:** 0749-el-vestido-de-terciopelo.webp
 ---
 
 Sinopsis: «El vestido de terciopelo» es un cuento de la escritora argentina Silvina Ocampo publicado en 1959 en la colecciónLa furia. Narra la visita de dos mujeres, Casilda, una modista, y su joven acompañante, a la casa de una excéntrica señora de la alta sociedad de Buenos Aires. Casilda lleva un vestido de terciopelo que debe ajustar a la clienta, pero el ambiente de la casa, la actitud de la señora y el sofocante calor complican la tarea. Mientras el vestido parece adquirir vida propia, las conversaciones ligeras esconden una tensión que crece poco a poco, transformando la situación en una experiencia extraña y perturbadora.

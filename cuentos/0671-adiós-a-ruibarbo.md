@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guillermo-blanco-adios-ruibarbo/853/
 
+
+**Imagen:** 0671-adiós-a-ruibarbo.webp
 ---
 
 Sinopsis revisada:«Adiós a Ruibarbo» es un cuento del escritor chileno Guillermo Blanco, publicado en 1959 en la antologíaCuentos de la generación del 50. Relata la historia de un niño que, cada día, visita la panadería del barrio para estar cerca de los caballos que tiran los carros del reparto. Entre todos, siente un vínculo especial con Ruibarbo, un animal viejo y silencioso, al que se acerca con palabras suaves y caricias pacientes. Con respeto y ternura, el niño se mueve entre los animales como si fueran sus iguales, hallando en ellos una forma de compañía más sincera que la del mundo adulto.

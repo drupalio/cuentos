@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-gabriel-ernest/4062/
 
+
+**Imagen:** 1022-gabriel-ernest.webp
 ---
 
 Sinopsis: «Gabriel-Ernest» es un cuento de Saki (Hector Hugh Munro), publicado en 1909 en The Westminster Gazette. La historia comienza cuando Van Cheele, un caballero rural inglés, se topa con un extraño muchacho en los bosques de su propiedad. Su comportamiento salvaje y sus enigmáticas respuestas despiertan la inquietud y la curiosidad del hombre. Más tarde, el muchacho aparece en casa de Van Cheele, donde es acogido temporalmente por su tía, que lo llama Gabriel-Ernest. Pronto, señales inquietantes revelan que este huésped es más de lo que aparenta.

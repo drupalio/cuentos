@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-mademoiselle-fifi/20798/
 
+
+**Imagen:** 1119-mademoiselle-fifí.webp
 ---
 
 Sinopsis:Mademoiselle Fifíes un cuento de Guy de Maupassant, publicado el 23 de marzo de 1882 en el periódicoGil Blas. Ambientado durante la ocupación prusiana en Francia, narra la rutina de un grupo de oficiales alemanes que se aloja en un castillo requisado. Entre ellos destaca el joven marqués de Eyrik, apodado irónicamente Mademoiselle Fifí por su actitud afectada y su gusto por la destrucción. En medio del tedio y la lluvia constante, los militares planean una cena con mujeres del pueblo, sin prever las tensiones ocultas que aflorarán en ese encuentro marcado por el abuso y la arrogancia.

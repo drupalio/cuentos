@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-los-gatos/25281/
 
+
+**Imagen:** 0369-los-gatos.webp
 ---
 
 Sinopsis:«Los gatos» es un cuento de Julio Cortázar, escrito en 1948 y publicado por primera vez en el volumenPapeles inesperados(2009). Carlos María y su prima Marta crecen juntos en la casa de los Hilaire, unidos por una complicidad que parece inquebrantable. Con el paso de los años, esa cercanía fraternal empieza a adquirir matices más ambiguos, y Carlos María descubre, poco a poco, que sus sentimientos hacia Marta han cruzado un umbral que no logra comprender. La aparición de Rolando Yepes como pretendiente de su prima y el descubrimiento de un secreto quiebra el equilibrio, sumergiéndolo en una turbulencia emocional que no sabe cómo afrontar.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/harlan-ellison-arrepientete-arlequin-dijo-el-senor-tic-tac/8546/
 
+
+**Imagen:** 0339-arrepiéntete-arlequín-dijo-el-señor-tic-tac.webp
 ---
 
 Sinopsis:«¡Arrepiéntete, Arlequín!» dijo el señor Tic-Taces un cuento de Harlan Ellison, publicado en diciembre de 1965 en Galaxy Magazine, y ganador de los premios Hugo y Nebula en 1966. Ambientado en una sociedad obsesionada con la puntualidad y el control del tiempo, la historia sigue al Arlequín, un excéntrico rebelde que desafía el rígido sistema impuesto por el Maestro Custodio del Tiempo, también conocido como el señor Tic-Tac. A través de sus bromas y actos caóticos, el Arlequín altera el orden establecido y desafía las reglas de un mundo donde el retraso se castiga severamente. La narrativa combina humor y crítica social, y explora las consecuencias de la desobediencia en un sistema totalitario.

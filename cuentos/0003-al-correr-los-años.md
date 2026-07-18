@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/miguel-de-unamuno-al-correr-los-anos/28465/
 
+
+**Imagen:** 0003-al-correr-los-años.webp
 ---
 
 Sinopsis:«Al correr los años» es un cuento del escritor español Miguel de Unamuno, publicado en 1913 en el libroEl espejo de la muerte. Después de un largo noviazgo, Juan y Juana se casan y construyen una vida en común marcada por la llegada de los hijos y una ternura que poco a poco reemplaza la pasión de los primeros años. Mientras Juana observa cómo el tiempo transforma su cuerpo y su matrimonio, comienza a notar cambios en el ánimo de su marido: lo ve distraído, mustio y a la vez extrañamente rejuvenecido. Convencida de que Juan se ha enamorado de otra mujer, decide descubrir quién ha despertado en él esa nueva pasión.

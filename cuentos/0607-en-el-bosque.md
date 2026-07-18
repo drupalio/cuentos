@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-en-el-bosque/25316/
 
+
+**Imagen:** 0607-en-el-bosque.webp
 ---
 
 Sinopsis:«En el bosque» (Au bois) es un cuento corto del escritor francés Guy de Maupassant, publicado enGil Blasel 22 de junio de 1886. Una pareja de ancianos es arrestada por el guarda rural en circunstancias escandalosas dentro del bosque de Champioux. Al ser interrogados por el alcalde, se revela que son matrimonio y dueños de una mercería en París. La situación resulta desconcertante: ¿por qué dos ancianos casados y respetables se expondrían a semejante bochorno en pleno campo?

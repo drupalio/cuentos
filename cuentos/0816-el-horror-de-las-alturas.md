@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-conan-doyle-el-horror-de-las-alturas/4116/
 
+
+**Imagen:** 0816-el-horror-de-las-alturas.webp
 ---
 
 Sinopsis: «El horror de las alturas» (The Horror of the Heights) es un cuento de Arthur Conan Doyle, publicado en noviembre de 1913 en la revistaThe Strand Magazine. Presentado como el testimonio hallado tras la desaparición del aviador Joyce-Armstrong, recoge las notas que escribió poco antes de emprender un arriesgado vuelo. En ellas expone sus sospechas acerca de peligros desconocidos que acechan en las capas más altas de la atmósfera, más allá de los límites alcanzados por la aviación de su tiempo. Lo que inicia como una reflexión técnica se convierte en un testimonio inquietante sobre lo que podría habitar entre las nubes.

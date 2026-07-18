@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hans-christian-andersen-el-abeto/17954/
 
+
+**Imagen:** 0532-el-abeto.webp
 ---
 
 Sinopsis:«El abeto» (Grantræet) es un cuento de Hans Christian Andersen, publicado en diciembre de 1844 en la colecciónNuevos cuentos de hadas. En un bosque crece un pequeño abeto rodeado de árboles grandes y majestuosos. Aunque tiene un lugar perfecto, con sol, viento suave y niños que juegan cerca, el abeto está triste. Solo sueña con crecer rápido para ser alto y fuerte como los demás. No disfruta de su juventud ni de la belleza a su alrededor. Cada año observa con envidia cómo algunos árboles son cortados y llevados a lugares misteriosos mientras él permanece en el bosque. Cuando llega la Navidad, el abeto se llena de ilusión al pensar que, finalmente, vivirá algo maravilloso.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/abelardo-castillo-el-hacha-pequena-de-los-indios/19489/
 
+
+**Imagen:** 0189-el-hacha-pequeña-de-los-indios.webp
 ---
 
 Sinopsis:«El hacha pequeña de los indios» es un cuento del escritor argentinoAbelardo Castillo, publicado en 1976 en la colecciónLas panteras y el templo. Narra la historia de un hombre que se ve inmerso en una compleja red de recuerdos y conflictos internos, mientras observa un hacha suspendida en la pared de su hogar, un objeto que le evoca antiguas fantasías infantiles y pensamientos inquietantes.

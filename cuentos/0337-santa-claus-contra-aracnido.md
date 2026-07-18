@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/harlan-ellison-santa-claus-contra-a-r-a-c-n-i-d-o/17501/
 
+
+**Imagen:** 0337-santa-claus-contra-aracnido.webp
 ---
 
 Sinopsis:«Santa Claus contra A.R.A.C.N.I.D.O.» (Santa Claus vs. S. P. I. D. E. R.) es un cuento de Harlan Ellison, publicado en enero de 1969 enThe Magazine of Fantasy and Science Fiction. Kris, un agente secreto que vive oculto en el Ártico bajo la identidad de Santa Claus, recibe una llamada urgente que lo arrastra a enfrentar a A.R.A.C.N.I.D.O., una misteriosa organización con un plan de ocho puntos para desestabilizar el mundo. Ocho figuras políticas estadounidenses han sido poseídas y convertidas en títeres del enemigo. Kris debe infiltrarse y neutralizar cada fase de la conspiración, utilizando su arsenal de sofisticados artefactos y habilidades de espionaje, mientras descubre las verdaderas intenciones de esta peligrosa entidad.

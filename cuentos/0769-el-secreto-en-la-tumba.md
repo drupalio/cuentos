@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-el-secreto-en-la-tumba/16285/
 
+
+**Imagen:** 0769-el-secreto-en-la-tumba.webp
 ---
 
 Sinopsis: «El secreto en la tumba» (The Secret in the Tomb) es un relato de horror gótico escrito por Robert Bloch y publicado enWeird Talesen mayo de 1935. Es el primer cuento del autor que se enmarca en el universo de los Mitos de Cthulhu, creado por H.P. Lovecraft. La historia sigue al último heredero de una familia de hechiceros, quien se aventura al cementerio en busca de un antiguo y oscuro secreto guardado en la bóveda de sus antepasados. En este entorno tenebroso y lleno de misterio, el protagonista se enfrenta a fuerzas sobrenaturales que desafían la razón, mientras la atmósfera macabra y opresiva revela terrores ocultos y prohibidos.

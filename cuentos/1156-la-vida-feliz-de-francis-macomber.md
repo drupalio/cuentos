@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ernest-hemingway-la-vida-feliz-de-francis-macomber/5105/
 
+
+**Imagen:** 1156-la-vida-feliz-de-francis-macomber.jpg
 ---
 
 Sinopsis:La breve vida feliz de Francis Macomber(The Short Happy Life of Francis Macomber), cuento de Ernest Hemingway publicado en 1936, narra la relación entre un matrimonio y su guía durante un safari en África. Tras un incidente con un león, la interacción entre los personajes se vuelve tensa, ya que uno de ellos no reacciona como se esperaba durante la cacería, lo que pone a prueba sus emociones y la percepción que los demás tienen de él. Un cuento intenso y lleno de giros, que se halla entre los más famosos del escritor norteamericano.

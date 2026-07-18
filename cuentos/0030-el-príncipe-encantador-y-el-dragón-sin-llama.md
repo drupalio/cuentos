@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-el-principe-encantador-y-el-dragon-sin-llama/28395/
 
+
+**Imagen:** 0030-el-príncipe-encantador-y-el-dragón-sin-llama.webp
 ---
 
 Sinopsis:«El príncipe Encantador y el dragón sin llama» (Prince Delightful and the Flameless Dragon) es un cuento del escritor estadounidense Isaac Asimov, publicado en 1991 en la antologíaOnce Upon a Time: A Treasury of Modern Fairy Tales. El rey Marcus y la reina Ermentrude celebran el bautizo de su único hijo, el príncipe Encantador, invitando a todas las hadas del reino para que le concedan grandes dones. Sin embargo, durante la ceremonia, una de ellas lanza mal su hechizo y condena al recién nacido a ser irremediablemente torpe. Al cumplir veinte años, sus padres lo envían a buscar fortuna al reino de Poictesme, donde deberá enfrentarse a un temible dragón y conquistar el amor de la princesa Laurelene.

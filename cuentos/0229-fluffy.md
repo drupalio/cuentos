@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/theodore-sturgeon-fluffy/21746/
 
+
+**Imagen:** 0229-fluffy.webp
 ---
 
 Sinopsis: «Fluffy»es un cuento de Theodore Sturgeon, publicado enWeird Talesen marzo de 1947. Ransome, un invitado asiduo a reuniones sociales gracias a su talento para narrar anécdotas, pasa el fin de semana en casa de la señora Benedetto, una excéntrica viuda que vive entregada a su enorme gato, Fluffy. Fascinado por la devoción de su anfitriona y divertido por la indiferencia del animal, Ransome se entretiene reflexionando sobre el carácter de los gatos. Sin embargo, durante la noche, un extraño incidente en la habitación de huéspedes cambiará el curso de su estancia.

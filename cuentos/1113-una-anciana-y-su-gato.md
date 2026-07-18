@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/doris-lessing-una-anciana-y-su-gato/21052/
 
+
+**Imagen:** 1113-una-anciana-y-su-gato.webp
 ---
 
 Sinopsis:Una anciana y su gato(An Old Woman and her Cat) es un cuento de Doris Lessing, publicado en 1972 en laNew American Review. Relata la vida de Hetty, una mujer mayor marginada por su familia y por la sociedad, que sobrevive como puede en los márgenes de Londres. Orgullosa, excéntrica y libre, Hetty encuentra consuelo en Tibby, un gato callejero al que adopta y convierte en su único compañero. La historia se centra en sus andanzas por barrios degradados, su lucha por mantenerse independiente y su vínculo entrañable con el animal, en un entorno que se vuelve cada vez más hostil e indiferente.

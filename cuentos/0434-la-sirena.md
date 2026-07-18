@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-la-sirena/5921/
 
+
+**Imagen:** 0434-la-sirena.jpg
 ---
 
 Sinopsis:«La sirena» (The Fog Horn) es un cuento fantástico del escritor estadounidense Ray Bradbury, publicado el 23 de junio de 1951 enThe Saturday Evening Post. Narra la historia de dos hombres que se encuentran al cuidado de un faro en una zona remota. Uno de ellos, McDunn, lleva más tiempo desempeñando el oficio, y ha visto fenómenos que su compañero ni imagina, como la visita anual de una criatura marina ancestral que llega atraída por el sonido del faro. La trama se desarrolla precisamente en la noche que McDunn espera que este singular ser vuelva para cumplir con su rito. Es un relato íntimo, con ciertas reminiscencias a Lovecraft, donde Bradbury explora temas existenciales como la soledad, la nostalgia y la transitoriedad del tiempo.

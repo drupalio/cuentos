@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-e-howard-calaveras-en-las-estrellas/20985/
 
+
+**Imagen:** 0322-calaveras-en-las-estrellas.webp
 ---
 
 Sinopsis:Calaveras en las estrellas(Skulls in the Stars) es un cuento de Robert E. Howard, publicado en enero de 1929 en la revistaWeird Tales. La historia sigue al sombrío puritano Solomon Kane, un viajero solitario que, desoyendo advertencias locales, decide cruzar un páramo desierto rumbo a Yorkertown. Pese a los temores de los aldeanos sobre un horror invisible que ronda el lugar, Kane se adentra en la oscuridad, donde el paisaje desolado y los ecos de una risa inhumana anuncian una amenaza sobrenatural. Con su espada y su fe, se enfrenta a una fuerza espectral que pondrá a prueba su valor y su determinación.

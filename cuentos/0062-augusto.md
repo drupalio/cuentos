@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermann-hesse-augusto/28253/
 
+
+**Imagen:** 0062-augusto.webp
 ---
 
 Sinopsis:«Augusto» (Augustus) es un cuento de Hermann Hesse, publicado en 1913 en la revistaDie Grenzboteny recogido luego en el libroMärchen(1919). Elisabeth, una joven viuda, espera sola el nacimiento de su hijo. Durante el parto recibe la ayuda enviada por su misterioso vecino, el señor Binßwanger, quien más tarde se convierte en padrino del niño. Como regalo de bautizo, Binßwanger le dice a la madre que puede pedir un deseo para su hijo. Indecisa, pide que todos quieran a Augusto. Es así como el niño crece rodeado del afecto y la admiración de los demás, pero esa aparente bendición empieza a deformar su carácter y a alejarlo de la felicidad que Elisabeth había imaginado para él.

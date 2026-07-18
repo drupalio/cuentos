@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roberto-bolano-vida-de-anne-moore/25800/
 
+
+**Imagen:** 0293-vida-de-anne-moore.webp
 ---
 
 Sinopsis:«Vida de Anne Moore» es un cuento de Roberto Bolaño, publicado en 1997 en el libroLlamadas telefónicas. Escrito en forma de relato biográfico, narra la historia de Anne, una mujer nacida en Estados Unidos que siendo niña asiste a un episodio perturbador que marcará su destino y el de su familia. El relato describe su vida dura y errante, cruzada por ambientes bohemios y violentos, relaciones inestables y una deriva personal dominada por la insatisfacción, la fragilidad emocional, la búsqueda de sentido y el peso persistente del pasado.

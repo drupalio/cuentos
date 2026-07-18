@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/kemal-bilbasar-la-venta-saltanat/873/
 
+
+**Imagen:** 0471-la-venta-de-saltanat.webp
 ---
 
 Sinopsis:«La venta de Saltanat» (Saltanatın Satılışı) es un cuento del escritor turco Kemal Bilbaşar, publicado en 1962 en elTürk Edebiyatçılar Birliği Yıllığı. En un pueblo de Anatolia, la súbita madurez de Saltanat, la hija de doce años del molinero, queda expuesta cuando dos mozos se pelean por ella. Su padre interpreta la escena como una señal de que, según la costumbre, la muchacha ya está en edad de ser vendida. Para escoger al pretendiente, anuncia una prueba pública en la llanura Karga el primer día de nieve: quien quiera llevársela deberá demostrar su valentía ante todos. Desde entonces, los jóvenes de los alrededores se preparan para competir por la mano de la hermosa muchacha.

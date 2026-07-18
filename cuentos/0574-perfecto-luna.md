@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elena-garro-perfecto-luna/4777/
 
+
+**Imagen:** 0574-perfecto-luna.webp
 ---
 
 Sinopsis:«Perfecto Luna» es un inquietante cuento de Elena Garro, publicado enla Revista de la Universidad de Méxicoen agosto de 1958. La historia sigue a Perfecto Luna, un hombre humilde y servicial que se ve obligado a abandonar su pueblo tras una serie de eventos que transforman radicalmente su vida. Mientras recorre caminos solitarios, reflexiona sobre su pasado y el peso de reinventarse bajo una nueva identidad. En su travesía, Perfecto se cruza con un misterioso desconocido, y al intentar ayudarlo, se enfrentará nuevamente a sus temores más profundos y a la culpa que lo persigue.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-una-venganza/6790/
 
+
+**Imagen:** 1134-una-venganza.jpg
 ---
 
 Sinopsis:Una venganza(Une vendetta) es un cuento de Guy de Maupassant, publicado el 14 de octubre de 1883 enLe Gaulois. La historia transcurre en Bonifacio, una ciudad corsa de escarpados acantilados, donde la viuda de Paolo Saverini vive con su hijo Antonio y su perra Ligera. Cuando Antonio es asesinado por Nicolás Ravolati, su madre jura vengarlo. Sola y consumida por el dolor, idea un metódico plan para hacer justicia con sus propias manos. En su modesta casa, junto al mar azotado por el viento, la viuda se prepara pacientemente, esperando el momento de cumplir su juramento.

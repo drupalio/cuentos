@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ambrose-bierce-aceite-de-perro/2708/
 
+
+**Imagen:** 1066-aceite-de-perro.jpg
 ---
 
 Sinopsis:«Aceite de perro» (Oil of Dog) es un cuento de Ambrose Bierce, publicado el 11 de octubre de 1890 en elOakland Daily Evening Tribune. Narra la infancia de Boffer Bings, criado en un entorno tan peculiar como inquietante: su padre fabrica aceite con métodos poco convencionales y su madre se dedica a una profesión aún más turbia. Desde muy joven, Boffer se ve envuelto en estas actividades, sin cuestionarlas. Con tono satírico y macabro, el relato describe cómo una combinación inesperada de circunstancias transforma la rutina familiar en una cadena de sucesos grotescos y profundamente perturbadores.

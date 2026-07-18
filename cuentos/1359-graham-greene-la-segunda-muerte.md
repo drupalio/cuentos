@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/graham-greene-la-segunda-muerte/4102/
 
+
+**Imagen:** 1359-graham-greene-la-segunda-muerte.jpg
 ---
 
 Me encontró al anochecer, bajo los árboles que crecían en las afueras de la aldea. Jamás me había preocupado de ella, y de haberla visto aproximarse, me habría escondido sin duda alguna. A mi entender era la culpable de los defectos de su hijo… si es que eran tales, cosa que me resisto a creer. De todos modos podía considerársela una mujer generosa, muy al contrario de otras del mismo pueblo, a las que podría citar por sus nombres.

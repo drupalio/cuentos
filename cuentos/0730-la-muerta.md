@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-la-muerta/11720/
 
+
+**Imagen:** 0730-la-muerta.webp
 ---
 
 Sinopsis: «La muerta» (La morte) es un cuento de Guy de Maupassant, publicado el 31 de mayo de 1887 enGil Blas. Narra el profundo dolor de un hombre tras la muerte de su amada, cuya ausencia lo sumerge en una desesperación incontrolable. Incapaz de sobrellevar la pérdida, vaga por la ciudad hasta llegar a su tumba, donde el recuerdo de su amor lo atormenta. En su sufrimiento, se enfrenta a la inexorable verdad que la muerte revela, mientras el cementerio se convierte en un escenario inquietante donde los difuntos parecen cobrar vida para reescribir su propia historia.

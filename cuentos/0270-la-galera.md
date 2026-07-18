@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/manuel-mujica-lainez-la-galera/811/
 
+
+**Imagen:** 0270-la-galera.webp
 ---
 
 Sinopsis:«La galera» es un cuento de Manuel Mujica Láinez, publicado en 1950 en la colecciónMisteriosa Buenos Aires. Narra el agotador viaje de Catalina Vargas en una galera que avanza entre postas y caminos desolados, sacudida por el traqueteo de las ruedas y el cansancio de sus ocupantes. Catalina, inquieta y atormentada, custodia un tesoro oculto bajo su falda mientras recuerda su pasado y los medios que utilizó para asegurarse una fortuna. A medida que avanza el viaje, una presencia inesperada surge en la penumbra del carruaje, provocando en ella un terror inexplicable.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/rudyard-kipling-cuento-mas-hermoso-del-mundo/648/
 
+
+**Imagen:** 0488-el-cuento-más-hermoso-del-mundo.webp
 ---
 
 Sinopsis:«El cuento más hermoso del mundo» (The Finest Story in the World) es un cuento de Rudyard Kipling, publicado en julio de 1891 en la revistaContemporary Review. Charlie Mears es un joven empleado de banco que alberga ambiciones literarias. Aunque sus poemas y relatos resultan torpes, cree haber concebido una idea extraordinaria para un cuento y, para desarrollarla, pide ayuda a un escritor más experimentado. A medida que intenta explicar su argumento, comienzan a surgir descripciones vívidas de galeras griegas y barcos vikingos, cargadas de un realismo y un nivel de detalle tan inusuales que parecen insinuar que tras ellas se esconde un desconcertante misterio.

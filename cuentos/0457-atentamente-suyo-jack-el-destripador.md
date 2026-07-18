@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-atentamente-suyo-jack-el-destripador/12808/
 
+
+**Imagen:** 0457-atentamente-suyo-jack-el-destripador.jpg
 ---
 
 Sinopsis: «Atentamente suyo, Jack el Destripador» (Yours Truly, Jack the Ripper) es un cuento de Robert Bloch, publicado en julio de 1943 en la revistaWeird Tales. John Carmody es un psiquiatra en Chicago que recibe la inesperada visita de Sir Guy Hollis, un diplomático británico obsesionado con Jack el Destripador. Hollis está convencido de que el legendario asesino sigue vivo y acaba de llegar a la ciudad. Intrigado por estas afirmaciones, Carmody decide ayudarlo a desentrañar la verdad. Juntos recorren los barrios más sórdidos, enfrentando la duda y el temor, mientras las siniestras sombras del pasado amenazan con desencadenar nuevos horrores.

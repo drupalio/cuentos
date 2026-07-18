@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/charles-bukowski-salva-el-mundo/2490/
 
+
+**Imagen:** 1389-charles-bukowski-salva-el-mundo.jpg
 ---
 
 Ella entró y me fijé en que chocaba con las paredes y tenía la vista como desenfocada. Era el día después de su taller de escritura y siempre parecía haber estado metiéndose algo. Igual se lo metía. Le zurró a la cría por derramarle el café y luego se puso al teléfono y tuvo una de sus interminables conversaciones «inteligentes» con alguien. Yo jugué con la niña que era mi hija. Ella colgó.

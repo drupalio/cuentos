@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/maria-esther-vazquez-el-elegido/2251/
 
+
+**Imagen:** 1179-el-elegido.webp
 ---
 
 EnEl Elegido, relato de María Esther Vázquez publicado enCuentos Argentinos(1986), un hombre, refugiado en Buenos Aires bajo una identidad falsa, relata su condena a la inmortalidad. Reflexiona sobre el inevitable transcurso del tiempo y evoca una amistad cuya muestra de amor transformó su destino, condenándolo a cargar con siglos de recuerdos y a ser un observador eterno de los acontecimientos humanos. El relato explora su lucha contra el aislamiento y el hastío, mientras enfrenta la incertidumbre y busca un sentido en una existencia perpetua, marcada tanto por la memoria como por el olvido.

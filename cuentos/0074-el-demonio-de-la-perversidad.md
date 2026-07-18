@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-el-demonio-de-la-perversidad/28210/
 
+
+**Imagen:** 0074-el-demonio-de-la-perversidad.webp
 ---
 
 Sinopsis:«El demonio de la perversidad» (The Imp of the Perverse) es un cuento de Edgar Allan Poe, publicado en julio de 1845 enGraham’s Magazine. Un sujeto anónimo reflexiona sobre una oscura fuerza que se impone a la mente humana: la perversidad, un impulso irracional, ignorado por frenólogos y metafísicos, que nos lleva a realizar acciones perjudiciales precisamente porque sabemos que no deberíamos hacerlas. A partir de esa exposición filosófica, el relato adquiere poco a poco un tono confesional, hasta revelar que el narrador habla desde una celda y que su propia desgracia está ligada a ese impulso secreto e irresistible.

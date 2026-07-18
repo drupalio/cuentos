@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ursula-k-le-guin-el-burro-blanco/20458/
 
+
+**Imagen:** 1138-el-burro-blanco.webp
 ---
 
 Sinopsis:El burro blanco(The White Donkey) es un cuento de Ursula K. Le Guin, publicado en 1980 en la revistaTriQuarterly. La historia sigue a Sita, una joven que lleva a sus cabras a pastar en el bosque, donde descubre a un misterioso burro blanco con un cuerno en la frente. Fascinada por su elegancia y singularidad, Sita comienza a visitarlo diariamente, ofreciéndole flores y compartiendo momentos de silenciosa compañía. Mientras su vínculo con el animal se fortalece, en el hogar de Sita, sus padres, deciden su destino.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-suenos-de-robot/8214/
 
+
+**Imagen:** 0629-sueños-de-robot.jpg
 ---
 
 Sinopsis:«Sueños de robot» (Robot Dreams) es un cuento de Isaac Asimov, publicado en 1986. La historia comienza cuando Elvex, un robot experimental con un nuevo tipo de cerebro positrónico, declara haber tenido un sueño. Intrigada, la joven investigadora Linda Rash recurre a la doctora Susan Calvin, figura legendaria en la robopsicología, para investigar el caso. Juntas examinan la estructura cerebral del robot y descubren que Elvex ha desarrollado pensamientos complejos y simbólicos, muy similares a los humanos. Lo que al principio parecía un avance técnico revela una grieta inesperada en las Tres Leyes de la Robótica.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/miguel-de-unamuno-redondo-el-contertulio/123/
 
+
+**Imagen:** 0223-redondo-el-contertulio.webp
 ---
 
 Sinopsis:«Redondo, el contertulio» es un cuento de Miguel de Unamuno publicado enLos Lunes de El Imparcialel 23 de diciembre de 1912. Tras veinte años de ausencia, Redondo regresa a la tertulia del café de la Unión, un rincón que considera su verdadera patria. Allí, entre las mesas de mármol, vivió sus momentos más felices, rodeado de charlas, risas y camaradería. Forzado a emigrar por dificultades económicas, pasó décadas soñando con volver a aquel lugar cargado de recuerdos. Sin embargo, al regresar, enfrenta una realidad inevitable: el tiempo ha transformado tanto a su amada patria como a él mismo.

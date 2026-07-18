@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mark-twain-el-cuento-del-nino-malo/2330/
 
+
+**Imagen:** 0861-el-cuento-del-niño-malo.webp
 ---
 
 Sinopsis: «El cuento del niño malo» (The Story of the Bad Little Boy That Bore a Charmed Life) es un relato de Mark Twain publicado enCalifornian magazineen 1865, que desafía las convenciones de la literatura moralizante. La historia sigue a Jim, un niño travieso que parece escapar siempre de las consecuencias de sus actos malvados. A diferencia de los cuentos de raíz religiosa y edificante, donde los niños perversos son castigados, Jim prospera y alcanza el éxito. Con un humor irónico y satírico, Twain expone la hipocresía de la sociedad y cuestiona las lecciones moralistas tradicionales, transformando el cuento en una obra crítica y subversiva.

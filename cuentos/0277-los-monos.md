@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-jose-arreola-los-monos/6452/
 
+
+**Imagen:** 0277-los-monos.webp
 ---
 
 Sinopsis:«Los monos» es un cuento del escritor mexicano Juan José Arreola, publicado en 1972 en el libro Bestiario. Wolfgang Köhler es un psicólogo alemán que durante su estancia en Tetuán experimenta con un chimpancé llamado Momo. A lo largo de cinco años, el científico somete al animal a una serie de trampas mentales y laberintos, obligándolo a valerse de distintas herramientas para alcanzar sus golosinas. El objetivo de Köhler es conseguir que Momo sea el primer simio en cruzar el umbral de la conciencia.

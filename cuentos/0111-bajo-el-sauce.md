@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hans-christian-andersen-bajo-el-sauce/28014/
 
+
+**Imagen:** 0111-bajo-el-sauce.webp
 ---
 
 Sinopsis:«Bajo el sauce» (Under Piletræet) es un cuento del escritor danés Hans Christian Andersen, publicado en 1852 en el volumenHistorier. Anden Samling. Knud y Johanne son dos niños vecinos que, en Kjøge, crecen jugando junto a un viejo sauce. Un día, un vendedor de bizcochos les cuenta la historia de dos figuras de miel enamoradas que nunca se atreven a expresar lo que sienten, y el relato queda grabado en la memoria de ambos. Con el tiempo, Johanne se marcha con su padre a Copenhague, donde comienza a cantar en el teatro. Cuando Knud se convierte en oficial zapatero, también viaja a la ciudad, decidido a confesarle su amor y no repetir la historia de los bizcochos de miel.

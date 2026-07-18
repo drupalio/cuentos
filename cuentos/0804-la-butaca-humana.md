@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edogawa-rampo-la-butaca-humana/16159/
 
+
+**Imagen:** 0804-la-butaca-humana.webp
 ---
 
 Sinopsis: «La butaca humana» (Ningen-isu) es un inquietante cuento del escritor japonés Edogawa Rampo, publicado en octubre de 1925 en la revistaKuraku. Una famosa escritora recibe un misterioso manuscrito sin firma, en el que un ebanista marginado por su fealdad le confiesa una insólita obsesión: ocultarse dentro de una butaca que él mismo fabricó. Lo que comienza como una extraña confesión adquiere pronto un tono perturbador, que sumerge al lector en un mundo de deseo, encierro y voyeurismo.

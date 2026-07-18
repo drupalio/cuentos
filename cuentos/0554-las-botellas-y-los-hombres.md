@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-las-botellas-y-los-hombres/6048/
 
+
+**Imagen:** 0554-las-botellas-y-los-hombres.webp
 ---
 
 Sinopsis:«Las botellas y los hombres» es un cuento de Julio Ramón Ribeyro, publicado en la colección homónima de 1964. Luciano se encuentra jugando al tenis cuando es interrumpido por la llegada inesperada de su padre, a quien no ve desde hace ocho años. El hombre, visiblemente deteriorado y necesitado de dinero, busca la ayuda de su hijo, generando un reencuentro lleno de tensión e incomodidad. Para evitar las miradas de los miembros del exclusivo club al que Luciano pertenece, ambos deciden ir a un bar. En este escenario, intentarán reconstruir un vínculo marcado por la ausencia y el resentimiento.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/miguel-de-unamuno-el-semejante/12282/
 
+
+**Imagen:** 0217-el-semejante.jpg
 ---
 
 Sinopsis: «El semejante«, cuento de Miguel de Unamuno, narra la historia de Celestino, apodado «el tonto», un hombre solitario y marginado por la sociedad que encuentra consuelo y compañía en la naturaleza y en su mundo interior. Un día, Celestino se encuentra con Pepe, otro solitario que refleja su misma inocencia y simplicidad, y entre ellos surge una amistad genuina y libre de prejuicios. Ambos comparten momentos de alegría y descubrimiento, apreciando las pequeñas maravillas de la vida cotidiana. A través de esta narrativa, Unamuno explora temas como la soledad, la amistad y la búsqueda de semejanza y comprensión en un mundo a menudo hostil y excluyente.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-fin-de-semana/3649/
 
+
+**Imagen:** 0814-fin-de-semana.webp
 ---
 
 Sinopsis: «Fin de semana» es un cuento de Mario Benedetti publicado en 1999 en el libro Buzón de tiempo. Cada viernes, Fernando espera a su padre a la salida del colegio para pasar el fin de semana con él. Desde el divorcio, ambos padres han evitado disputas para no alterar la rutina del niño. Aunque el padre suele llegar tarde, Fernando lo recibe con paciencia. Van al restaurante de siempre, piden los mismos platos y hablan de lo mismo. Pero esta vez hay una novedad: una sorpresa espera a Fernando en casa de su padre y, con ella, una nueva sensación se instala en el niño.

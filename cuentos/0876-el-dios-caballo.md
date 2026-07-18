@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/lisa-tuttle-el-dios-caballo/23231/
 
+
+**Imagen:** 0876-el-dios-caballo.webp
 ---
 
 Sinopsis: «El dios caballo» (The Horse Lord) es un cuento de la escritora estadounidense Lisa Tuttle, publicado en junio de 1977 enThe Magazine of Fantasy and Science Fiction. La historia sigue a Marilyn, una escritora de suspense que se muda con su esposo y cinco niños a una antigua casona familiar, enclavada en una zona remota del norte del estado de Nueva York. Mientras se adapta a la vida rural, descubre un viejo establo clausurado, vinculado a una trágica historia familiar y a antiguas leyendas indígenas. Lo que comienza como una nueva etapa lejos del bullicio urbano se convierte, poco a poco, en una experiencia cada vez más opresiva e inquietante.

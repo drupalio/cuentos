@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-las-desnudas/5476/
 
+
+**Imagen:** 0378-las-desnudadas.webp
 ---
 
 Sinopsis: «Las desnudadas» (también conocido como «Las desnudas») es un cuento de la escritora española Emilia Pardo Bazán, publicado en 1897 en la revistaBlanco y Negro. La historia comienza con una conversación entre amigos sobre el destino y el libre albedrío, donde uno de ellos relata un suceso ocurrido en España tras la Revolución de 1868. En medio del conflicto civil, surge la figura brutal del Manco de Alzaur, un contraguerrillero temido por su crueldad. El relato se centra en el trágico destino de las cinco jóvenes sobrinas de un párroco carlista, víctimas del odio y la venganza.

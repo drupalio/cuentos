@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/enrique-lihn-hombre-sueno/966/
 
+
+**Imagen:** 1011-el-hombre-y-su-sueño.webp
 ---
 
 Sinopsis: «El hombre y su sueño» es un cuento de Enrique Lihn, publicado en 1954 en laAntología del nuevo cuento chileno. La historia se presenta como el monólogo de un sujeto insomne que rememora su vínculo con un enigmático amigo obsesionado con separar el sueño de la vigilia. A través de recuerdos densos y reflexiones existenciales, el protagonista explora la frágil frontera entre conciencia y ensoñación, mientras su vida errante transcurre en una ciudad que le resulta opresiva y ajena. El cuento plantea una búsqueda interior marcada por la duda, la soledad, la disolución del yo y la ambigüedad entre lo real y lo imaginado.

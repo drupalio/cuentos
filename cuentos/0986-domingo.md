@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/rosario-castellanos-domingo/22281/
 
+
+**Imagen:** 0986-domingo.webp
 ---
 
 Sinopsis: «Domingo»es un cuento de Rosario Castellanos, publicado en 1971 dentro del libroÁlbum de familia. La historia transcurre a lo largo de un día en la vida de Edith, una mujer madura que intenta equilibrar las exigencias de su rutina doméstica con su búsqueda personal de sentido y libertad. En medio de las tareas del hogar y una reunión social con familiares y amigos, Edith reflexiona sobre el amor, la fidelidad, la maternidad y el deseo, revelando la complejidad de su mundo interior. A través de escenas cotidianas, el relato perfila un retrato agudo y crítico de la intimidad femenina en la clase media urbana mexicana.

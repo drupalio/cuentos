@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-el-avion-de-la-bella-durmiente/24210/
 
+
+**Imagen:** 0145-el-avión-de-la-bella-durmiente.webp
 ---
 
 Sinopsis: «El avión de la Bella Durmiente» es un cuento de Gabriel García Márquez, publicado en 1992 dentro del libroDoce cuentos peregrinos. En un aeropuerto de París colapsado por la nieve, mientras realiza los trámites burocráticos para su viaje, un hombre se siente súbitamente hechizado por la presencia de una joven de belleza extraordinaria. Su porte enigmático y su andar sigiloso despiertan en él una fascinación inmediata. Aquella aparición, tan intensa como efímera, enciende en el protagonista una mezcla de asombro y deseo que marcará de manera decisiva el rumbo de su experiencia durante el vuelo.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mariana-enriquez-bajo-el-agua-negra/27422/
 
+
+**Imagen:** 0215-bajo-el-agua-negra.webp
 ---
 
 Sinopsis:«Bajo el agua negra» es un cuento de la escritora argentina Mariana Enríquez, publicado en 2016 en el libroLas cosas que perdimos en el fuego. La fiscal Marina Pinat investiga la muerte de dos adolescentes, víctimas de violencia policial. Los jóvenes habrían muerto tras ser arrojados por dos agentes a un río fuertemente contaminado en los márgenes de Buenos Aires. Luego de interrogar a uno de los acusados, la fiscal recibe el testimonio de una misteriosa joven embarazada, que asegura que uno de los jóvenes ha vuelto del agua y quiere hablar con ella. Intrigada y escéptica, Pinat decide acudir sola a la Villa Moreno, donde la reciben un silencio inquietante, una parroquia profanada y un cura al borde de la locura.

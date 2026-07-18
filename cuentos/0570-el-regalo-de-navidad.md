@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gordon-r-dickson-el-regalo-de-navidad/25445/
 
+
+**Imagen:** 0570-el-regalo-de-navidad.webp
 ---
 
 Sinopsis:«El regalo de Navidad» (The Christmas Present) es un cuento de Gordon R. Dickson, publicado en enero de 1958 enThe Magazine of Fantasy and Science Fiction. Allan Dumay, un niño humano de seis años que vive con su familia en el planeta Cidor, entabla amistad con Harvey, un ser cidoriano que habita en el estero cercano a su hogar. En la víspera de Navidad, Allan y su madre intentan explicarle a Harvey el sentido de esta festividad importada desde la Tierra. Mientras madre e hijo envuelven los regalos, el niño decide tener un gesto especial hacia su amigo alienígena.

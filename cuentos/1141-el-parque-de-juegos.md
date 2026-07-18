@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-el-parque-de-juegos/2632/
 
+
+**Imagen:** 1141-el-parque-de-juegos.webp
 ---
 
 Sinopsis: “El parque de juegos” (The Playground), cuento de Ray Bradbury publicado enThe Illustrated Man(1952), narra la historia de Charles Underhill, un hombre viudo que vive con su hijo Jim y su hermana Carol. Underhill siempre ignoró el parque de juegos cercano a su casa hasta que Carol menciona que llevará a Jim para que juegue con otros niños. Intrigado y preocupado, Underhill visita el parque y queda horrorizado por lo que ve: niños lastimándose en un ambiente que se asemeja más a un campo de batalla que a un lugar de diversión. El olor a medicamentos y los gritos constantes le recuerdan las brutalidades de su propia infancia, llenándolo de terror. A pesar de su resistencia, Carol insiste en que Jim necesita aprender a ser fuerte enfrentando la crudeza de la vida desde pequeño. Underhill, aterrorizado por lo que podría sucederle a su hijo, está dispuesto a hacer cualquier cosa para protegerlo.

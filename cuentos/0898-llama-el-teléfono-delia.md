@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-llama-el-telefono-delia/2062/
 
+
+**Imagen:** 0898-llama-el-teléfono-delia.jpg
 ---
 
 Sinopsis: «Llama el teléfono, Delia» es un cuento de Julio Cortázar escrito en 1938 y publicado el 22 de octubre de 1941 en el periódicoEl Despertar de Chivilcoy. Narra la historia de Delia, una joven madre que vive con su hijo Babe en un pequeño apartamento. Abandonada hace dos años por Sonny, el padre del niño, lucha por mantener a su hijo a la vez que trata de sobrellevar el dolor de la separación. Un día, mientras hace las tareas del hogar y escucha la radio, recibe una inesperada llamada telefónica. Es Sonny, que busca el perdón de Delia.

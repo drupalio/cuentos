@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-las-ratas-de-las-paredes/14174/
 
+
+**Imagen:** 0963-las-ratas-de-las-paredes.jpg
 ---
 
 Sinopsis: En «Las ratas en las paredes» (The Rats in the Walls), cuento deH. P. Lovecraftpublicado en marzo de 1924 enWeird Tales, un acaudalado empresario estadounidense se muda a Exham Priory, una antigua mansión familiar que ha restaurado. La propiedad, deshabitada desde el reinado de Jacobo I tras una tragedia que llevó a su antepasado Walter De La Poer a huir a América, es objeto de temores y supersticiones locales. A pesar de su escepticismo, el protagonista empieza a notar comportamientos extraños en sus gatos y ruidos inexplicables que parecen provenir de las paredes. Con la ayuda del capitán Norrys y otros expertos, descubre que la mansión oculta secretos macabros relacionados con rituales ancestrales y horrores inimaginables.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-circe/26061/
 
+
+**Imagen:** 0459-circe.webp
 ---
 
 Sinopsis:«Circe» es un cuento de Julio Cortázar, publicado en 1951 dentro de la colecciónBestiario. Sombríos rumores rodean a Delia Mañara, una joven marcada por la trágica muerte de sus dos antiguos novios. Mario, un vecino del barrio, decide defenderla de las murmuraciones y comienza a frecuentarla, adentrándose poco a poco en el hermético mundo de los Mañara. Allí, Delia lo atrae con sus singulares habilidades culinarias y rituales domésticos, mientras el joven intenta descifrar el enigma de una mujer que parece ejercer una influencia inquietante sobre todo lo que la rodea.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/dino-buzzati-el-colombre/28416/
 
+
+**Imagen:** 0020-el-colombre.webp
 ---
 
 Sinopsis:«El colombre» (Il colombre) es un cuento del escritor italiano Dino Buzzati, publicado el 22 de agosto de 1961 en el diarioCorriere della Sera. Al cumplir doce años, Stefano Roi acompaña por primera vez a su padre, capitán de un velero, durante una travesía. Desde la popa distingue una criatura oscura que sigue la estela del barco y que nadie más parece advertir. Su padre reconoce al temible colombre, un tiburón misterioso que elige a una víctima y la persigue durante toda su vida. Obligado a alejarse del mar para sobrevivir, Stefano crece en tierra firme, desarrollando una secreta obsesión por el monstruo que aguarda pacientemente su regreso.

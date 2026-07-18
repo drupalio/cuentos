@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-laura/3798/
 
+
+**Imagen:** 1367-saki-laura.jpg
 ---
 
 —¿No te estarás muriendo de verdad? —preguntó Amanda.

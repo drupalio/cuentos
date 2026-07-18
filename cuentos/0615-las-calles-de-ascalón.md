@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/harry-harrison-las-calles-de-ascalon/25221/
 
+
+**Imagen:** 0615-las-calles-de-ascalón.webp
 ---
 
 Sinopsis:«Las calles de Ascalón» (The Streets of Ashkelon) es un cuento de ciencia ficción de Harry Harrison, publicado en septiembre de 1962 en la revistaNew Worlds Science Fiction. En el remoto mundo de Wesker, Gath, un comerciante ateo, convive con una sociedad de anfibios inteligentes que desconocen la religión y cualquier forma de superstición. La armonía se quiebra cuando arriba el padre Mark, un misionero decidido a evangelizar a los nativos. Su presencia desencadena un conflicto que amenaza con alterar la frágil convivencia del planeta.

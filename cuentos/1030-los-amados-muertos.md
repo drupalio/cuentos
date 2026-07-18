@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/c-m-eddy-jr-h-p-lovecraft-los-amados-muertos/21777/
 
+
+**Imagen:** 1030-los-amados-muertos.webp
 ---
 
 Sinopsis: «Los amados muertos» (The Loved Dead) es un cuento escrito por C. M. Eddy, Jr. y H. P. Lovecraft, publicado enWeird Talesen mayo de 1924. La historia sigue la confesión de un hombre marcado desde su infancia por una sombría fascinación hacia la muerte. Desde sus primeros años, su naturaleza retraída y melancólica lo aparta de los demás. Un día, durante el funeral de su abuelo, experimenta una inquietante revelación que transformará su vida. A partir de entonces, su existencia se ve impulsada por un deseo irresistible de acercarse a los muertos, desatando una oscura y trágica obsesión.

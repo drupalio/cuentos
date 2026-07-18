@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/sheridan-le-fanu-schalken-el-pintor/15613/
 
+
+**Imagen:** 0750-schalken-el-pintor.webp
 ---
 
 Sinopsis: «Schalken el pintor» (Schalken the Painter) es un relato gótico de Joseph Sheridan Le Fanu, publicado en 1851 en la colecciónGhost Stories and Tales of Mystery, como una revisión del cuento «Strange Event in the Life of Schalken the Painter» (1839). La narración, que mezcla el arte con lo sobrenatural, sigue la misteriosa historia del pintor Godfrey Schalken, alumno de Gerard Douw, y su amor por la joven Rose Velderkaust. Lo que comienza como un romance apasionado se transforma en una pesadilla cuando un oscuro y siniestro pretendiente, Meinheer Vanderhausen, entra en escena. La obra destaca por su atmósfera opresiva y su tensión creciente, mientras teje una historia de amor trágico.

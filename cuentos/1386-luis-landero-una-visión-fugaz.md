@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/luis-landero-una-vision-fugaz/2493/
 
+
+**Imagen:** 1386-luis-landero-una-visión-fugaz.jpg
 ---
 
 Mis padres eran campesinos, yo era muy niño, vivíamos en Alburquerque, un pueblo extremeño rayano con Portugal y dejado de la mano de Dios, y aunque teníamos casa en el pueblo, casi siempre vivíamos en el campo, en el puro campo, una finca de secano que distaba unos quince kilómetros del pueblo por un camino pedregoso de tierra, y que se llamaba y se sigue llamando Valdeborrachos. Ir y venir del pueblo al campo, en aquellos tiempos, era ponerse en camino de verdad, era un viaje que tenía toda la gravedad y el espíritu aventurero de los grandes viajes antiguos, de Odiseo, de Simbad, de los caballeros andantes, de los descubridores y conquistadores, de Caperucita Roja, de los príncipes y sastrecillos que iban en busca del dragón, de Ahab y la ballena.

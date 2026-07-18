@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-la-llamada-de-cthulhu/14738/
 
+
+**Imagen:** 0918-la-llamada-de-cthulhu.webp
 ---
 
 Sinopsis: «La llamada de Cthulhu» (The Call of Cthulhu) es un cuento de H. P. Lovecraft, publicado en febrero de 1928 en la revistaWeird Tales. Tras la misteriosa muerte del profesor Angell, su sobrino Francis Thurston hereda sus archivos y encuentra una caja cerrada que contiene notas, recortes de prensa y un extraño bajorrelieve. Al investigar su contenido, comienza a descubrir una red de conexiones oscuras que conducen a una entidad ancestral, adorada por cultos secretos y asociada a una amenaza latente que descansa en las profundidades del océano.

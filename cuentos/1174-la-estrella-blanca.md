@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-la-estrella-blanca/1233/
 
+
+**Imagen:** 1174-la-estrella-blanca.webp
 ---
 
 «La estrella blanca» es un cuento de Emilia Pardo Bazán publicado enLa Esferael 3 de enero de 1912. Relata la historia de tres reyes sabios: Baltasar, un anciano astrónomo que dedica su vida a desentrañar los secretos del cielo; Gaspar, un poderoso guerrero obsesionado con conquistar Roma y alcanzar la gloria; y Melchor, un joven apasionado que anhela ser amado con sinceridad. Una noche, los tres se reúnen en el palacio de Baltasar, quien les revela un enigma celestial que ha descubierto tras años de estudio y contemplación, despertando en ellos una nueva esperanza.

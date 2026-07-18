@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-tramontana/27867/
 
+
+**Imagen:** 0137-tramontana.webp
 ---
 
 Sinopsis:«Tramontana» es un cuento de Gabriel García Márquez, escrito en 1982 y publicado en 1992 en el libroDoce cuentos peregrinos. En un cabaret de Barcelona, un joven caribeño es acosado por un grupo de suecos que quiere llevarlo a Cadaqués para continuar la fiesta. El muchacho se resiste con evidente angustia, convencido de que volver a ese pueblo significaría su muerte. El narrador, testigo de la escena, comprende ese espanto instintivo y rememora su propia experiencia con la tramontana: un viento inclemente y tenaz que, según la creencia local, trae consigo los gérmenes de la locura.

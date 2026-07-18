@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-caza-mayor/5245/
 
+
+**Imagen:** 0150-caza-mayor.jpg
 ---
 
 Sinopsis: En «Caza mayor» (Big Game), cuento de Isaac Asimov publicado enBefore the Golden Age(1974), un grupo de amigos en un bar discute sobre una máquina del tiempo que ha enviado un ratón al futuro sin efectos nocivos. La conversación da un giro inesperado cuando un hombre, Hornby, afirma haber viajado al pasado y descubierto la verdadera causa de la extinción de los dinosaurios. Con su relato, Hornby desafía las teorías comunes y sugiere una explicación sorprendente y poco convencional sobre el destino de estas criaturas prehistóricas, dejando a sus amigos intrigados y cuestionando lo que sabían sobre la historia antigua.

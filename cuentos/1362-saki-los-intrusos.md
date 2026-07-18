@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-los-intrusos/4125/
 
+
+**Imagen:** 1362-saki-los-intrusos.jpg
 ---
 
 En medio de un bosque de abigarrada vegetación, situado en un paraje de los confines orientales de los Cárpatos, cierta noche de invierno, hallábase un hombre en atenta observación y a la escucha, como a la espera de que alguna bestia selvática apareciese en su campo de visión y, más tarde, al alcance de su rifle. Pero la pieza que mantenía tan viva su atención no era de las que figuran en los calendarios de lossportmencomo de caza legal y autorizada; Ulrich von Gradwitz patrullaba por el tenebroso bosque en busca de un enemigo humano.

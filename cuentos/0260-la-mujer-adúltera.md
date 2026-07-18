@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/albert-camus-la-mujer-adultera/802/
 
+
+**Imagen:** 0260-la-mujer-adúltera.jpg
 ---
 
 Sinopsis: «La mujer adúltera» (La femme adultère), cuento del escritor francés Albert Camus, narra un viaje introspectivo y transformador de Janine, una mujer que acompaña a su esposo Marcel en un viaje de negocios por el desierto argelino. A lo largo del viaje, Janine experimenta un profundo sentimiento de soledad y descontento con su vida matrimonial y cotidiana. La narración detalla sus observaciones y reflexiones sobre el entorno, las personas que encuentran y, especialmente, su propio estado emocional y existencial. A través del vasto y desolado paisaje del desierto, Janine se enfrenta a sus deseos reprimidos, su sensación de vacío y la búsqueda de un significado más profundo en su vida.

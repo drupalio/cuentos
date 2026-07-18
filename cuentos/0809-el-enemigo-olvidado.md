@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-c-clarke-el-enemigo-olvidado/6448/
 
+
+**Imagen:** 0809-el-enemigo-olvidado.webp
 ---
 
 Sinopsis: «El enemigo olvidado» (The Forgotten Enemy) es un relato de Arthur C. Clarke publicado en 1949 en la revista New Worlds. En un mundo postapocalíptico cubierto de nieve y hielo, el profesor Millward vive aislado en una desierta Londres, rodeado de los libros que ha preservado durante años. Una noche, un misterioso sonido procedente del norte interrumpe la tranquilidad y le hace albergar la esperanza de que podría haber otros seres humanos regresando. Millward se aventura en la ciudad abandonada y trata de descubrir el origen de los ruidos, mientras hace frente a su soledad y a los peligros de un entorno hostil.

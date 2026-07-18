@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-enemigos/22260/
 
+
+**Imagen:** 0149-enemigos.webp
 ---
 
 Sinopsis:«Enemigos» (Враги) es un cuento de Antón Chéjov, publicado el 20 de enero de 1887 en la revistaTiempo nuevo. La historia se inicia en la casa del médico Kirílov, donde su hijo ha muerto de difteria y su esposa permanece sumida en el dolor. En medio de esta tragedia, un desconocido irrumpe suplicando ayuda urgente para atender a su mujer enferma. Con el ánimo devastado y el cuerpo exhausto, el doctor se enfrenta a un dilema moral: permanecer junto a su familia o acudir al llamado de otro ser humano que sufre. En esta tensa encrucijada, dos desconocidos unidos por la desgracia descubrirán que no todo sufrimiento genera entendimiento.

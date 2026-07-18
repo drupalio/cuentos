@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/george-r-r-martin-los-reyes-de-la-arena/16303/
 
+
+**Imagen:** 0778-los-reyes-de-la-arena.webp
 ---
 
 Sinopsis: «Los reyes de la arena» (Sandkings), es un relato de George R. R. Martin publicado en la revista Omni en agosto de 1979 que combina magistralmente el horror y la ciencia ficción. La historia sigue a Simon Kress, un acaudalado coleccionista de criaturas exóticas en un planeta lejano. Aburrido de sus mascotas habituales, busca algo más desafiante y descubre a los «reyes de la arena»: pequeños insectoides inteligentes que forman sociedades complejas y veneran a su dueño como a un dios. Fascinado por estos seres, Kress los somete a crueles experimentos y los enfrenta en batallas mortales por diversión. Su obsesión y arrogancia lo llevan a cruzar límites peligrosos, desencadenando eventos que amenazan no solo su vida, sino también la de quienes lo rodean. En 1980 el relato obtuvo el galardón a la mejor novelette tanto en los premios Hugo como Nebula.

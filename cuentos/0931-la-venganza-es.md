@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/theodore-sturgeon-la-venganza-es/23064/
 
+
+**Imagen:** 0931-la-venganza-es.webp
 ---
 
 Sinopsis: En «La venganza es.» (Vengeance Is.), cuento de Theodore Sturgeon, publicado en 1980 en la antologíaDark Forces, un hombre entra en un bar rural y entabla conversación con el camarero. Le pide una cerveza y comienza a hacer preguntas sobre dos hermanos locales, conocidos por su comportamiento violento con las mujeres. A medida que beben y dialogan, el camarero recuerda varios episodios de ataques que oyó contar, algunos relatados por los propios autores y otros transmitidos como rumores. La charla toma un giro inesperado cuando el visitante deja entrever que su interés en los hermanos va más allá de la simple curiosidad.

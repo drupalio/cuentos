@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-la-dama-del-perrito/12016/
 
+
+**Imagen:** 1230-la-dama-del-perrito.jpg
 ---
 
 «La dama del perrito», cuento de Antón Chéjov, narra la historia de Dmitri Gurov, un hombre casado que se encuentra de vacaciones en Yalta, donde conoce a Anna Serguéyevna, una joven también casada, que pasea a su perro. Entre ellos surge una amistad que rápidamente se convierte en una relación amorosa. A través de su encuentro, Chéjov explora la complejidad de las emociones humanas y las convenciones sociales, en una reflexión sobre la soledad, el amor y el deseo de escapar de la monotonía de la vida cotidiana.

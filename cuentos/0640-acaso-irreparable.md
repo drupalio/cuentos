@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-acaso-irreparable/8343/
 
+
+**Imagen:** 0640-acaso-irreparable.webp
 ---
 
 Sinopsis:«Acaso irreparable», cuento deMario Benedettiaparecido en el libroLa muerte y otras sorpresas(1968), narra la experiencia de Sergio Rivera, un viajero cuyo vuelo se retrasa repetidamente, lo que lo lleva a pasar varios días en un hotel. Durante su estadía, Rivera reflexiona sobre su vida, interactúa con otros pasajeros y gradualmente se desconecta de sus obligaciones y recuerdos, sumergiéndose en la inesperada pausa de su rutina. Tras esta aparente calma se esconde un secreto que sólo su hijo le podrá develar.

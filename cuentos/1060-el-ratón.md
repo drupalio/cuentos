@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-el-raton/4856/
 
+
+**Imagen:** 1060-el-ratón.jpg
 ---
 
 Sinopsis: «El ratón» (The Mouse), es un cuento de Hector Hugh Munro(Saki) publicado en 1910 en la colecciónReginald in Russia and Other Sketches. Narra un episodio en la vida de Theodoric Voler, un peculiar sujeto, fruto de una madre sobreprotectora. Durante un viaje en tren, Theodoric se encuentra en una situación embarazosa al descubrir que un ratón se ha colado en su ropa. La única alternativa para librarse del roedor es quitarse los pantalones; no obstante, en su vagón también viaja una mujer, lo que complica su situación.

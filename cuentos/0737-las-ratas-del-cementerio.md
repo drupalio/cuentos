@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/henry-kuttner-las-ratas-del-cementerio/16737/
 
+
+**Imagen:** 0737-las-ratas-del-cementerio.webp
 ---
 
 Sinopsis: «Las ratas del cementerio» (The Graveyard Rats) es un cuento de terror de Henry Kuttner, publicado en la revistaWeird Talesen marzo de 1936. La historia sigue a Masson, el guardián de un antiguo y descuidado cementerio en Salem, donde enormes y voraces ratas excavan túneles entre las tumbas para robar los cuerpos recién sepultados. Esta actividad amenaza el oscuro negocio de Masson, quien complementa su trabajo como guardián con el saqueo de tumbas. Un día, al intentar desenterrar un cadáver, Masson descubre que las ratas se le han adelantado. Lo que sigue es una frenética y aterradora persecución para recuperar su botín, que lo llevará a enfrentarse a horrores más allá de lo imaginable.

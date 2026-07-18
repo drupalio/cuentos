@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jean-paul-sartre-erostrato/728/
 
+
+**Imagen:** 0427-eróstrato.webp
 ---
 
 Sinopsis:«Eróstrato» (Érostrate) es un cuento de Jean-Paul Sartre, publicado en 1939 en el libroLe mur. Narra la historia de un hombre solitario y resentido que observa a la humanidad con una mezcla de superioridad y repulsión. Obsesionado por la búsqueda de una gloria infame e inspirado por la figura de Eróstrato, quien en la antigüedad incendió el templo de Artemisa en Éfeso con el único propósito de pasar a la posteridad, adquiere un revólver y comienza a planificar un crimen que le dé la fama que necesita para trascender su propia insignificancia.

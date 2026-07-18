@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-los-inmigrantes/6093/
 
+
+**Imagen:** 1004-los-inmigrantes.jpg
 ---
 
 Sinopsis: «Los inmigrantes» es un cuento corto de Horacio Quiroga publicado el 6 de diciembre de 1912 en la revistaFray Mocho. La historia comienza con una pareja de colonos europeos que avanza penosamente por el Chaco bajo una lluvia densa y un calor sofocante. Agotados y empapados, intentan alcanzar al grupo del que se han separado, pero la mujer, que está embarazada y enferma, comienza a desvanecerse. El hombre, desesperado, improvisa un refugio en medio de la selva. Aislados y vulnerables, ambos enfrentan el entorno hostil con una mezcla de resignación y obstinación que revela la crudeza de su destino.

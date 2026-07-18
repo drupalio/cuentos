@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-anaconda/5181/
 
+
+**Imagen:** 0952-anaconda.jpg
 ---
 
 Sinopsis: «Anaconda» es un cuento de Horacio Quiroga, publicado el 12 de abril de 1918 en la revistaEl Cuento Ilustrado, y reeditado en la colecciónAnaconda(1921) con numerosas modificaciones. La historia comienza en la selva, donde Lanceolada, una yarará, descubre la llegada del Hombre y alerta a las demás serpientes venenosas. Ante la amenaza de un Instituto de Seroterapia Ofídica que planea capturar víboras para extraer su veneno, se convoca un Congreso de las Víboras. Las diferentes especies deliberan estrategias de defensa y enfrentan tensiones internas, mientras se preparan para un conflicto que pone en juego su supervivencia.

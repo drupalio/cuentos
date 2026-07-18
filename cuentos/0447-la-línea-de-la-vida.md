@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-a-heinlein-la-linea-de-la-vida/19855/
 
+
+**Imagen:** 0447-la-línea-de-la-vida.webp
 ---
 
 Sinopsis: «La línea de la vida» (Life-Line), es un cuento de Robert A. Heinlein, publicado en agosto de 1939 enAstounding Science-Fiction. Narra la historia del excéntrico doctor Hugo Pinero, quien afirma haber desarrollado un método científico para predecir con exactitud la fecha de muerte de cualquier persona. Enfrentado a la incredulidad y el desprecio de la comunidad científica, Pinero desafía a sus críticos con demostraciones que sacuden la confianza de sus detractores. A medida que la controversia crece, su descubrimiento amenaza con alterar el orden social y generar intensas reacciones entre quienes ven en su invención un peligro.

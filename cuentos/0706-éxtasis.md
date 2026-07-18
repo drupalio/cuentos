@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/katherine-mansfield-extasis-2/7624/
 
+
+**Imagen:** 0706-éxtasis.webp
 ---
 
 Sinopsis: «Éxtasis»(Bliss) es un cuento de Katherine Mansfield publicado en agosto de 1918 enEnglish Review. Relata una jornada en la vida de Bertha Young, una mujer de treinta años que experimenta una felicidad desbordante y una profunda sensación de plenitud. Mientras organiza una cena en su casa, su alegría se refleja en los pequeños detalles de la vida cotidiana: la ternura hacia su hija, la satisfacción con su matrimonio y la belleza de su jardín, donde un peral en flor parece simbolizar su estado de ánimo. Sin embargo, entre los gestos y miradas de los invitados, se vislumbra un detalle inesperado que amenaza con alterar su armonía.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/kate-chopin-una-mujer-respetable/22994/
 
+
+**Imagen:** 0870-una-mujer-respetable.webp
 ---
 
 Sinopsis: «Una mujer respetable» (A Respectable Woman) es un cuento de la escritora estadounidense Kate Chopin, publicado el 15 de febrero de 1894 en la revistaVoguey más tarde incluido en la colecciónA Night in Acadie(1897). La historia comienza cuando la señora Baroda se entera, con cierta molestia, de que su esposo ha invitado a un viejo amigo a pasar unos días en su plantación, lo que interrumpe sus planes de disfrutar de una temporada de paz y tranquilidad. Aunque al principio imagina al visitante con antipatía, pronto su actitud hacia él comienza a cambiar, despertándose en ella una inquietud inesperada.

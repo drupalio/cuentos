@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-casa-tomada/1171/
 
+
+**Imagen:** 0566-casa-tomada.jpg
 ---
 
 Sinopsis: «Casa tomada» es un cuento de Julio Cortázar publicado en 1951 en el libroBestiario. Irene y su hermano viven en una antigua y espaciosa casa heredada de sus antepasados. La casa, llena de recuerdos familiares, es cuidada minuciosamente por ambos, quienes llevan una vida rutinaria y tranquila. Irene pasa sus días tejiendo, mientras que su hermano se encarga de las tareas del hogar. Un día, extraños ruidos comienzan a escucharse desde la parte más lejana de la casa, forzando a los hermanos a abandonar ciertas habitaciones. Los sonidos se intensifican y los hermanos se ven obligados a confinarse en una sección más pequeña de la casa, viviendo en un estado de creciente inquietud.

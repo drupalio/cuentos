@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/manuel-rojas-delincuente/616/
 
+
+**Imagen:** 1306-el-delincuente.jpg
 ---
 
 Yo vivo en un conventillo. Es un conventillo que no tiene de extraordinario más que un gran árbol que hay en el fondo de su patio, un árbol corpulento, de tupido y apretado ramaje, en el que se albergan todos los chincoles, diucas y gorriones del barrio; este árbol es para los pájaros una especie de conventillo; es un conventillo dentro de otro. Ignoro si la vida que se desarrolla en ese conventillo de ramas y hojas tiene algún parecido con la que se vive en el mío. Bien pudiera ser. He leído que algunos sabios han encontrado analogías entre la vida de ciertas aves y animales y la de los seres humanos. Si los sabios lo dicen, debe ser verdad. Yo, como soy peluquero, no entiendo de esas cosas.

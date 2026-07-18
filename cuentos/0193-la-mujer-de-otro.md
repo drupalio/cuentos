@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/abelardo-castillo-la-mujer-de-otro/88/
 
+
+**Imagen:** 0193-la-mujer-de-otro.jpg
 ---
 
 Sinopsis:«La mujer de otro» es un cuento deAbelardo Castillo, publicado en 1997 en su volumenCuentos completos. La narración comienza cuando un hombre se presenta inesperadamente en la casa del esposo de Carolina. Lo recibe el dueño de casa, un sujeto solitario y cordial, con quien entabla una conversación íntima y extrañamente serena, cargada de silencios y recuerdos difusos. En una cocina modesta, entre mates y viejas fotografías, se construye una atmósfera introspectiva y ambigua, marcada por la ausencia de una mujer que, en vida, pareció envolverse en un aura de secretos impenetrables.

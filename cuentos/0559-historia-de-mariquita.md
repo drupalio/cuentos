@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guadalupe-duenas-historia-de-mariquita/16744/
 
+
+**Imagen:** 0559-historia-de-mariquita.webp
 ---
 
 Sinopsis:«Historia de Mariquita» es un inquietante cuento de Guadalupe Dueñas publicado en 1958 en la colecciónTiene la noche un árbol. Narra la inquietante historia de una familia que se ve obligada a mudarse continuamente debido a la macabra relación que mantiene el padre con su hija mayor. Los secretos que guardan y la tensión que esto genera impactan emocionalmente a las hermanas, creando una atmósfera de melancolía y misterio que se prolonga en el tiempo.

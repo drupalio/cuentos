@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/frank-belknap-long-los-perros-de-tindalos/16562/
 
+
+**Imagen:** 0682-los-perros-de-tíndalos.webp
 ---
 
 SINOPSIS: «Los perros de Tíndalos» (The Hounds of Tindalos) es un cuento de Frank Belknap Long, publicado enWeird Talesen marzo de 1929, dentro del universo de los Mitos de Cthulhu. La historia sigue a Halpin Chalmers, un erudito fascinado por los misterios del tiempo y el espacio, que decide realizar un experimento audaz para confirmar sus teorías. Utilizando una extraña sustancia asiática que altera la percepción, Chalmers pretende viajar mentalmente a través del tiempo, observando las vidas de sus antepasados hasta el origen de la humanidad. Sin embargo, lo que comienza como un fascinante viaje pronto se transforma en una horrible pesadilla.

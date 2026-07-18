@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/osamu-dazai-ubasute/266/
 
+
+**Imagen:** 0026-ubasute.webp
 ---
 
 Sinopsis:«Ubasute» (姥捨) es un cuento del escritor japonés Osamu Dazai, publicado en octubre de 1938 en la revistaShinchō. Narra la historia de Kashichi y su esposa Kazue, un matrimonio en crisis que, acosado por las deudas, la infidelidad y el desgaste emocional, decide sellar un pacto de muerte. El relato describe sus últimas horas en Tokio y su melancólico viaje hacia las gélidas montañas de Minakami, donde planean consumar su fatídico destino.

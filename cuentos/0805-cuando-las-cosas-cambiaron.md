@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/joanna-russ-cuando-las-cosas-cambiaron/23831/
 
+
+**Imagen:** 0805-cuando-las-cosas-cambiaron.webp
 ---
 
 Sinopsis:«Cuando las cosas cambiaron» (When It Changed) es un cuento de ciencia ficción escrito por Joanna Russ, publicado en 1972 en la antologíaAgain, Dangerous Visionsy galardonado con el premio Nebula en 1973. Ambientado en el planeta Whileaway, donde las mujeres han vivido sin presencia masculina durante siglos, el relato sigue a Janet y a su esposa, Katy, mientras enfrentan la inesperada llegada de un grupo de hombres procedentes de la Tierra. A través de la mirada de Janet, la narración explora la vida cotidiana en una sociedad exclusivamente femenina y el desconcierto que provocan los recién llegados, cuyas actitudes revelan una visión del mundo profundamente distinta.

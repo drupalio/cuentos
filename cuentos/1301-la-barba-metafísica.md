@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/felisberto-hernandez-la-barba-metafisica/6296/
 
+
+**Imagen:** 1301-la-barba-metafísica.jpg
 ---
 
 Felisberto HernándezaVenus González Olaza

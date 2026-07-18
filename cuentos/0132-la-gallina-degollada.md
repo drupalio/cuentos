@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-la-gallina-degollada/608/
 
+
+**Imagen:** 0132-la-gallina-degollada.jpg
 ---
 
 Sinopsis: «La gallina degollada» es un cuento de Horacio Quiroga que se publicó por primera vez el 10 de julio de 1909 en la revistaCaras y caretasy que luego se recopiló en la colecciónCuentos de amor locura y muerte(1917). Narra la historia de Mazzini y Berta, un matrimonio cuyos cuatro primeros hijos sufren un misterioso deterioro en su desarrollo que les provoca graves limitaciones cognitivas. Atrapados entre la desesperación y el amor, los padres se ven sumidos en un ciclo de angustia que se ve temporalmente aliviado con el nacimiento de su quinta hija, Bertita, quien crece sana y vigorosa. Sin embargo, la aparente normalidad de la familia es solo una fachada y un evento trágico revela las profundas fracturas que perviven en su seno. Un cuento clásico con un final perturbador.

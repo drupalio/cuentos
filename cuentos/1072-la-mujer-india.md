@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bram-stoker-la-mujer-india/8245/
 
+
+**Imagen:** 1072-la-mujer-india.jpg
 ---
 
 Sinopsis:«La mujer india» (The Squaw) es un cuento de Bram Stoker, publicado el 2 de diciembre de 1893 en la revistaHolly Leaves. Ambientado en Nuremberg, narra el encuentro de una joven pareja en su luna de miel con un excéntrico estadounidense, Elías P. Hutcheson, quien se une a ellos como compañero de viaje. Durante una visita al castillo y a la siniestra Torre de la Tortura, un trágico incidente con una gata negra y su cría desencadena una secuencia de eventos cada vez más inquietantes, marcados por una oscura atmósfera de odio, obsesión y venganza.

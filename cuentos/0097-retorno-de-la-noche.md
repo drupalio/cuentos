@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-retorno-de-la-noche/28087/
 
+
+**Imagen:** 0097-retorno-de-la-noche.webp
 ---
 
 Sinopsis:«Retorno de la noche» es un cuento de Julio Cortázar escrito en 1941 y publicado póstumamente en 1994, en el primer volumen de susCuentos completos. Un hombre despierta en mitad de la noche tras una pesadilla en la que ha sentido su propia agonía: un fuerte dolor en el pecho, fiebre, sudor frío y un miedo que lo sobrecoge. Todavía confundido, sin saber si realmente ha escapado del sueño, enciende la luz, se levanta y camina hacia el espejo del armario. Allí descubre que su imagen ha desaparecido y que en la cama yace su propio cuerpo, pálido, frío y sin vida.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ana-maria-matute-la-rama-seca/15200/
 
+
+**Imagen:** 0886-la-rama-seca.webp
 ---
 
 Sinopsis: «La rama seca», cuento de Ana María Matute publicado en 1961 en el libroHistorias de la Artámila, es un emotivo relato que sigue la vida de una niña solitaria cuya única compañía es su muñeca Pipa, hecha de una ramita seca. La niña pasa los días jugando y hablando con Pipa sentada al borde de la ventana de su casa. Doña Clementina, una vecina sin hijos, observa a la niña y desarrolla un interés afectuoso por ella y su juego. Un día, la niña se pone enferma y doña Clementina hará todo lo posible para que su estado sea más llevadero.

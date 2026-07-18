@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-argumento-para-una-novela/6377/
 
+
+**Imagen:** 1294-argumento-para-una-novela.jpg
 ---
 
 Hay individuos cuya pobre existencia cambia de golpe al contacto de una mujer. Otros cambian al encuentro de un billete de lotería. Y otros, al encuentro de un automóvil.

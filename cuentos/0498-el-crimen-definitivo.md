@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-el-crimen-definitivo/18556/
 
+
+**Imagen:** 0498-el-crimen-definitivo.webp
 ---
 
 Sinopsis:«El crimen definitivo» (The Ultimate Crime) es un relato de Isaac Asimov que forma parte de la colecciónMore Tales of the Black Widowers(1976). La historia se desarrolla durante una de las cenas mensuales del exclusivo club de las Viudas Negras, donde la conversación gira en torno a Sherlock Holmes y su némesis, el profesor Moriarty. Un invitado, miembro de los Irregulares de Baker Street, plantea un intrigante enigma literario relacionado con el tratado ficticio de Moriarty tituladoLa dinámica de un asteroide. La velada se convierte en un brillante intercambio de ideas donde los miembros del club exploran teorías que conectan ciencia, literatura y la mente criminal, revelando el fascinante ingenio colectivo del grupo.

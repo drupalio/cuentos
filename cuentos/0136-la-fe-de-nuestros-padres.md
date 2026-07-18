@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-la-fe-de-nuestros-padres/13661/
 
+
+**Imagen:** 0136-la-fe-de-nuestros-padres.jpg
 ---
 
 Sinopsis: «La fe de nuestros padres» (Faith of Our Fathers) es un relato de ciencia ficción escrito por Philip K. Dick, incluido por primera vez en la antologíaDangerous Visions, editada por Harlan Ellison en 1967. La historia se desarrolla en un futuro distópico bajo el dominio de un gobierno comunista totalitario que controla el mundo. El protagonista, Tung Chien, es un funcionario del partido con una carrera prometedora. Un día, un hombre inválido se le acerca y lo obliga a comprar unos extraños polvos. Creyendo que es rapé, Chien lo consume mientras observa un discurso del líder del partido, lo que desencadena una serie de visiones perturbadoras. Así, Chien comienza a descubrir que la realidad que lo rodea puede no ser lo que parece.

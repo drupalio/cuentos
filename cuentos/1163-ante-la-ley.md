@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/franz-kafka-ante-la-ley/2286/
 
+
+**Imagen:** 1163-ante-la-ley.jpg
 ---
 
 «Ante la Ley» (Vor dem Gesetz), cuento de Franz Kafka publicado en 1915, narra la historia de un hombre del campo que desea acceder a la Ley. Aunque la puerta permanece abierta, ante ella se encuentra un guardián que le impide la entrada. El hombre espera pacientemente, preguntando cuándo podrá entrar. Sin embargo, la respuesta siempre es negativa, y el hombre sigue esperando.

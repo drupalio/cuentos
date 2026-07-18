@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edith-wharton-un-viaje/7746/
 
+
+**Imagen:** 1262-un-viaje.jpg
 ---
 
 Acostada en su litera, con la mirada prendida en las sombras que se cernían sobre su cabeza, el apremiante ritmo de las ruedas persistía en su cerebro sumiéndola en círculos cada vez más profundos de desvelada lucidez. El coche cama había sucumbido al silencio nocturno. A través de los húmedos cristales de las ventanas contemplaba las luces fugaces, los largos jirones de presurosa oscuridad. De vez en cuando giraba la cabeza y miraba entre las rendijas de las cortinas de su marido, al otro lado del pasillo…

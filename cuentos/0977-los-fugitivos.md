@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alejo-carpentier-los-fugitivos/1083/
 
+
+**Imagen:** 0977-los-fugitivos.webp
 ---
 
 Sinopsis: «Los fugitivos» es un cuento de Alejo Carpentier, publicado el 4 de agosto de 1946 en el periódicoEl Nacionalde Venezuela. Ambientada en los paisajes tropicales del Caribe colonial, la historia sigue a un perro rastreador que, guiado por sus instintos, abandona la seguridad del ingenio para internarse en la selva tras la pista de un cimarrón. Atraído por olores que evocan deseo, peligro y libertad, el animal se adentra en la espesura, donde se cruza con los pasos del esclavo fugitivo. Así comienza una convivencia ambigua entre ambos, marcada por el instinto, la desconfianza y la necesidad.

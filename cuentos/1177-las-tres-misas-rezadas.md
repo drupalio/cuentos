@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alphonse-daudet-las-tres-misas-rezadas/4606/
 
+
+**Imagen:** 1177-las-tres-misas-rezadas.webp
 ---
 
 «Las tres misas rezadas» (Les Trois Messes bases) es un relato de Alphonse Daudet publicado en1875. Ambientado en la Nochebuena, en un castillo del Mont Ventoux, narra la historia del capellán Don Balaguer, quien se dispone a oficiar la tradicional Misa del Gallo. En el intertanto, su joven monaguillo Garrigou —que en realidad es el diablo disfrazado—, le tienta describiéndole el opulento festín que se servirá después de las ceremonias. Mientras los aldeanos y los nobles se reúnen en la capilla, el sacerdote lucha contra su creciente gula, perturbado por la visión de los singulares manjares que espera degustar, poniendo en peligro su devoción y su alma.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/miguel-de-unamuno-cruce-de-caminos/4437/
 
+
+**Imagen:** 0224-cruce-de-caminos.webp
 ---
 
 Sinopsis: «Cruce de caminos» es un conmovedor cuento corto de Miguel de Unamuno, publicado en julio de 1912 en El Imparcial. Narra la historia de un anciano caminante que, errando por una carretera solitaria de la España rural, se encuentra con una niña que duerme al pie de un árbol. Unidos ambos por la soledad y la pérdida deciden emprender juntos un viaje que estará cargado de melancolía, pero también de esperanza.

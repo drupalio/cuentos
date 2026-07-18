@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/charles-bukowski-la-chica-mas-guapa-la-ciudad/733/
 
+
+**Imagen:** 0877-la-chica-más-guapa-de-la-ciudad.webp
 ---
 
 Sinopsis: «La chica más guapa de la ciudad» (The Most Beautiful Woman In Town), relato de Charles Bukowski publicado en 1978, narra la trágica vida de Cass, una joven marcada por su inusual belleza y su lucha interna contra un mundo que no la comprende. Con su espíritu indomable y su rechazo a ser definida solo por su apariencia, Cass desafía las convenciones y abraza su propia locura, lo que la lleva a una existencia marcada por la autodestrucción. El cuento refleja la crudeza y el lirismo característicos de Bukowski para explorar temas como la soledad, la alienación y la superficialidad de las relaciones humanas.

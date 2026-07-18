@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/patricia-highsmith-dulce-libertad-y-una-merienda-en-el-jardin-de-la-casa-blanca/3655/
 
+
+**Imagen:** 1368-patricia-highsmith-dulce-libertad-y-una-merienda-en-el-jardín-de-la-casa-blanca.jpg
 ---
 
 Te topas con ellos en todas partes, en Nueva York, en Chicago o en Filadelfia, o ellos se topan contigo. Les llaman chiflados, si los ciudadanos se sienten tolerantes, o, caso contrario, parásitos. Están un poco locos o locas de remate y a menudo vociferan de cara al cielo o conversan animadamente con alguien cuando en realidad están solos.

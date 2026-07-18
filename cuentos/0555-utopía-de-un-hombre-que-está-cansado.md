@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-utopia-de-un-hombre-que-esta-cansado/5780/
 
+
+**Imagen:** 0555-utopía-de-un-hombre-que-está-cansado.jpg
 ---
 
 Sinopsis: «Utopía de un hombre que está cansado»,cuento deJorge Luis Borgespublicado en 1975 en la colecciónEl libro de arena, es un relato lírico de profundas raíces filosóficas, que narra el encuentro entre un hombre del siglo XX y un habitante del futuro. El protagonista, Eudoro Acevedo, llega a una casa donde un hombre alto y vestido de gris lo recibe. Durante su conversación en latín, el anfitrión revela un mundo aparentemente utópico, sin gobiernos, ciudades, ni posesiones materiales. La humanidad ha abolido la imprenta y cada individuo crea su propia ciencia y arte. Los habitantes viven en soledad y tienen el control total sobre su vida y muerte.

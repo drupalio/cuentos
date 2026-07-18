@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-el-otro/27708/
 
+
+**Imagen:** 0174-el-otro.webp
 ---
 
 Sinopsis:«El otro» es un cuento del escritor argentino Jorge Luis Borges, publicado en 1975 enEl libro de arena. Una mañana de febrero de 1969, en Cambridge, Jorge Luis Borges descansa en un banco frente al río Charles cuando un desconocido se sienta a su lado y empieza a silbar una vieja melodía criolla. Al reconocer la voz y los gestos, descubre con asombro que el extraño es él mismo, varias décadas más joven, sentado en un banco junto al Ródano, en Ginebra. Entre ambos se entabla una conversación que revela que el paso de los años no transcurre en vano.

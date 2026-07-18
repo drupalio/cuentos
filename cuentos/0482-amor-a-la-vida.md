@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jack-london-amor-a-la-vida/15030/
 
+
+**Imagen:** 0482-amor-a-la-vida.jpg
 ---
 
 Sinopsis: En «Amor a la vida» (Love of Life), Jack London narra la desgarradora travesía de dos hombres perdidos en el territorio canadiense. Debilitados y hambrientos, luchan por sobrevivir mientras la naturaleza implacable les somete a duras pruebas. Al enfrentarse a la escasez de alimentos y a las lesiones, su vínculo se rompe y uno de ellos abandona al otro. A partir de ese momento, la narración se centra en la odisea en solitario del hombre abandonado, que, despojado de casi todo, debe encontrar la fuerza y los medios para seguir adelante. La historia explora los límites de la resistencia humana y la lucha tenaz por la vida en medio de una desolación abrumadora.

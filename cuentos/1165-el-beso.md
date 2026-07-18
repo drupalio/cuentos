@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/angela-carter-el-beso/8453/
 
+
+**Imagen:** 1165-el-beso.webp
 ---
 
 Sinopsis:El besoes un cuento de Angela Carter, publicado en 1985 en la colecciónBlack Venus. Ambientado en la mágica ciudad de Samarcanda, el relato entrelaza mito e historia para narrar un episodio de la vida de la esposa de Tamerlán. En un contexto de vivos colores y paisajes exóticos, la esposa intenta sorprender al afamado guerrero, que regresa de sus conquistas, erigiendo una mezquita en su honor. Sin embargo, el astuto arquitecto plantea una inesperada condición para terminar a tiempo su trabajo.

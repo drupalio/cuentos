@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-las-islas-voladoras/1176/
 
+
+**Imagen:** 0957-las-islas-voladoras.jpg
 ---
 
 Sinopsis: «Las islas voladoras» es un cuento de Antón Chéjov, publicado en mayo de 1883 en la revistaБудильник(Alarma). Relato humorístico de ciencia ficción que parodia las populares obras de Julio Verne, narra la extravagante aventura de John Lund, un joven miembro de la Real Sociedad Geográfica, tras exponer un ambicioso proyecto para perforar la Luna. Poco después de su extensa conferencia, Lund es abordado por el enigmático William Bolvanius, un excéntrico científico que lo invita a su observatorio. Fascinado por unos misteriosos puntos cerca de la Luna, Bolvanius propone una audaz expedición para investigarlos, llevando a Lund y a su criado Tom Grouse en un arriesgado viaje hacia lo desconocido.

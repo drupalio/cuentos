@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anne-rice-el-dueno-de-rampling-gate/24320/
 
+
+**Imagen:** 0752-el-dueño-de-rampling-gate.webp
 ---
 
 Sinopsis: «El dueño de Rampling Gate» (The Master of Rampling Gate) es un cuento gótico de Anne Rice publicado en febrero de 1984 en la revistaRedbook. Narra la historia de Julie y su hermano Richard, herederos de una antigua mansión inglesa que su padre, en su lecho de muerte, ordenó destruir piedra a piedra. Intrigados por aquel mandato incomprensible, los jóvenes viajan hasta Rampling Gate para conocerla antes de decidir su destino. En la quietud solemne y misteriosa de la propiedad se percibe la presencia de una inquietante verdad que yace enterrada bajo siglos de silencio.

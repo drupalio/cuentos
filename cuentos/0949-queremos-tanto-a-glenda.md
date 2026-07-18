@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-queremos-tanto-a-glenda/8412/
 
+
+**Imagen:** 0949-queremos-tanto-a-glenda.webp
 ---
 
 Sinopsis: «Queremos tanto a Glenda» es un cuento de Julio Cortázar, incluido en el libro del mismo nombre publicado en 1980. Relata la historia de un grupo de cinéfilos que, más allá de la admiración habitual, desarrolla una devoción absoluta por la actriz Glenda Garson. Unidos por ese afecto, mediante encuentros fortuitos, miradas cómplices y rituales tácitos, el grupo va construyendo una comunidad secreta en torno a la figura de la artista. Lo que comienza como un gesto de simple admiración se convierte, poco a poco, en una misión colectiva en la que el amor por Glenda adquiere dimensiones inesperadas y obsesivas.

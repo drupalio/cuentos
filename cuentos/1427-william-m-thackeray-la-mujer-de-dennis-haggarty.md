@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/william-m-thackeray-la-mujer-dennis-haggarty/1045/
 
+
+**Imagen:** 1427-william-m-thackeray-la-mujer-de-dennis-haggarty.jpg
 ---
 
 Había una odiosa irlandesa, conocida como la señora del mayor Gam, que frecuentaba hace unos años con su hija el Hotel Royal de Leamington. Gam había sido un distinguido oficial al servicio de Su Majestad, al que sólo la muerte y su encantadora esposa pudieron vencer. La viuda lloró la pérdida de su marido con el mejor bombasí que logró adquirir, y con una franja negra de al menos una pulgada alrededor de las enormes tarjetas de visita que dejaba en casa de sus amigos de la aristocracia y de la alta burguesía.

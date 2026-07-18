@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-las-babas-del-diablo/5441/
 
+
+**Imagen:** 1318-julio-cortázar-las-babas-del-diablo.jpg
 ---
 
 Nunca se sabrá cómo hay que contar esto, si en primera persona o en segunda, usando la tercera del plural o inventando continuamente formas que no servirán de nada. Si se pudiera decir: yo vieron subir la luna, o: nos me duele el fondo de los ojos, y sobre todo así: tú la mujer rubia eran las nubes que siguen corriendo delante de mis tus sus nuestros vuestros sus rostros. Qué diablos.

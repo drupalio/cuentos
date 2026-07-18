@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-el-monje-negro/24233/
 
+
+**Imagen:** 0765-el-monje-negro.webp
 ---
 
 Sinopsis: «El monje negro» (Чёрный монах) es un cuento de Antón Chéjov, publicado en enero de 1894 en la revista Артистъ (Artista). La narración sigue a Andrei Kovrin, un intelectual agotado por el exceso de trabajo, que acepta la invitación de una familia amiga para pasar la primavera en su finca. Rodeado de jardines exuberantes y en compañía de Tania, la hija del horticultor Igor Semionovich, Kovrin recupera poco a poco la vitalidad perdida. Todo parecía ir mejor, hasta que un extraño relato sobre una antigua leyenda convoca en su mente la inquietante sombra del monje negro.

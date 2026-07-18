@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-una-aventura-nocturna/2630/
 
+
+**Imagen:** 0348-una-aventura-nocturna.jpg
 ---
 
 Sinopsis: «Una aventura nocturna» es un cuento del escritor peruano Julio Ramón Ribeyro, publicado en 1964 en la colecciónLas botellas y los hombres. Arístides es un hombre de cuarenta años sumido en la soledad y la monotonía. Su vida transcurre entre un trabajo gris en el municipio y un departamento desordenado. Sin amigos cercanos ni relaciones amorosas, encuentra refugio en los cines y parques, lugares donde su aislamiento parece diluirse entre las sombras de otros solitarios. Una noche, impulsado por un deseo de cambio, Arístides deambula por las calles de Miraflores hasta llegar a un café desolado donde se encuentra con una mujer coqueta y solitaria que promete darle un giro inesperado a su vida.

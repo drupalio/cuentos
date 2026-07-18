@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/w-w-jacobs-la-pata-de-mono/2804/
 
+
+**Imagen:** 0728-la-pata-de-mono.webp
 ---
 
 Sinopsis: «La pata de mono» (The Monkey’s Paw) es un cuento de W. W. Jacobs, publicado en 1902 en la colecciónThe Lady of the Barge. La historia transcurre en una casa modesta donde la familia White recibe la visita de un veterano soldado que les habla de un extraño talismán: una pata de mono con el poder de conceder tres deseos. A pesar de las advertencias sobre su peligrosidad, el señor White decide conservarla. Intrigados, los miembros de la familia comienzan a especular sobre qué pedir, sin sospechar que cada deseo puede tener consecuencias imprevistas y aterradoras.

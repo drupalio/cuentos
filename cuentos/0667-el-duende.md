@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elena-garro-el-duende/6421/
 
+
+**Imagen:** 0667-el-duende.webp
 ---
 
 Sinopsis: «El Duende», es un cuento deElena Garropublicado en 1964 en la colecciónLa semana de colores. Narra la historia de Eva y Leli, dos hermanas que pasan las calurosas tardes en el jardín de su casa, meciéndose en hamacas. Eva, intrigante y misteriosa, convence a Leli de que posee numerosos secretos sobre la vida y la muerte, asegurando tener una relación especial con un duende que habita en el jardín. Esta aura de misterio fascina a Leli, quien siente cariño y admiración por su hermana. Sin embargo, un hecho amenazará con comprometer para siempre la relación entre las hermanas, marcando un antes y un después en sus vidas.

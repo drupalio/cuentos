@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-la-ciudad-sin-nombre/7713/
 
+
+**Imagen:** 0446-la-ciudad-sin-nombre.jpg
 ---
 
 Sinopsis: En «La ciudad sin nombre» (The Nameless City), cuento deH. P. Lovecraftpublicado en noviembre de 1921 enThe Wolverine, el protagonista relata su aterradora exploración de una antigua y olvidada ciudad perdida en el desierto de Arabia. A pesar de las advertencias y los temores locales sobre este lugar maldito, cuya historia se pierde en la antigüedad, el hombre se adentra en sus ruinas. Allí, descubre vestigios de una civilización desconocida y profundamente inquietante, que practicaba ritos extraños y veneraba a seres reptilianos. A medida que explora templos subterráneos y pasajes descendentes, se enfrenta a la evidencia de una realidad escalofriante, que desafía la comprensión humana.

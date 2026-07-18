@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gustavo-adolfo-becquer-el-rayo-de-luna/12351/
 
+
+**Imagen:** 0316-el-rayo-de-luna.jpg
 ---
 
 Sinopsis: «El rayo de luna» es un relato de Gustavo Adolfo Bécquer que narra la historia de Manrique, un noble soñador y poeta que prefiere la soledad a la compañía de otros. Obsesionado con el mundo de la fantasía, busca la belleza y el amor idealizados en todo lo que lo rodea. Una noche, mientras pasea por las ruinas de un antiguo convento, Manrique cree ver a una misteriosa mujer vestida de blanco y se obsesiona con encontrarla, creyendo que es la encarnación de su amor ideal. Su búsqueda lo lleva por un viaje emocional lleno de ilusiones y desilusiones, mientras lucha por discernir entre la realidad y sus fantasías.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gene-wolfe-el-hombre-sin-cabeza/6864/
 
+
+**Imagen:** 1258-el-hombre-sin-cabeza.jpg
 ---
 
 Sin duda es muy amable de su parte leer la historia de alguien tan grotesco como yo… aunque tal vez a usted le guste lo grotesco. Cualquier otro se apartaría de mí. O se asustaría. O sentiría náuseas. No tengo cabeza.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/abelardo-castillo-patron/785/
 
+
+**Imagen:** 0196-patrón.jpg
 ---
 
 Sinopsis:«Patrón» es un cuento deAbelardo Castillo, publicado en 1966 en el libroCuentos crueles. Ambientado en el campo argentino, narra el destino de Paula, una joven de origen humilde, que acepta casarse con el poderoso Antenor Domínguez, dueño de la estancia La Cabriada. Antenor desea engendrar un heredero y, aunque supera a Paula en alrededor de 40 años, ha decidido que ella debe ser la madre. Desde su llegada a la casa grande, Paula descubre que nada escapa al dominio del viejo, ni la tierra ni los cuerpos, ni siquiera el porvenir.

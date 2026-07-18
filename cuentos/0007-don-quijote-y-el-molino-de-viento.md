@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/poul-anderson-don-quijote-y-el-molino-de-viento/25963/
 
+
+**Imagen:** 0007-don-quijote-y-el-molino-de-viento.webp
 ---
 
 Sinopsis:«Don Quijote y el molino de viento» (Quixote and the Windmill) es un cuento de Poul Anderson, publicado en noviembre de 1950 en Astounding Science Fiction. En el futuro, la Tierra ha alcanzado la plena automatización: la producción es casi totalmente automática, las máquinas realizan todas las tareas rutinarias y los seres humanos viven rodeados de comodidad, ocio y abundancia. La jornada laboral es mínima, las necesidades básicas están cubiertas y las personas pueden dedicar su tiempo a la creatividad y el esparcimiento. En este mundo de utopía tecnológica, dos hombres beben en un bar mientras ahogan su frustración por un mundo que parece ya no necesitarlos.

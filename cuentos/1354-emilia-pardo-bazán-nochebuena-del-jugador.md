@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-nochebuena-del-jugador/4835/
 
+
+**Imagen:** 1354-emilia-pardo-bazán-nochebuena-del-jugador.jpg
 ---
 
 El vicio del juego me dominaba. Cuando digo «el vicio del juego», debo advertir que yo no lo creía tal vicio, ni menos entendía que la ley pudiese reprimirlo sin atentar al indiscutible derecho que tiene el hombre de perder su hacienda lo mismo que de ganarla. «De la propiedad es lícito usar y abusar», repetía yo desdeñosamente, burlándome de los consejos de algún amigo timorato.

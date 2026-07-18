@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/luis-enrique-delano-la-nina-de-la-prision/138/
 
+
+**Imagen:** 1443-luis-enrique-délano-la-niña-de-la-prisión.jpg
 ---
 
 YA LOS PRESOS de aquella cárcel conocían bien la figura alta y móvil de la chiquilla. Por entre las rejas de fierro la veían pasar a medio día, al atardecer, a toda hora, y sus ojos se habían acostumbrado a ensancharse de alegría y codicia ante esa figura de mujer, que representaba para ellos un pedazo del mundo perdido, del mundo exterior, en ese pequeñito universo de hombres inmóviles que es la cárcel. De algunas celdas salían groseras palabras a saludar el paso de la niña, de otras piropos vulgares. Pero en aquella que quedaba al fondo del segundo patio dos ojos brillaban siempre al sentirse en la dura tierra los pasitos nerviosos de la cuotidiana visitante. Ella sonreía humilde a las roncas voces de los condenados, acaso un poquito consciente de los deseos que su presencia de mujer hermosa venía a acrecentar, y otro poco compasiva de esos hombres perdidos entre las metálicas jaulas. A veces, cuando los ojos que la muchacha iba a buscar la miraban serios, ensombrecidos, regresaba callada, las miradas caídas. Entonces las burlas de los presos salían por entre los barrotes a herirla, más bien a asquearla. Y sus pasos apresurados se perdían hacia la puerta.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-vendran-las-lluvias-suaves/2832/
 
+
+**Imagen:** 0029-vendrán-las-lluvias-suaves.webp
 ---
 
 Sinopsis:«Vendrán las lluvias suaves» (There Will Come Soft Rains), es un cuento de Ray Bradbury publicado en mayo de 1950 en la revistaCollier’sy recogido luego en la colecciónThe Martian Chronicles(1950). Ambientado en un futuro cercano, la narración nos presenta un hogar completamente automatizado, en el que los moradores han desaparecido. Aunque ya no hay personas a las que atender, la casa sigue cumpliendo sus funciones rutinarias: prepara el desayuno, hace el aseo, lee poemas, y realiza otra serie de tareas, que sirven como memoria de una familia reducida a no ser más que sombras en una pared exterior.

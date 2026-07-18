@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-la-penitencia/4399/
 
+
+**Imagen:** 1074-la-penitencia.jpg
 ---
 
 Sinopsis: «La penitencia» es un cuento de Saki (Hector Hugh Munro), publicado en 1919 en la colecciónThe Toys of Peace. Narra el remordimiento de Octavian Ruttle, un hombre afable que mata a un gato para proteger a sus polluelos. A pesar de sus esfuerzos por mantener oculta su acción, es descubierto por tres niños vecinos, cuya condena silenciosa lo sumergen en un mar de culpa. En su búsqueda por redención, Octavian se encuentra con el desdén y la resistencia de los niños, quienes exigen justicia por la vida arrebatada.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/poul-anderson-patrulla-del-tiempo/21784/
 
+
+**Imagen:** 0016-patrulla-del-tiempo.webp
 ---
 
 Sinopsis:«Patrulla del Tiempo» (Time Patrol) es un cuento de Poul Anderson, publicado enThe Magazine of Fantasy and Science Fictionen mayo de 1955. La historia presenta a Manse Everard, un ingeniero mecánico y veterano militar, que responde a un enigmático anuncio de empleo. Tras superar una serie de extrañas pruebas, descubre que ha sido reclutado por una organización secreta dedicada a patrullar el tiempo y proteger la historia de alteraciones. En su entrenamiento, Everard aprende a adaptarse a distintas épocas y culturas, mientras enfrenta la magnitud de su nueva misión: salvaguardar la continuidad del pasado, del presente y del futuro.

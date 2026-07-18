@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/pio-baroja-elizabide-el-vagabundo/4204/
 
+
+**Imagen:** 0595-elizabide-el-vagabundo.webp
 ---
 
 Sinopsis:«Elizabide el Vagabundo» es un cuento de Pío Baroja publicado en 1902 en la colecciónIdilios vascos. Narra la historia de Elizabide, un hombre que, tras llevar una vida errante y despreocupada en América, regresa a su pequeño pueblo en el País Vasco. Allí intenta readaptarse a la serenidad de la vida rural, ocupando sus días en un jardín abandonado y construyendo una canoa para navegar el río. En el pueblo conoce a Maintoni, una joven serena y reservada que despierta en él una curiosa fascinación. La apacible y enigmática presencia de la muchacha comienza a llenar sus pensamientos, confrontándolo con emociones que no esperaba encontrar en su regreso.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/f-scott-fitzgerald-regreso-a-babilonia/2041/
 
+
+**Imagen:** 1418-f-scott-fitzgerald-regreso-a-babilonia.jpg
 ---
 
 —¿Y dónde está el señor Campbell? —preguntó Charlie.

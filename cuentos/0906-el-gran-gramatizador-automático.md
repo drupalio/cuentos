@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roald-dahl-el-gran-gramatizador-automatico/2019/
 
+
+**Imagen:** 0906-el-gran-gramatizador-automático.webp
 ---
 
 Sinopsis: «El gran gramatizador automático» (The Great Automatic Grammatizator) es un cuento de ciencia ficción de Roald Dahl, publicado en 1961 en la colecciónSomeone Like You. Narra la historia de Adolph Knipe, un ingeniero insatisfecho con su trabajo que sueña con ser escritor. Tras participar en la creación de una sofisticada calculadora, Knipe concibe la idea de construir una máquina que escriba cuentos y novelas automáticamente siguiendo determinadas reglas gramaticales. Con el apoyo de su jefe, el señor Bohlen, Knipe desarrolla la máquina y empiezan a producir relatos en serie. La máquina es tan eficiente que los relatos son aceptados por revistas y editoriales, lo que inicia un negocio literario altamente lucrativo y genera una producción en masa de literatura automatizada.

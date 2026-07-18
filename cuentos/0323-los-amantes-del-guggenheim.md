@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isabel-allende-los-amantes-del-guggenheim/24754/
 
+
+**Imagen:** 0323-los-amantes-del-guggenheim.webp
 ---
 
 Sinopsis:«Los amantes del Guggenheim» es un cuento corto de Isabel Allende, publicado en 2001. En la madrugada, un guardia del museo Guggenheim de Bilbao descubre a una misteriosa pareja: ella, vestida de novia; él, completamente desnudo. Nadie entiende cómo lograron entrar sin activar la seguridad: las cámaras no grabaron nada, no sonaron las alarmas. El detective Aitor Larramendi intenta reconstruir los hechos, pero los testimonios derivan en una historia imposible, que habla de estatuas que bailan, diamantes que llueven del cielo, dos personas que se aman y un museo que, por la noche, huele a ciruelas.

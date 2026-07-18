@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-g-wells-el-valle-de-las-aranas/21854/
 
+
+**Imagen:** 1025-el-valle-de-las-arañas.webp
 ---
 
 Sinopsis: «El valle de las arañas»(The Valley of Spiders) es un cuento de H. G. Wells, publicado en marzo de 1903 en la revistaPearson’s Magazine. Relata la persecución de tres jinetes por un territorio inhóspito en busca de una pareja de fugitivos. Tras varios días de marcha por un paisaje árido y solitario, los hombres entran en un valle amplio y silencioso que parece deshabitado, pero donde pronto advierten una inquietante presencia. A medida que el viento se intensifica, una amenaza inesperada surge del cielo, transformando la cacería en una lucha por la supervivencia en un entorno que se vuelve cada vez más hostil.

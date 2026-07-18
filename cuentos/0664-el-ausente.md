@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ana-maria-matute-el-ausente/3429/
 
+
+**Imagen:** 0664-el-ausente.webp
 ---
 
 Sinopsis:«El ausente» es un cuento de Ana María Matute, publicado en 1961 dentro del libroHistorias de la Artámila. Narra la historia de Luisa, una mujer atrapada en un matrimonio infeliz con Amadeo, un hombre hosco y distante. En medio de una convivencia llena de resentimientos, Luisa revive con amargura los recuerdos de un amor perdido y el peso de una elección hecha por orgullo. Mientras lidia con su insatisfacción y el juicio de los vecinos, se pregunta si aún hay posibilidad de empezar de nuevo. Pero entonces algo altera la rutina, y el silencio de la casa cobra otro significado.

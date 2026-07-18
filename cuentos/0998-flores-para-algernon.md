@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/daniel-keyes-flores-para-algernon/13849/
 
+
+**Imagen:** 0998-flores-para-algernon.jpg
 ---
 
 Sinopsis: «Flores para Algernon» (Flowers for Algernon) es un conmovedor cuento de Daniel Keyes publicado en abril de 1959 enThe Magazine of Fantasy and Science Fiction, ganador del premio Hugo en 1960. Narra la historia de Charlie Gordon, un hombre de 37 años con una severa discapacidad intelectual que participa en un experimento científico para aumentar su inteligencia. A través de sus informes de progreso, Charlie documenta sus experiencias antes y después de la operación, mostrando mejoras notables en su capacidad de aprendizaje, lo que lo llena de esperanza. Sin embargo, a medida que su inteligencia crece, Charlie comienza a ver el mundo de una manera diferente, descubriendo verdades sobre sí mismo y sobre quienes lo rodean, lo que lo enfrenta a nuevos y complejos desafíos emocionales.

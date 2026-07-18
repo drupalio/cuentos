@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-casi-artista/22112/
 
+
+**Imagen:** 0168-casi-artista.webp
 ---
 
 Sinopsis: «Casi artista» es un cuento de la escritora española  Emilia Pardo Bazán, publicado en 1897 en la revistaBlanco y Negro. Narra la historia de Dolores, una mujer humilde casada con un hombre alcohólico y violento. Tras el abandono del marido, debe enfrentarse sola a la miseria y sacar adelante a sus hijos, para lo cual retoma su antiguo oficio de costurera. Su destreza y perseverancia la llevan a levantar un pequeño taller, donde el trabajo minucioso con telas y encajes se convierte en una forma de redención. En un entorno marcado por la pobreza, Dolores transforma su vida con esfuerzo, dignidad y una sensibilidad que roza el arte.

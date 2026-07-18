@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gustavo-adolfo-becquer-la-cruz-del-diablo/13867/
 
+
+**Imagen:** 1014-la-cruz-del-diablo.jpg
 ---
 
 Sinopsis: «La cruz del diablo» es un relato de Gustavo Adolfo Bécquer publicado en 1860 en el periódicoLa Crónica de Ambos Mundos. Cuenta la historia de un hombre que llega a Bellver, un pequeño pueblo enclavado en los Pirineos. Fascinado por una antigua cruz de hierro y mármol erigida en las afueras, decide detenerse a rezar ante ella. Sin embargo, el rito se ve interrumpido por la reacción aterrada de un guía local, quien lo arrastra del lugar mientras le advierte que la cruz está maldita. Intrigado, el hombre exige conocer el oscuro origen del inquietante monumento.

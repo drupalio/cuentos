@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/damon-knight-cantara-el-polvo-tus-alabanzas/25680/
 
+
+**Imagen:** 0522-cantará-el-polvo-tus-alabanzas.webp
 ---
 
 Sinopsis:«¿Cantará el polvo tus alabanzas?» (Shall the Dust Praise Thee?) es un cuento de Damon Knight, publicado en 1967 en la antologíaDangerous Visions. El Día de la Cólera finalmente ha llegado: los cielos se abren, las trompetas resuenan y el trono de Dios aparece envuelto en fuego para presidir el Juicio Final. Siete ángeles descienden sobre la Tierra para cumplir sus misiones en el Último Día; sin embargo, algo les impide llevarlas a cabo. El mundo no es el que esperaban encontrar.

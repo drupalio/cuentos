@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-la-sensacion-de-poder/27857/
 
+
+**Imagen:** 0085-la-sensación-de-poder.webp
 ---
 
 Sinopsis:«La sensación de poder» («The Feeling of Power») es un cuento del escritor estadounidense Isaac Asimov, publicado en febrero de 1958 en la revistaIfe incluido en 1959 en el libroNine Tomorrows. En un futuro dominado por la tecnología, la humanidad depende de las computadoras y ha olvidado incluso las operaciones matemáticas más elementales. En medio de una larga guerra contra Deneb, el programador Jehan Shuman convoca a líderes militares y políticos para presentarles a Myron Aub, un humilde técnico con un talento insólito: ha desarrollado un método que le permite realizar cálculos aritméticos utilizando únicamente su mente, un lápiz y una hoja de papel. Intrigados y escépticos, los altos mandos presencian una demostración que podría cambiar el rumbo del conflicto.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-conan-doyle-el-gato-de-brasil/2838/
 
+
+**Imagen:** 1037-el-gato-de-brasil.jpg
 ---
 
 Sinopsis: «El gato de Brasil» (The Brazilian Cat) es un cuento de Arthur Conan Doyle publicado enThe Strand Magazineen diciembre de 1898. Narra la historia de Marshall King, un joven cuya vida disipada lo ha llevado a una situación económica precaria. Aunque es heredero directo de lord Southerton, uno de los aristócratas más acaudalados de Inglaterra, no recibe apoyo ni de su acaudalado pariente ni de su familia. Cuando su primo Everard King, un hombre que hizo fortuna en Latinoamérica, lo invita a su finca, Marshall ve una oportunidad de cambiar su suerte. Recibido con afecto y rodeado de animales exóticos, confía en obtener ayuda financiera, sin imaginar que la visita tomará un rumbo inesperado.

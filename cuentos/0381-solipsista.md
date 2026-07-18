@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fredric-brown-solipsista/26498/
 
+
+**Imagen:** 0381-solipsista.webp
 ---
 
 Sinopsis:«Solipsista» (Solipsist) es un cuento corto del escritor estadounidense Fredric Brown, publicado en 1954 en la antologíaAngels and Spaceships. Walter B. Jehová ha sido solipsista toda su vida: cree que solo él existe realmente y que el universo es una creación de su mente. Tras una serie de infortunios personales, termina hospitalizado y pone a prueba sus creencias: mientras contempla las estrellas, desea que todo a su alrededor deje de existir.

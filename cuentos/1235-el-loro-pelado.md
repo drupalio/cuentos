@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-loro-pelado/12024/
 
+
+**Imagen:** 1235-el-loro-pelado.jpg
 ---
 
 «El loro pelado», cuento corto deHoracio Quiroga, narra la historia de Pedrito, un loro que vive en una casa, donde se gana el cariño de sus habitantes. Pedrito es conocido por su habilidad para hablar y su gusto por el té con leche. Un día el loro sale de paseo y en la selva se encuentra con un tigre, con quien intenta entablar amistad. El encuentro afectará profundamente su vida.

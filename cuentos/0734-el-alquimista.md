@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-el-alquimista/20841/
 
+
+**Imagen:** 0734-el-alquimista.webp
 ---
 
 Sinopsis: «El alquimista» (The Alchemist) es un cuento de H. P. Lovecraft, publicado en noviembre de 1916 en la revistaThe United Amateur. La historia está narrada por Antoine, el último descendiente de una antigua y arruinada estirpe noble francesa marcada por una misteriosa maldición que condena a sus miembros a morir jóvenes. Desde su infancia, el protagonista crece aislado en un castillo en ruinas, rodeado de soledad, libros y oscuros presagios sobre su linaje. A medida que investiga el origen de la tragedia familiar, descubre antiguos documentos que lo conectan con un pasado lleno de secretos y una siniestra amenaza que parece desafiar al tiempo.

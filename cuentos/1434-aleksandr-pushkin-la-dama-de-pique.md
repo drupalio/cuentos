@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/aleksandr-pushkin-la-dama-pique/911/
 
+
+**Imagen:** 1434-aleksandr-pushkin-la-dama-de-pique.jpg
 ---
 
 La dama de pique significa malevolencia secreta.

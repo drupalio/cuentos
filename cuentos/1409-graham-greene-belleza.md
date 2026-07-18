@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/graham-greene-belleza/2231/
 
+
+**Imagen:** 1409-graham-greene-belleza.jpg
 ---
 
 La mujer llevaba la frente ceñida con una cinta anaranjada que recordaba el estilo de los años veinte. Su voz destacaba sobre la charla de sus dos compañeros, sobre el muchacho que aceleraba su motocicleta en la calle, hasta sobre el ruido de los platos en la cocina del pequeño restaurante de Antibes, casi vacío ahora que empezaba el otoño. Su cara me era conocida: la había visto mirar hacia la calle desde el balcón de una de las casas restauradas junto a las murallas, mientras gritaba frases cariñosas a alguien o algo invisible. Pero no había vuelto a verla desde el verano, y suponía que se había marchado con los demás extranjeros.

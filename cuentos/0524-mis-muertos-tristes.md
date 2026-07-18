@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mariana-enriquez-mis-muertos-tristes/17882/
 
+
+**Imagen:** 0524-mis-muertos-tristes.webp
 ---
 
 Sinopsis:En «Mis muertos tristes», relato publicado en 2024 en la colecciónUn lugar soleado para gente sombría, Mariana Enríquez nos sumerge en un barrio desbordado por la decadencia y el miedo, donde la protagonista, una médica retirada, narra su relación con los fantasmas que empiezan a rondar su hogar y el vecindario. Anclada a su casa por la presencia persistente de su madre fallecida, la protagonista describe con detalle un entorno asediado por la violencia, las tensiones sociales y el deterioro, mientras lidia con los espectros que emergen de esa realidad. En un tono íntimo y sombrío, el cuento explora la convivencia con lo sobrenatural como reflejo de culpas, miedos y responsabilidades no asumidas.

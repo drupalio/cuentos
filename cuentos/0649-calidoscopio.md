@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-calidoscopio/6392/
 
+
+**Imagen:** 0649-calidoscopio.webp
 ---
 
 Sinopsis:«Calidoscopio»(Kaleidoscope) es un relato de ciencia ficción escrito por Ray Bradbury, publicado en 1949 en la revistaThrilling Wonder Storiese incluido luego en la colecciónThe Illustrated Man(1951). La historia sigue a un grupo de astronautas que, tras la explosión de su nave, quedan flotando sin control en el espacio, condenados a una muerte inminente. A medida que se separan y sus vidas se desmoronan, sus conversaciones por radio se vuelven un reflejo de sus miedos, arrepentimientos y reflexiones sobre la vida y la muerte.

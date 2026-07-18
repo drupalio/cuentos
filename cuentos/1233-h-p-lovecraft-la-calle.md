@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-la-calle/8539/
 
+
+**Imagen:** 1233-h-p-lovecraft-la-calle.jpg
 ---
 
 Hay quien dice que las cosas y los lugares tienen alma, y hay quien dice que no; yo no me atrevo a pronunciarme sobre esto, pero voy a hablar de la Calle.

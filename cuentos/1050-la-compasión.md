@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-la-compasion/21685/
 
+
+**Imagen:** 1050-la-compasión.webp
 ---
 
 Sinopsis:«La compasión» es un cuento de Horacio Quiroga, publicado el 21 de septiembre de 1907 en la revistaCaras y Caretas. Una mujer sufre un desmayo repentino que alarma a su familia, por lo que deciden llamar al médico de confianza. Una vez superado el susto, mientras la joven se recupera, el médico comparte con ellos una anécdota personal sobre un antiguo caso clínico relacionado con una paciente terminal, dando pie a una conversación íntima sobre el sufrimiento y los límites morales de la compasión.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-graffiti/258/
 
+
+**Imagen:** 0206-graffiti.jpg
 ---
 
 Sinopsis:«Graffiti» es un cuento deJulio Cortázarpublicado en 1980 en la colecciónQueremos tanto a Glenda. En una ciudad sometida a un régimen represivo que prohíbe cualquier forma de expresión, un hombre y una mujer se comunican a través de dibujos hechos con tizas de colores en las paredes. Lo que empieza como un juego divertido y anónimo poco a poco se convierte en una historia de amor y de resistencia que se enfrenta a un peligro mortal, donde los protagonistas solo tienen sus dibujos como testimonio de su relación y su esperanza.

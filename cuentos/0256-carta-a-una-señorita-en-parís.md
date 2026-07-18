@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-carta-una-senorita-paris/1221/
 
+
+**Imagen:** 0256-carta-a-una-señorita-en-parís.jpg
 ---
 
 Sinopsis: «Carta a una señorita en París» es un cuento de Julio Cortázar aparecido en el libroBestiario(1951). Narra la experiencia de un hombre que tiene un insólito secreto: de vez en cuando vomita conejitos vivos. La historia se sitúa en Buenos Aires, en el apartamento de una mujer llamada Andrée, mientras ella se encuentra en París. El hombre le escribe una carta contándole a Andrée sobre su extraña condición y cómo esta se ha intensificado últimamente hasta volverse incontrolable, provocando un caos que contrasta con el orden que reinaba en el departamento antes de que él se instalara.

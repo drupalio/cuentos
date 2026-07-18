@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/clark-ashton-smith-la-hechicera-de-sylaire/14902/
 
+
+**Imagen:** 0119-la-hechicera-de-sylaire.jpg
 ---
 
 Sinopsis:«La hechicera de Sylaire» (The Enchantress of Sylaire) es un cuento fantástico de Clark Ashton Smith publicado enWeird Talesen julio de 1941. Anselme, un joven soñador, se retira a vivir como ermitaño en los bosques de Averoigne tras ser rechazado por su amada, Dorothée. Un día, al querer bañarse en un estanque, encuentra a Sephora, una hechicera de extraordinaria belleza. Atraído por ella, la acompaña a su enigmática morada, donde descubre un mundo encantado lleno de misterios. Sin embargo, el ex amante de Sephora, Malachie, advierte a Anselme sobre la verdadera naturaleza de la hechicera y los peligros que acechan en Sylaire. Anselme debe decidir en quién confiar y cómo enfrentarse a los oscuros secretos del lugar.

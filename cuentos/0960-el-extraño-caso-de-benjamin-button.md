@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/f-scott-fitzgerald-el-extrano-caso-de-benjamin-button/2546/
 
+
+**Imagen:** 0960-el-extraño-caso-de-benjamin-button.webp
 ---
 
 Sinopsis: «El extraño caso de Benjamin Button» (The Curious Case of Benjamin Button) es un cuento de Francis Scott Fitzgerald, publicado el 27 de mayo de 1922 enCollier’s Magazine. La historia comienza en Baltimore, en 1860, cuando el señor y la señora Button esperan con ansiedad el nacimiento de su primer hijo. Sin embargo, el padre queda desconcertado al descubrir que el recién nacido no es un bebé común, sino un anciano de aspecto septuagenario. Este insólito suceso desata una serie de situaciones desconcertantes para la familia, mientras intentan comprender y sobrellevar la extraña condición de Benjamin.

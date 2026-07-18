@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-nochebuena/17573/
 
+
+**Imagen:** 0592-nochebuena.webp
 ---
 
 Sinopsis:«Nochebuena» (The Night Before Christmas) es un cuento de Robert Bloch publicado en 1980 en la antologíaDark Forces. Arnold Brandon, un pintor en apuros, recibe un encargo que podría impulsar su carrera: realizar el retrato de Louise, la elegante esposa de Carlos Santiago, un magnate argentino imponente y misterioso. Desde su primera reunión, Santiago, con su presencia dominante y su turbio pasado, provoca en Arnold una mezcla de fascinación y rechazo. A medida que Arnold avanza en su trabajo y se acerca la Navidad, las relaciones entre los tres personajes se entrelazan de formas cada vez más complejas, generando un ambiente donde el poder, los celos y los secretos amenazan con desatar una trágica tempestad.

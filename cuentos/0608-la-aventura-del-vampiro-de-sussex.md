@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-conan-doyle-la-aventura-del-vampiro-de-sussex/3879/
 
+
+**Imagen:** 0608-la-aventura-del-vampiro-de-sussex.webp
 ---
 
 Sinopsis:En «La aventura del vampiro de Sussex» (The Adventure of the Sussex Vampire), cuento de Arthur Conan Doyle publicado en enero de 1924 enThe Strand Magazine, Sherlock Holmes y el Dr. Watson enfrentan un misterio inusual cuando reciben una carta sobre un presunto caso de vampirismo. Un cliente preocupado, cuya familia está siendo desgarrada por extraños sucesos, busca desesperadamente la ayuda de Holmes. Con su aguda capacidad de observación y deducción, Holmes desentraña una trama que desafía las explicaciones convencionales, revelando las complejidades de las relaciones humanas y los prejuicios que pueden cegar la verdad. Un relato que combina elementos góticos con el ingenio característico de Holmes para resolver enigmas.

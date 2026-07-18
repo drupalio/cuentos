@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-un-destripador-de-antano/20470/
 
+
+**Imagen:** 0350-un-destripador-de-antaño.webp
 ---
 
 Sinopsis: «Un destripador de antaño» es un cuento de Emilia Pardo Bazán, publicado en 1900. Relata la vida de Minia, una joven huérfana que crece en la aldea de Tornelos bajo el yugo de sus crueles tíos, quienes la explotan y maltratan. Su único refugio es su devoción por Santa Minia, a quien se asemeja físicamente. Mientras tanto, en Compostela, se murmuran historias inquietantes sobre un boticario y sus remedios misteriosos. En un mundo dominado por la superstición y la pobreza, el destino de Minia parece marcado por fuerzas que escapan a su control.

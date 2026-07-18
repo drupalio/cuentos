@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-c-clarke-informe-sobre-el-planeta-tres/6741/
 
+
+**Imagen:** 0851-informe-sobre-el-planeta-tres.webp
 ---
 
 Sinopsis: «Informe sobre el planeta tres» (Report on Planet Three) es un cuento de ciencia ficción del escritor británico Arthur C. Clarke, publicado en mayo de 1959 en la revistaHoliday. Presentado como un antiguo documento marciano, describe las observaciones científicas realizadas por astrónomos del planeta rojo sobre la Tierra, su misteriosa vecina. A partir de datos obtenidos con avanzados instrumentos, analizan su atmósfera densa, sus vastos océanos, su elevada gravedad y su clima extremo, valorando si podría albergar vida. Clarke recurre a la ironía para ofrecer una crítica sutil a la visión antropocéntrica con que solemos juzgar otros mundos.

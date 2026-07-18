@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-la-deriva/1195/
 
+
+**Imagen:** 0451-a-la-deriva.webp
 ---
 
 Sinopsis:«A la deriva» es un cuento del escritor uruguayo Horacio Quiroga, publicado el 7 de junio de 1912 enFray Mochoy luego recogido en el libroCuentos de amor de locura y de muerte(1917). Paulino es un hombre que vive junto a su mujer en la espesura de la selva de Misiones. Un día, mientras trabaja, sufre la mordedura de una serpiente. Enfrentando el dolor y los efectos progresivos del veneno, se embarca en un viaje desesperado en busca de ayuda, navegando por el río Paraná. A medida que avanza, su lucha por la supervivencia se intensifica, mientras la selva revela su carácter implacable y hostil.

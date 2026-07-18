@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-el-regalo/4596/
 
+
+**Imagen:** 0557-el-regalo.webp
 ---
 
 Sinopsis:«El regalo» (The Gift) es un cuento corto de Ray Bradbury publicado enEsquireen diciembre de 1952. Una familia emprende su primer viaje espacial en la víspera de Navidad. El niño está emocionado por la aventura, pero sus padres se preocupan por cómo celebrar la festividad en medio del espacio, especialmente después de que en la aduana les retuvieron el regalo que habían preparado. Ahora, el padre deberá encontrar una forma creativa de mantener viva la magia de la Navidad para su hijo, demostrando que el espíritu navideño puede brillar en cualquier lugar, incluso en las estrellas.

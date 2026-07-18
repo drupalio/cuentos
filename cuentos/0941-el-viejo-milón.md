@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-el-viejo-milon/22793/
 
+
+**Imagen:** 0941-el-viejo-milón.webp
 ---
 
 Sinopsis: «El viejo Milón» (Le Père Milon) es un cuento de Guy de Maupassant publicado el 22 de mayo de 1883 en el periódicoLe Gaulois. Ambientado durante la guerra franco-prusiana de 1870, narra la historia de un anciano campesino normando que vive con su familia en una granja ocupada por tropas alemanas. En medio del sofocante verano rural, la calma aparente del entorno contrasta con la creciente tensión que se respira entre los habitantes a causa de una serie de misteriosos asesinatos ocurridos en la zona. La historia comienza con un interrogatorio militar que dará paso a la revelación de un oscuro secreto que involucra al anciano.

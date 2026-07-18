@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stephen-king-la-noche-del-tigre/18273/
 
+
+**Imagen:** 0507-la-noche-del-tigre.webp
 ---
 
 Sinopsis:«La noche del tigre» (The Night of the Tiger), cuento publicado por Stephen King enThe Magazine of Fantasy and Science Fictionen febrero de 1978, sigue la historia de Eddie Johnston, un joven que deja atrás su monótona vida en Sauk City para trabajar como peón en un circo itinerante. Pronto, Eddie se ve atrapado en una intrigante y peligrosa rivalidad entre Jason Indrasil, un temperamental domador de leones, y el enigmático señor Legere, un hombre taciturno que aparece regularmente junto a la jaula de Terror Verde, el único tigre del circo. La atmósfera se vuelve cada vez más densa mientras estos tres personajes giran en una extraña danza de poder y hostilidad.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-e-howard-palomos-del-infierno/15098/
 
+
+**Imagen:** 0738-palomos-del-infierno.jpg
 ---
 
 Sinopsis: «Palomos del infierno» (Pigeons from Hell) es un cuento de Robert E. Howard publicado enWeird Talesen mayo de 1938. Narra la terrorífica experiencia de Griswell, un viajero que pasa la noche en una antigua mansión sureña abandonada junto a su amigo Branner. Cuando Branner es asesinado misteriosamente, Griswell se ve envuelto en una pesadilla sobrenatural. Con la ayuda del sheriff Buckner, Griswell intenta descubrir la verdad detrás de los oscuros secretos de la casa Blassenville. La historia mezcla elementos de horror gótico sureño, vudú y leyendas locales mientras los protagonistas investigan una serie de muertes inexplicables y fenómenos paranormales.

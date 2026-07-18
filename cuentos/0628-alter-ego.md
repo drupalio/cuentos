@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hugo-correa-alter-ego/25127/
 
+
+**Imagen:** 0628-alter-ego.webp
 ---
 
 Sinopsis:«Alter ego» es un cuento de Hugo Correa, publicado en 1969 dentro del libroLos títeres. Narra la historia de Demetrio, un hombre que adquiere un sofisticado autómata diseñado para imitarlo en cada gesto, movimiento y expresión. Mediante un casco especial, puede ver, oír y sentir a través de su doble, explorando la realidad como si habitara otro cuerpo. Intrigado por esta tecnología, comienza a experimentar con su sosia en la intimidad de su hogar, fascinado por la precisión con que reproduce sus hábitos y comportamientos, sin sospechar del todo hasta dónde puede llegar esa fidelidad.

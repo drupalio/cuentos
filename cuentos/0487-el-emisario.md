@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-el-emisario/6800/
 
+
+**Imagen:** 0487-el-emisario.jpg
 ---
 
 Sinopsis:«El emisario» (The Emissary ) es un cuento de Ray Bradbury, publicado en 1947 en la colecciónDark Carnival. Narra la historia de Martin Christie, un niño postrado en cama por una enfermedad, cuyo único contacto con el mundo exterior es su perro Torry. Cada día, el animal sale a explorar el vecindario y regresa con olores, texturas y el eco de lugares que Martin ya no puede recorrer. Un día, Torry desaparece sin dejar rastro. Cuando Martin ya ha perdido toda esperanza de recuperar a su amigo, sucede algo inesperado.

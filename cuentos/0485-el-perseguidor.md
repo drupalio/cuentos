@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-perseguidor/1011/
 
+
+**Imagen:** 0485-el-perseguidor.jpg
 ---
 
 Sinopsis:«El perseguidor» es un cuento del escritor argentino Julio Cortázar, publicado en 1959 en la colecciónLas armas secretas. Inspirado en la figura del saxofonista Charlie Parker, narra un momento en la vida de Johnny Carter, un genio del jazz que vive en París al borde de la locura y la autodestrucción, y su relación con Bruno, un crítico musical que escribe su biografía. A través de sus diálogos, el relato se adentra en la atormentada experiencia existencial de Johnny, que en su vínculo con la música recorre un mundo de marginalidad, angustia y percepciones desbordadas, incapaz de encajar en la realidad ordinaria que lo rodea.

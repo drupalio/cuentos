@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/henry-kuttner-c-l-moore-lo-que-necesita/24913/
 
+
+**Imagen:** 0674-lo-que-necesita.webp
 ---
 
 Sinopsis:«Lo que necesita»(What You Need) es un cuento de ciencia ficción escrito por Henry Kuttner y C. L. Moore, publicado en octubre de 1945 en la revistaAstounding Science Fiction. La historia sigue a Tim Carmichael, un periodista cínico y ambicioso que, intrigado por el escaparate de una misteriosa tienda en Park Avenue, se adentra en el enigmático negocio de Peter Talley, un hombre que asegura tener exactamente lo que cada persona necesita. Fascinado por aquel comercio insólito, Carmichael se obsesiona con descubrir su secreto, sin imaginar que está a punto de enfrentarse a un poder inquietante que pondrá a prueba su destino.

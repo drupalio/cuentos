@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/manuel-rojas-canto-baile/776/
 
+
+**Imagen:** 1314-canto-y-baile.jpg
 ---
 
 Los muebles de aquel salón de baile eran tapizados con brocato color rojo; rojo era también el papel que cubría las paredes y roja la alfombra que, después de orillar de encarnado las patas de las sillas y sillones, terminaba súbitamente ante el piano. En las ropas de las mujeres de aquel salón de baile predominaba igualmente el color rojo. Los espejos, cuatro grandes, colocados uno encima del piano, otro al fondo, en la pared contraria a la que ocupaba el primero, y dos frente a frente en las paredes restantes, recogían y multiplicaban aquel tono como una sinfonía en rojo, tal vez si conscientemente organizada por la dueña de casa, que no ignoraría, ya que eso formaba parte de su conocimiento del negocio, que el color rojo influye en los nervios, excitando a los apacibles y enloqueciendo a los irritables.

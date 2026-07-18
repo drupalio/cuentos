@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/kaita-murayama-la-lengua-del-diablo/17086/
 
+
+**Imagen:** 0717-la-lengua-del-diablo.webp
 ---
 
 Sinopsis: En «La lengua del diablo» (Akuma no shita), cuento del escritor japonés Kaita Murayama, un hombre recibe un inquietante telegrama de su amigo Eikichi Kaneko, un poeta excéntrico y misterioso con quien no ha tenido contacto en meses. Intrigado, sigue las indicaciones del mensaje hasta la Cuesta de Kudan, donde descubre que Kaneko ha muerto en circunstancias extrañas. Poco después, encuentra un documento que revela una perturbadora confesión: Kaneko padecía una macabra condición que lo llevó a cometer actos monstruosos en un intento desesperado por saciar un apetito inhumano.

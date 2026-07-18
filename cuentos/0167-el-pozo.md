@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alejandra-kamiya-el-pozo/27767/
 
+
+**Imagen:** 0167-el-pozo.webp
 ---
 
 Sinopsis:«El pozo» es un cuento de la escritora argentina Alejandra Kamiya, publicado en 2015 en el libroLos árboles caídos también son el bosque. El soldado Sato recibe una orden transmitida desde lo más alto de la jerarquía militar: cavar un pozo en un punto preciso de una isla que no figura en los mapas, tarea que debe cumplir hasta recibir nuevas instrucciones. En el límite entre la llanura y el bosque, solo y equipado con pertrechos básicos y una pala, Sato asume la misión con extrema disciplina, mientras los días se confunden y él intenta desentrañar el sentido táctico de su extenuante trabajo.

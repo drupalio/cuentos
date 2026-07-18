@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermanos-grimm-como-unos-ninos-jugaron-a-la-matanza/28436/
 
+
+**Imagen:** 0015-cómo-unos-niños-jugaron-a-la-matanza.webp
 ---
 
 Sinopsis:«Cómo unos niños jugaron a la matanza» («Wie Kinder Schlachtens mit einander gespielt haben») es un breve relato de los Hermanos Grimm, publicado en 1812 en la primera edición deKinder- und Haus-Märchen, aunque por su violencia fue excluido de ediciones posteriores del libro. Apartado de los tópicos habituales de los cuentos de hadas, el texto reúne dos episodios sombríos y de crudo realismo, en los que la infancia convierte en juego de roles la imitación de conductas del mundo adulto, con resultados perturbadores.

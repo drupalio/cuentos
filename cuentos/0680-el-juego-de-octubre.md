@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-el-juego-de-octubre/24835/
 
+
+**Imagen:** 0680-el-juego-de-octubre.webp
 ---
 
 Sinopsis: «El juego de octubre» (The October Game) es un cuento de Ray Bradbury, publicado en la revistaWeird Talesen marzo de 1948 y más tarde incluido en la antologíaLong After Midnight(1976). En la víspera de Halloween, Mich Wilder, un hombre consumido por el resentimiento, observa en silencio a su esposa y su hija mientras preparan la celebración que tendrá lugar en su casa esa noche. Todo parece normal, pero bajo esa calma se agita una tensión feroz, impulsada por el odio y la necesidad de venganza.

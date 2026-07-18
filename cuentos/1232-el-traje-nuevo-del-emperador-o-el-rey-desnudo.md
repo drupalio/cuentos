@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hans-christian-andersen-el-traje-nuevo-del-emperador/5832/
 
+
+**Imagen:** 1232-el-traje-nuevo-del-emperador-o-el-rey-desnudo.jpg
 ---
 
 El cuento «El traje nuevo del emperador», de Hans Christian Andersen, es una sátira sobre la vanidad y el engaño. Un emperador obsesionado con la moda es burlado por dos estafadores que pretenden crear un traje con una tela mágica, invisible para los ineptos. Temiendo ser considerados tontos, todos fingen admirar el traje del emperador, aunque en realidad nadie lo vea. La historia alcanza su clímax en una procesión real, donde se revela la verdadera naturaleza del orgullo y la falsedad. Este cuento muestra cómo la verdad a menudo es ignorada por el miedo al ridículo.

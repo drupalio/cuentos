@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-radrigan-crepusculo/1198/
 
+
+**Imagen:** 1408-juan-radrigán-crepúsculo.jpg
 ---
 
 Hace muy poco que han tomado las onces, pero doña Rosa ya está pelando papas para la comida. Lo hace cuidadosamente. Después que las monda las da vueltas entre sus toscas manos, buscándoles los ojos; mete el cuchillo de punta y los arranca con gran precisión. Luego, las examina por última vez y las deja caer, suavemente, para que no salpique el agua, en una panzuda olla azul puesta a su lado.

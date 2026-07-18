@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-el-beso/5445/
 
+
+**Imagen:** 1058-el-beso.jpg
 ---
 
 Sinopsis: «El beso» es un cuento de Antón Chéjov, publicado el 15 de diciembre de 1887 en la revistaTiempo nuevo. La historia sigue al capitán Riabovich, un oficial tímido y poco agraciado que asiste, junto a su brigada, a una recepción ofrecida por una familia aristocrática. Incómodo en medio de la conversación y el bullicio, se pierde por error en la casa y, en la penumbra, recibe un beso inesperado de una mujer desconocida. Este incidente fortuito y misterioso marcará en él una profunda huella emocional, provocándole una serie de fantasías y reflexiones.

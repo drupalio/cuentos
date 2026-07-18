@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/nathaniel-hawthorne-el-holocausto-del-mundo/22239/
 
+
+**Imagen:** 0305-el-holocausto-del-mundo.webp
 ---
 
 Sinopsis:«El holocausto del mundo»(Earth’s Holocaust) es un cuento alegórico de Nathaniel Hawthorne, publicado en mayo de 1844 en la revistaGraham’s Magaziney recogido enMosses from an Old Manse(1846). La historia comienza con la organización de una inmensa hoguera, donde multitudes de todo el mundo acuden para destruir antiguos símbolos de poder, prestigio y tradición. En un fervor reformista que busca una regeneración moral de la humanidad, se arrojan al fuego objetos materiales e instituciones enteras: títulos nobiliarios, emblemas reales, armas, bebidas, libros e incluso símbolos religiosos. Sin embargo, algo esencial permanece intacto, oculto al poder de las llamas.

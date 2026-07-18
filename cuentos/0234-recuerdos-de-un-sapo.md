@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-recuerdos-de-un-sapo/12903/
 
+
+**Imagen:** 0234-recuerdos-de-un-sapo.jpg
 ---
 
 Sinopsis: «Recuerdos de un sapo», cuento deHoracio Quirogapublicado en 1908 en la revistaCaras y Caretasde Buenos Aires, es un relato irónico y profundo contra la hipocresía. La historia sigue a un grupo de estudiantes de paseo por el Jardín Botánico para celebrar la llegada de la primavera. Mientras aprecian la flora local, uno de los niños se encuentra con un sapo. Frente al hallazgo, el director y profesor de moral del colegio propone a los alumnos algo insólito: llevar al sapo hasta las vías del ferrocarril, para ver cómo lo aplasta un tren.

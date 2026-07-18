@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/poppy-z-brite-su-boca-sabra-a-ajenjo/16014/
 
+
+**Imagen:** 0295-su-boca-sabrá-a-ajenjo.webp
 ---
 
 Sinopsis: «Su boca sabrá a ajenjo» (His Mouth Will Taste of Wormwood) es un relato de terror de Poppy Z. Brite, publicado en 1990 enBorderlands. Narra la historia de Howard y su amigo Louis, dos jóvenes desilusionados por la vida que buscan emociones extremas en el robo de tumbas y la acumulación de objetos profanos, mientras se adentran en los placeres carnales y la experimentación con otros estímulos. En una de sus excavaciones hallan un amuleto vudú cuyo poder les abre las puertas a un mundo sobrenatural y terrorífico. Influenciado por «El sabueso» de H. P. Lovecraft, el relato combina lo macabro con un estilo gótico moderno, evocando ecos de los Mitos de Cthulhu.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ambrose-bierce-una-noche-de-verano/5471/
 
+
+**Imagen:** 1324-ambrose-bierce-una-noche-de-verano.jpg
 ---
 
 El hecho de que Henry Armstrong fuese enterrado no significaba ni probaba, en su opinión, que estuviera muerto: siempre fue un hombre difícil de convencer.

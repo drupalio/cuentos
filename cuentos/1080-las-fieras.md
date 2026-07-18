@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roberto-arlt-las-fieras/866/
 
+
+**Imagen:** 1080-las-fieras.jpg
 ---
 
 Sinopsis: «Las fieras» es un cuento del escritor argentino Roberto Arlt publicado en 1933 en el libroEl jorobadito. Narra la historia de un hombre que cuenta su decadencia moral y social en un entorno de corrupción y depravación. Rodeado de personajes marginales, en un ambiente prostibulario y criminal, el protagonista revela su proceso de descenso a los bajos fondos de la sociedad, donde se encuentra con personajes sórdidos, impulsivos y complejos. El relato es una introspección oscura y cruda de la vida en los márgenes de la sociedad, marcada por la violencia, el crimen y un profundo sentimiento de alienación y pesar.

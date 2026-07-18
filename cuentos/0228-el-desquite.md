@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/miguel-de-unamuno-el-desquite/27430/
 
+
+**Imagen:** 0228-el-desquite.webp
 ---
 
 Sinopsis:«El desquite» es un cuento de Miguel de Unamuno, publicado el 7 de septiembre de 1891 enEl Nervión. Luego de vencer a Guillermo, Luis se erige en el bravucón de su barrio. Pendenciero y abusivo, domina a todos en su calle y hace de su fuerza una forma de mando. Hartos de su tiranía, los demás chicos incitan a Guillermo a enfrentarlo de nuevo, para que acabe con su dominio. Una mañana de primavera, en el campo, Luis y Guillermo se encuentran frente a frente. A su alrededor, un corro de muchachos los observa, expectantes por saber quién será el vencedor.

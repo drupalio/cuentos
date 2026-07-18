@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/james-baldwin-los-blues-de-sonny/22121/
 
+
+**Imagen:** 1003-los-blues-de-sonny.webp
 ---
 
 Sinopsis: «Los blues de Sonny» (Sonny’s Blues) es un cuento de James Baldwin, publicado en 1957 en la revistaPartisan Review. Ambientada en el Harlem de mediados del siglo XX, la historia comienza cuando un profesor se entera de que su hermano menor, Sonny, ha sido arrestado por venta y consumo de heroína. A partir de esta noticia, se desencadena en él una profunda reflexión sobre la infancia compartida, las tensiones familiares y las duras condiciones del barrio donde crecieron. Mientras intenta reconectar con Sonny, el narrador se ve confrontado con el sufrimiento, la incomunicación y el poder redentor de la música como forma de expresión y resistencia.

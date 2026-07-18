@@ -1,6 +1,7 @@
 import os
 import re
 import glob
+import mimetypes
 from ebooklib import epub
 import html
 
@@ -14,6 +15,7 @@ p { text-indent: 1.5em; margin: 0.3em 0; text-align: justify; }
 hr { margin: 1.5em 0; }
 em { font-style: italic; }
 strong { font-weight: bold; }
+img.story-image { max-width: 100%; height: auto; display: block; margin: 0 auto 1.5em auto; }
 """
 
 def md_to_html(text):
@@ -52,6 +54,7 @@ def build_epub():
         lines = text.split("\n")
         title = "Sin titulo"
         author = ""
+        img_filename = None
         content_start = 0
 
         for line in lines:
@@ -59,6 +62,8 @@ def build_epub():
                 title = line.lstrip("# ").strip()
             elif line.startswith("**Autor:**"):
                 author = line.replace("**Autor:**", "").strip()
+            elif line.startswith("**Imagen:**"):
+                img_filename = line.replace("**Imagen:**", "").strip()
             elif line.startswith("---") and content_start == 0:
                 content_start = lines.index(line) + 1
 
@@ -67,12 +72,27 @@ def build_epub():
 
         author_html = f'<p style="text-align:center"><em>-- {html.escape(author)} --</em></p>' if author else ""
 
+        img_html = ""
+        if img_filename:
+            img_path = os.path.join(MD_DIR, img_filename)
+            if os.path.exists(img_path):
+                ext = os.path.splitext(img_filename)[1].lower()
+                media_type = mimetypes.types_map.get(ext, "image/webp")
+                epub_img = epub.EpubImage()
+                epub_img.file_name = f"images/cap_{i+1:04d}{ext}"
+                epub_img.media_type = media_type
+                with open(img_path, "rb") as f:
+                    epub_img.content = f.read()
+                book.add_item(epub_img)
+                img_html = f'<img src="images/cap_{i+1:04d}{ext}" alt="{html.escape(title)}" class="story-image"/>'
+
         ch = epub.EpubHtml(title=title, file_name=f"cap_{i+1:04d}.xhtml", lang="es")
         ch.content = f"""<html xmlns="http://www.w3.org/1999/xhtml">
 <head><title>{html.escape(title)}</title><style>{STYLE}</style></head>
 <body>
 <h1>{html.escape(title)}</h1>
 {author_html}
+{img_html}
 <hr/>
 {body_html}
 </body>

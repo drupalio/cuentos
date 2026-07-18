@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-el-horla-segunda-version/19424/
 
+
+**Imagen:** 1153-el-horla-segunda-versión.webp
 ---
 
 Sinopsis:El Horla (Segunda versión)es un cuento de Guy de Maupassant, publicado en 1887 en la colecciónLe Horla. Esta reformulación delrelato publicado enGil Blasen 1886está presentada en forma de diario y narra los inquietantes pensamientos de un hombre que, desde su apacible hogar junto al Sena, comienza a experimentar sensaciones inexplicables. A medida que avanza la narración, su mundo se ve invadido por una presencia invisible que altera su percepción de la realidad. Entre noches de insomnio, alucinaciones y un miedo creciente, el protagonista se enfrenta a la idea de que no está solo y de que una fuerza desconocida ha tomado el control de su existencia.

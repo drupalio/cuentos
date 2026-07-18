@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-el-ahorcado/4403/
 
+
+**Imagen:** 1339-philip-k-dick-el-ahorcado.jpg
 ---
 
 A las cinco en punto, Ed Loyce se lavó, se puso el sombrero y la chaqueta, sacó el coche y atravesó la ciudad en dirección a su tienda de televisores. Estaba cansado. Le dolían la espalda y los hombros de excavar tierra del sótano y transportarla al patio posterior. De todos modos, para ser un hombre de cuarenta años, lo había hecho muy bien. Janet podría comprarse un nuevo jarrón con el dinero que había ahorrado, y le gustaba la idea de reparar personalmente los cimientos.

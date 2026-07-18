@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bob-shaw-luz-de-otros-dias/25140/
 
+
+**Imagen:** 0619-luz-de-otros-días.webp
 ---
 
 Sinopsis:«Luz de otros días» (Light of Other Days) es un cuento de Bob Shaw, publicado en agosto de 1966 en la revistaAnalog Science Fiction/Science Fact. Una pareja en crisis viaja a una zona rural de Escocia, donde se fabrican paneles de cristal lento, un peculiar material que retarda el paso de la luz y permite capturar escenas con asombrosa nitidez. En medio de un paisaje sobrecogedor y silencioso, visitan una granja remota y conocen al excéntrico fabricante, quien les ofrece un cristal de gran calidad que ha estado almacenando la luz durante diez años. Sin embargo, lo que al principio parece una simple transacción comercial deja al descubierto una historia más profunda e inquietante.

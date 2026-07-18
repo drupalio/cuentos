@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermanos-grimm-blancanieves/10716/
 
+
+**Imagen:** 1112-blancanieves.jpg
 ---
 
 Sinopsis:Blancanieveses un cuento tradicional recopilado por Jacob y Wilhelm Grimm, publicado en 1812 en la colecciónKinder und Hausmärchen. Narra la historia de una reina que, al desear una hija «blanca como la nieve, roja como la sangre y negra como el ébano», da origen al nacimiento de Blancanieves. Tras la muerte de la reina, la niña crece junto a una madrastra vanidosa y cruel, obsesionada con ser la más hermosa del reino. Cuando un espejo mágico proclama a Blancanieves como la más bella, la nueva reina, consumida por los celos, planea su muerte. La niña escapa al bosque, donde encuentra refugio en la casa de siete enanos mineros.

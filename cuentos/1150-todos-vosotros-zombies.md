@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-a-heinlein-todos-vosotros-zombies/19410/
 
+
+**Imagen:** 1150-todos-vosotros-zombies.webp
 ---
 
 Sinopsis: «Todos vosotros, zombies…» es un cuento de ciencia ficción de Robert A. Heinlein, publicado en marzo de 1959 enThe Magazine of Fantasy and Science Fiction. La historia sigue a un misterioso barman que escucha la confesión de un joven escritor apodado “Madre Soltera”. En un bar de Nueva York en 1970, El joven relata su extraordinaria vida, marcada por el abandono, la transformación y una búsqueda desesperada de su identidad. Lo que comienza como una simple conversación se transforma en una revelación sorprendente cuando el barman le ofrece la oportunidad de enfrentarse a su pasado, desatando una paradoja temporal única e inquietante.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/nathaniel-hawthorne-el-entierro-de-roger-malvin/8534/
 
+
+**Imagen:** 0304-el-entierro-de-roger-malvin.webp
 ---
 
 Sinopsis:«El entierro de Roger Malvin» (Roger Malvin’s Burial) es un relato corto de Nathaniel Hawthorne, publicado en 1832 enThe Token. Reuben Bourne y Roger Malvin son dos hombres que, tras escapar de una sangrienta batalla entre colonos y nativos americanos, quedan gravemente heridos. Perdidos en la inmensidad del bosque y sin ayuda a la vista, Malvin, consciente de su condición terminal, ruega a Reuben que lo abandone para salvarse. Aunque se resiste, Reuben comprende que marcharse en busca de auxilio es la única esperanza de salvar a Malvin.

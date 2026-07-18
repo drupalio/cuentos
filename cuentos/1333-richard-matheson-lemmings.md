@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/richard-matheson-lemmings/5168/
 
+
+**Imagen:** 1333-richard-matheson-lemmings.jpg
 ---
 
 —¿De dónde vienen? —preguntó Reordon.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/marguerite-yourcenar-la-primera-noche/1269/
 
+
+**Imagen:** 1417-marguerite-yourcenar-la-primera-noche.jpg
 ---
 
 Corría el tren hacia la insustancial Suiza. Sentados en el compartimento reservado, iban callados, con las manos cogidas: era su viaje de novios. El silencio pesaba sobre ellos. Se querían —o, al menos, así lo habían creído—, pero la forma de su amor, diferente en cada uno, servía únicamente para probarles lo poco que se parecían.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-nieto-del-cid/2497/
 
+
+**Imagen:** 1388-emilia-pardo-bazán-nieto-del-cid.jpg
 ---
 
 El anciano cura del santuario de San Clemente de Boán cenaba sosegadamente sentado a la mesa, en un rincón de su ancha cocina. La luz del triple mechero del velón señalaba las acentuadas líneas del rostro del párroco, las espesas cejas canas, el cráneo tonsurado, pero revestido aún de blancos mechones: la piel roja, sanguínea, que en robustos dobleces rebosaba el alzacuello.

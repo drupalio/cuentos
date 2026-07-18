@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/graham-greene-los-destructores/859/
 
+
+**Imagen:** 0958-los-destructores.jpg
 ---
 
 Sinopsis: En «Los destructores» (The destructors), cuento de Graham Greene publicado en 1954 en la revistaPicture Post, una pandilla de jóvenes es liderada por un nuevo y enigmático miembro, Trevor, quien planea destruir una antigua casa en su vecindario. La casa, habitada por el señor Thomas, había sido una vez una espléndida construcción diseñada por Christopher Wren. Sin embargo, ahora es el único edificio que se mantiene en pie después de que el barrio fuera devastado por los bombardeos de la guerra. Trevor convence a la pandilla de que, en lugar de robar o causar daños menores, aprovechen una breve ausencia del señor Thomas para demoler la casa por completo.

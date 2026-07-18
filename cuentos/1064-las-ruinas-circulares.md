@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-las-ruinas-circulares/177/
 
+
+**Imagen:** 1064-las-ruinas-circulares.jpg
 ---
 
 Sinopsis: «Las ruinas circulares» es un cuento de Jorge Luis Borges, publicado en 1940 en la revistaSury recogido luego enFicciones(1944). Un hombre solitario llega a las ruinas de un templo olvidado, donde se entrega por completo a una misión extraordinaria: soñar a otro ser humano con tal perfección que pueda darle existencia real. Aislado del mundo y sostenido por los dones de los aldeanos cercanos, el forastero dedica sus días al descanso y sus noches a un meticuloso ejercicio onírico. Con cada visión, se acerca más a su propósito, hasta que una divinidad se manifiesta, le encomienda una misión y le revela un desconcertante secreto.

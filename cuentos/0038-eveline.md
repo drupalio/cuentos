@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/james-joyce-eveline/14254/
 
+
+**Imagen:** 0038-eveline.jpg
 ---
 
 Sinopsis:«Eveline» es un cuento de James Joyce, publicado por primera vez el 10 de septiembre de 1904 en el periódicoIrish Homesteady luego incluido en la colecciónDubliners(1914). Narra la historia de una joven irlandesa que, al caer la noche, permanece inmóvil frente a la ventana de su casa, perdida en sus pensamientos. Mientras observa el vecindario y evoca escenas de su infancia, repasa también la dura rutina que marca su presente: el trabajo agotador, las tensiones familiares y la promesa de huir hacia una nueva vida. En ese silencio envolvente, Eveline enfrenta una elección que definirá su destino.

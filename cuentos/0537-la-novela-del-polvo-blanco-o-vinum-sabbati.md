@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-machen-la-novela-del-polvo-blanco/15732/
 
+
+**Imagen:** 0537-la-novela-del-polvo-blanco-o-vinum-sabbati.webp
 ---
 
 Sinopsis: «La novela del polvo blanco» (Novel of the White Powder), también conocido como «Vinum Sabbati«, es un relato de terror escrito por Arthur Machen y publicado en 1895; reconocido como uno de los relatos favoritos de H. P. Lovecraft. Narrado por Helen Leicester, el cuento describe los inquietantes eventos que rodean a su hermano Francis, un estudiante de Derecho obsesionado con el estudio. Tras un largo período de intenso trabajo académico, Helen convence a Francis para que consulte a un médico, que le receta un medicamento para aliviar su agotamiento físico y mental. Sin embargo, después de comenzar el tratamiento, Francis sufre una notable transformación en su conducta, que se vuelve cada vez más inquietante y perturbadora.

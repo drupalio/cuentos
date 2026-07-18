@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/lev-tolstoi-la-incursion/4416/
 
+
+**Imagen:** 1337-lev-tolstói-la-incursión.jpg
 ---
 
 (RELATO DE UN VOLUNTARIO)

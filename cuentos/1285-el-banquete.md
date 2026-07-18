@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-el-banquete/2883/
 
+
+**Imagen:** 1285-el-banquete.jpg
 ---
 
 Con dos meses de anticipación, don Fernando Pasamano había preparado los pormenores de este magno suceso. En primer término, su residencia hubo de sufrir una transformación general. Como se trataba de un caserón antiguo, fue necesario echar abajo algunos muros, agrandar las ventanas, cambiar la madera de los pisos y pintar de nuevo todas las paredes. Esta reforma trajo consigo otras y —como esas personas que cuando se compran un par de zapatos juzgan que es necesario estrenarlos con calcetines nuevos y luego con una camisa nueva y luego con un terno nuevo y así sucesivamente hasta llegar al calzoncillo nuevo— don Fernando se vio obligado a renovar todo el mobiliario, desde las consolas del salón hasta el último banco de la repostería. Luego vinieron las alfombras, las lámparas, las cortinas y los cuadros para cubrir esas paredes que desde que estaban limpias parecían más grandes. Finalmente, como dentro del programa estaba previsto un concierto en el jardín, fue necesario construir un jardín. En quince días, una cuadrilla de jardineros japoneses edificaron, en lo que antes era una especie de huerta salvaje, un maravilloso jardín rococó donde había cipreses tallados, caminitos sin salida, laguna de peces rojos, una gruta para las divinidades y un puente rústico de madera, que cruzaba sobre un torrente imaginario.

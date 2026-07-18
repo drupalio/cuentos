@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ines-arredondo-mariana/14040/
 
+
+**Imagen:** 0705-mariana.jpg
 ---
 
 Sinopsis: «Mariana», cuento de Inés Arredondo publicado en 1965 en la colecciónLa señal, narra la vida de Mariana, una estudiante distraída y soñadora que, en lugar de prestar atención a las clases, dibuja paisajes infantiles. Su vida da un giro cuando inicia una relación con Fernando, un joven mayor que ella, con quien desarrolla una relación intensa y apasionada. Mariana enfrenta la oposición de su familia y su entorno, pero su determinación y el amor que siente por Fernando la llevan a desafiar todas las normas.

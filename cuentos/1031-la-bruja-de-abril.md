@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-la-bruja-de-abril/4445/
 
+
+**Imagen:** 1031-la-bruja-de-abril.jpg
 ---
 
 Sinopsis: «La bruja de abril» (The April Witch) es un inquietante cuento de Ray Bradbury publicado en abril de 1952 enThe Saturday Evening Post. Narra la historia de Cecy, una joven con poderes mágicos que puede abandonar su cuerpo y habitar en cualquier ser vivo. Aunque disfruta viviendo en animales y plantas, lo que Cecy anhela es experimentar el amor humano, algo prohibido para ella. Un día de abril, desobedeciendo las advertencias de sus padres, Cecy se aloja en el cuerpo de una muchacha, solo para satisfacer su deseo y curiosidad, sin reparar en las consecuencias que esto pudiera tener.

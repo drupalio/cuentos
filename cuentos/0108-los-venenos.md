@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-los-venenos/13947/
 
+
+**Imagen:** 0108-los-venenos.jpg
 ---
 
 Sinopsis: «Los venenos» es un cuento del escritor argentino Julio Cortázar, publicado en 1956 en el libroFinal del juego. En una casa de Banfield, durante las vacaciones de verano, un niño recibe con entusiasmo la llegada de una máquina destinada a exterminar las hormigas del jardín. La fumigación, con el humo que se extiende bajo tierra por los patios vecinos, convierte una tarea doméstica en una aventura fascinante. Sin embargo, la llegada de su primo Hugo, venido de Buenos Aires para pasar unos días en la casa, altera el pequeño mundo del narrador y modifica el curso de aquel verano que hasta entonces parecía pertenecerle por completo.

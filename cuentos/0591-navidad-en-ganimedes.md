@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-navidad-en-ganimedes/4690/
 
+
+**Imagen:** 0591-navidad-en-ganimedes.webp
 ---
 
 Sinopsis:«Navidad en Ganímedes» (Christmas on Ganymede), es un cuento de ciencia ficción de Isaac Asimov publicado enStartling Storiesen enero 1942. La historia nos lleva a una base minera en Ganímedes, una de las lunas de Júpiter, donde los humanos enfrentan una peculiar crisis laboral: los nativos, los «astruces», se niegan a trabajar si no reciben la visita de Santa Claus. Todo comienza cuando Olaf Johnson, con un ingenuo espíritu navideño, introduce la tradición terrícola a los curiosos extraterrestres. A partir de ahí, el comandante Pelham y su equipo se ven forzados a cumplir con esta exigencia, improvisando un Santa Claus, un trineo volador y “renos” alienígenas, en un relato lleno de sátira y humor.

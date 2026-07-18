@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/d-h-lawrence-el-caballito-de-madera/18724/
 
+
+**Imagen:** 0484-el-caballito-de-madera.webp
 ---
 
 Sinopsis:«El caballito de madera» (The Rocking-Horse Winner) es un inquietante y conmovedor cuento de D. H. Lawrence, publicado en julio de 1926 en la revistaHarper’s Bazaar. Relata la historia de una familia de clase media alta que, atrapada por la necesidad de mantener las apariencias, vive bajo la presión constante de la escasez económica. Paul, el hijo mayor, se siente profundamente afectado por esta situación y decide buscar una solución para aliviar las tensiones financieras del hogar. A pesar de su corta edad, con la complicidad del jardinero, se introduce en el mundo de las apuestas. Mientras tanto, la casa parece cobrar vida, susurrando incansablemente: «Hace falta más dinero».

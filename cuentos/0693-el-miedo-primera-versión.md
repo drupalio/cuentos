@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-el-miedo-primera-version/16763/
 
+
+**Imagen:** 0693-el-miedo-primera-versión.webp
 ---
 
 Sinopsis: «El Miedo» (La Peur), es cuento de Guy de Maupassant cuya primera versión se publicó en octubre de 1882 enLe Gaulois. A bordo de un barco en el Mediterráneo, un grupo debate sobre el miedo. Un misterioso viajero desafía la concepción común, definiendo el verdadero pavor como una sensación que desgarra el alma, distinta de la mera ansiedad ante el peligro. Para ilustrar su punto, el hombre relata dos experiencias estremecedoras de su vida: una en el desierto africano y otra en un bosque francés. Estas historias, cargadas de tensión, ofrecen una inquietante reflexión sobre el miedo y sus efectos en la psique humana.

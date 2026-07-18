@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-el-album/5316/
 
+
+**Imagen:** 1325-el-álbum.jpg
 ---
 
 El consejero titular Craterof, hombre delgado como la flecha de un campanario, se adelanta, y volviéndose a Imikof le dijo:

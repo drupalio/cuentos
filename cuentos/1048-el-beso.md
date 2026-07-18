@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gustavo-adolfo-becquer-el-beso/13329/
 
+
+**Imagen:** 1048-el-beso.jpg
 ---
 
 Sinopsis: «El beso» es un relato de Gustavo Adolfo Bécquer publicado el 27 de julio de 1863 enLa América. Ambientada en Toledo durante la ocupación francesa a inicios del siglo XIX, la trama se desencadena con la llegada de un destacamento de dragones franceses, comandados por un joven capitán. Ante la escasez de alojamientos, los soldados se ven obligados a refugiarse en una iglesia en ruinas. Durante la noche, el capitán descubre en el templo la estatua de una mujer cuya belleza enigmática y sobrenatural lo cautiva. Lo que en un principio es fascinación pronto se transforma en una irreflexiva obsesión que tendrá dramáticas consecuencias para la vida del capitán.

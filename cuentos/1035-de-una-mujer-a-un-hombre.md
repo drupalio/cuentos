@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-de-una-mujer-a-un-hombre/4864/
 
+
+**Imagen:** 1035-de-una-mujer-a-un-hombre.jpg
 ---
 
 Sinopsis: «De una mujer a un hombre» es un cuento de Horacio Quiroga publicado el 24 de diciembre de 1917 en laRevista Popular. Durante una reunión entre amigos, donde se debate sobre los límites éticos de revelar la verdad, un médico cuenta una experiencia personal: una noche, acudió de urgencia para atender a una joven. En la intimidad de la consulta, ella le confía un secreto perturbador y le suplica que mantenga la confidencialidad con respecto a su familia. Más tarde, el doctor descubre otro hecho que vincula a esta misma mujer con un amigo cercano, por lo que se enfrenta al dilema de si debe o no revelar el secreto que la joven le confió.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/poul-anderson-llamame-joe/28497/
 
+
+**Imagen:** 0010-llámame-joe.webp
 ---
 
 Sinopsis:«Llámame Joe» (Call Me Joe) es un relato del escritor estadounidense Poul Anderson, publicado en abril de 1957 en la revistaAstounding Science Fiction. Edward Anglesey, un científico parapléjico instalado en una estación cercana a Júpiter, controla mediante un proyector psiónico el cuerpo de Joe, un ser artificial creado para sobrevivir en la superficie del planeta. A través de él, puede caminar, cazar, fabricar herramientas y explorar un mundo inaccesible para los seres humanos. Cuando las frecuentes fallas del equipo comienzan a amenazar el experimento, el especialista Jan Cornelius llega desde la Tierra para averiguar por qué la conexión entre Anglesey y Joe se vuelve cada vez más inestable.

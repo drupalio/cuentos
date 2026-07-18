@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-los-muchachos/17438/
 
+
+**Imagen:** 0587-los-muchachos.webp
 ---
 
 Sinopsis:«Los muchachos» (Мальчики), es un cuento de Antón Chéjov publicado en laGaceta de San Petersburgoel 21 de diciembre de 1887. La historia nos transporta a un hogar ruso donde reina la calidez familiar en vísperas navideñas. Volodia, el hijo mayor, regresa del instituto acompañado de su amigo Chechevitsen, un joven taciturno que despierta la curiosidad de las hermanas de Volodia. Mientras la familia se dedica con entusiasmo a preparar el árbol de Navidad, los muchachos, ajenos al bullicio, hacen planes en secreto, soñando con aventuras épicas y riquezas.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-navidades-sin-rodney/17615/
 
+
+**Imagen:** 0564-navidades-sin-rodney.webp
 ---
 
 Sinopsis:«Navidades sin Rodney» (Christmas Without Rodney) es un cuento de Isaac Asimov publicado enIsaac Asimov’s Science Fiction Magazineen diciembre de 1988. La apacible vida de Howard, un hombre amante de la rutina y la tranquilidad, se tambalea cuando su esposa, Gracie, decide darle vacaciones a Rodney, el fiel pero anticuado robot que ha servido a la familia durante años. Las cosas se complican cuando DeLancey, el hijo de Howard, llega a pasar la Navidad acompañado de su arrogante esposa Hortense y su antipático hijo LeRoy. Aunque traen consigo a Rambo, un robot de última generación para reemplazar a Rodney, su moderna eficiencia choca con las tradiciones y peculiaridades del hogar, lo que genera situaciones cómicas e inquietantes.

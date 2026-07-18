@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-llamado/27950/
 
+
+**Imagen:** 0131-el-llamado.webp
 ---
 
 Sinopsis:«El llamado» es un cuento de Horacio Quiroga, publicado el 21 de noviembre de 1926 enLa Nacióne incluido más tarde en el libroMás allá(1935). En un sanatorio, un médico invita a tres visitantes a escuchar el testimonio de una viuda internada tras la muerte de su hija. La paciente, agotada por el dolor, relata la enfermedad y muerte de su marido, un hombre frágil que había concentrado todo su amor en la niña. Desde entonces, la madre vive entregada por completo al cuidado de su hija, hasta que una voz lejana empieza a perturbar sus pensamientos.

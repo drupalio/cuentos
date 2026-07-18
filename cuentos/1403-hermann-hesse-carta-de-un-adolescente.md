@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermann-hesse-carta-de-un-adolescente/2341/
 
+
+**Imagen:** 1403-hermann-hesse-carta-de-un-adolescente.jpg
 ---
 
 QUERIDA SEÑORA,

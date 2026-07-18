@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-g-wells-un-sueno-de-armageddon/16037/
 
+
+**Imagen:** 0793-el-sueño-de-armageddon.webp
 ---
 
 Sinopsis«Un sueño de Armageddon» (A Dream of Armageddon) es un fascinante relato de H. G. Wells, publicado en 1901 en la revistaBlack and White Budget. La historia comienza en un tren, donde un hombre misterioso relata un sueño recurrente que lo atormenta, que está situado en un futuro lejano. Aunque sabe que es un sueño, lo vívido de la experiencia lo hace parecer una realidad alterna. En el sueño, él es un político influyente que abandona su carrera por el amor de una mujer y se retira con ella a la idílica Capri. Sin embargo, la amenaza de una guerra tecnológica inminente pronto los alcanza, poniendo en riesgo su felicidad. Este relato, perturbador en su visión sobre los sueños, también resulta inquietante por la anticipación de los desastres que pronto marcarían el siglo XX.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-el-pijama-del-gato/23636/
 
+
+**Imagen:** 0836-el-pijama-del-gato.webp
 ---
 
 Sinopsis:«El pijama del gato» (The Cat’s Pajamas) es un cuento de Ray Bradbury, publicado en julio de 2004 en la colecciónThe Cat’s Pajamas: Stories. En una carretera solitaria de California, un gatito negro aparece de pronto en la calzada y obliga a dos autos a frenar. De uno baja un joven; del otro, una muchacha. Ambos se inclinan a la vez para quedarse con el animal. La disputa los conduce a un café cercano, donde, entre silencios y confidencias, el azar de la carretera comienza a tornarse en la promesa de otra historia.

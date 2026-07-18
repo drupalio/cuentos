@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jhumpa-lahiri-la-frontera/8496/
 
+
+**Imagen:** 1223-jhumpa-lahiri-la-frontera.jpg
 ---
 
 Cada sábado aparece una nueva familia para pasar cierto periodo de tiempo aquí. Algunos llegan temprano por la mañana, desde lejos, listos ya para empezar las vacaciones. Otros no comparecen hasta el ocaso, quizá después de haberse perdido por el camino, de mal humor. Aquí es fácil perderse, entre las colinas no abundan las indicaciones.

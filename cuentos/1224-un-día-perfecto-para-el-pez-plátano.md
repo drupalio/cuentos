@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/j-d-salinger-un-dia-perfecto-para-el-pez-platano/2115/
 
+
+**Imagen:** 1224-un-día-perfecto-para-el-pez-plátano.jpg
 ---
 
 «Un día perfecto para el pez plátano», cuento de J.D. Salinger, autor de El Guardián entre el Centeno, se centra en la vida de Seymour Glass, un joven que ha vuelto de la guerra con aparentes problemas sicológicos. El cuento abre con un diálogo entre la esposa de Seymour y su madre, quien está preocupada por la seguridad de su hija al lado de Seymour. Mientras esto ocurre en el hotel, Seymour se encuentra en la playa, disfrutando con una nueva amiga, Sybil, una niña pequeña a quien cuenta la historia del pez plátano. La inocencia de la interacción entre Sybil y Seymour en nada hacen presagiar los dramáticos hechos que ocurrirán más adelante.

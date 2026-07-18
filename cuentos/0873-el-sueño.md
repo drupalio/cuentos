@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mary-shelley-el-sueno/14400/
 
+
+**Imagen:** 0873-el-sueño.jpg
 ---
 
 Sinopsis: En «El sueño» (The Dream), cuento de Mary Shelley publicado en 1831, la joven y hermosa condesa Constance de Villeneuve vive en soledad, afligida por la pérdida de su padre y sus hermanos en las guerras civiles. Decidida a ingresar en un convento, sus planes se ven alterados por la inesperada visita del rey y de Gaspar de Vaudemont, un antiguo amor cuyo regreso despierta intensas emociones en su corazón. Una noche de tormenta, Constance, en busca de guía divina, se adentra en una cueva sagrada, donde tiene visiones que la enfrentan a su amor y su destino. Atrapada entre el deber y la pasión, Constance deberá tomar decisiones que podrían cambiar su vida para siempre.

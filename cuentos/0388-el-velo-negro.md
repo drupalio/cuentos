@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/charles-dickens-el-velo-negro/12518/
 
+
+**Imagen:** 0388-el-velo-negro.jpg
 ---
 
 Sinopsis: «El velo negro» (The Black Veil) es un cuento de Charles Dickens, publicado en febrero de 1836 dentro del volumenSketches by Boz. La historia comienza una noche de invierno, cuando un joven médico, recién instalado en su consulta, recibe la inesperada visita de una mujer misteriosa, alta y completamente vestida de luto, con el rostro cubierto por un espeso velo negro. Perturbada y angustiada, le solicita ayuda urgente, pero no para sí misma, sino para otra persona. Su petición desconcertante lleva al médico a involucrarse en una situación inquietante, marcada por el dolor, el miedo y un sombrío secreto.

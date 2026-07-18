@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/lin-carter-l-sprague-de-camp-lagrimas-negras/22058/
 
+
+**Imagen:** 1002-lágrimas-negras.webp
 ---
 
 Sinopsis: «Lágrimas negras» (Black Tears) es un cuento de Lin Carter y L. Sprague de Camp, publicado en 1968 dentro de la antologíaConan the Wanderer. La historia comienza en el abrasador Desierto Rojo, donde una patrulla turania prepara una emboscada contra un grupo de forajidos zuagires liderados por Conan, el bárbaro cimmerio. La emboscada fracasa y desencadena una persecución que lleva a Conan a adentrarse en una tierra maldita, acosada por antiguas leyendas y terrores sobrenaturales. Impulsado por la sed de venganza, Conan se enfrenta no sólo a sus enemigos humanos, sino también a una amenaza ancestral que desafía su fuerza y su voluntad.

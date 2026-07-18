@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/wilkie-collins-cazador-cazado/2353/
 
+
+**Imagen:** 1406-wilkie-collins-cazador-cazado.jpg
 ---
 
 Del inspector jefe Theakstone, del Departamento de Investigaciones, al sargento Bulmer, de la misma oficina.

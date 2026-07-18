@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-c-clarke-encuentro-en-la-aurora/22143/
 
+
+**Imagen:** 0981-encuentro-en-la-aurora.webp
 ---
 
 Sinopsis: «Encuentro en la aurora» (Encounter in the Dawn) es un cuento de Arthur C. Clarke, publicado en junio-julio de 1953 en la revistaAmazing Stories, y recogido ese mismo año en la antologíaExpedition to Earth. Narra la misión de tres científicos del lejano Imperio Galáctico que descienden en un planeta primitivo, fértil y misterioso, donde pronto descubren señales de vida inteligente. Con cautela, uno de ellos intenta establecer contacto con un habitante local, iniciando un vínculo entre dos civilizaciones separadas por miles de años de evolución, pero unidas por su humanidad compartida.

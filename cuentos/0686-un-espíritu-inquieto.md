@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/manuel-rojas-espiritu-inquieto/851/
 
+
+**Imagen:** 0686-un-espíritu-inquieto.jpg
 ---
 
 Sinopsis: «Un espíritu inquieto», cuento del escritor chilenoManuel Rojas, publicado en 1926 en el libroHombres del sur, narra un día en la vida de Pablo González, un joven desempleado que deambula por Buenos Aires en una mañana soleada. Aunque su apariencia externa refleja éxito y confianza, Pablo está atrapado en un estado de melancolía y desesperanza. Su caminar por la ciudad lo lleva a reflexionar sobre la vida y la muerte, buscando un propósito para su existencia. A pesar de sus intentos de interacción con mujeres hermosas, su desasosiego interior persiste. Un inesperado evento y el encuentro con un amigo que no ha visto en años le permitirán responder algunas de sus preguntas, pero también abrirán nuevas incertidumbres.

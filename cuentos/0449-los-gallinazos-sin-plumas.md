@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-los-gallinazos-sin-plumas/1043/
 
+
+**Imagen:** 0449-los-gallinazos-sin-plumas.jpg
 ---
 
 Sinopsis:«Los gallinazos sin plumas» es un cuento del escritor peruano Julio Ramón Ribeyro publicado en 1955 en el libro homónimo. Narra la historia de dos hermanos, Efraín y Enrique, que viven con su abuelo, don Santos, y un cerdo llamado Pascual. Los niños se ven obligados a recoger basura en las calles de Lima para alimentar al animal. La trama se desarrolla en torno a la lucha diaria de los hermanos por sobrevivir en un ambiente de pobreza extrema y abusos por parte de su abuelo. Una historia que refleja la dura realidad de los marginados en una sociedad indiferente.

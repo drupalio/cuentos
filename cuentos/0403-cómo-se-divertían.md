@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-como-se-divertian/3877/
 
+
+**Imagen:** 0403-cómo-se-divertían.webp
 ---
 
 Sinopsis:«¡Cómo se divertían!» (The Fun They Had) es un cuento de Isaac Asimov, publicado en diciembre de 1951 enBoys and Girls Page. Margie y Tommy, dos niños que viven en una sociedad del futuro, descubren algo que nunca habían visto: un auténtico libro impreso en papel. Los dos amigos, y en especial Margie, se sienten fascinados por este singular objeto que describe un tiempo remoto en que la educación se impartía de una forma tan distinta a la que ellos conocen.

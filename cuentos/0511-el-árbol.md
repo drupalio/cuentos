@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elena-garro-el-arbol/10856/
 
+
+**Imagen:** 0511-el-árbol.webp
 ---
 
 Sinopsis:«El árbol» es un cuento de Elena Garro, publicado en 1964 en la colecciónLa semana de colores. Narra el encuentro entre Marta, una mujer de clase alta que vive sola en la Ciudad de México, y Luisa, una indígena que llega a su casa buscando refugio. Con signos evidentes de violencia, Luisa acusa a su marido de maltrato. Marta la recibe con disgusto y un desprecio apenas contenido. La tensión entre ambas mujeres se intensifica cuando Luisa comienza a revelar fragmentos inquietantes de su pasado, transformando una tarde ordinaria en un encuentro cargado de resentimiento y oscuros secretos.

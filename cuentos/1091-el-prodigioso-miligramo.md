@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-jose-arreola-el-prodigioso-miligramo/2453/
 
+
+**Imagen:** 1091-el-prodigioso-miligramo.jpg
 ---
 
 Sinopsis:«El prodigioso miligramo» es un cuento de Juan José Arreola, publicado en 1952 en el libroConfabulario. Narra la historia de una hormiga que, un día, al alejarse del camino habitual, encuentra un objeto pequeño y extraño: un prodigioso miligramo de peso exacto. Impulsada por una mezcla de orgullo y esperanza, regresa con él al hormiguero, donde su insólita carga despierta sorpresa, desconfianza y una cadena de reacciones inesperadas entre las demás hormigas. Lo que parecía un simple desvío se convierte en el inicio de una serie de acontecimientos que transforman profundamente la vida de la comunidad.

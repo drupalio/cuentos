@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edmond-hamilton-involucion/25046/
 
+
+**Imagen:** 0646-involución.webp
 ---
 
 Sinopsis:«Involución» (Devolution) es un cuento de Edmond Hamilton, publicado en diciembre de 1936 en la revistaAmazing Stories. En las profundidades del norte canadiense, un piloto conduce a dos biólogos en busca de unas criaturas insólitas que dice haber observado desde su avión: masas gelatinosas, translúcidas y brillantes que parecían flotar sobre el suelo. Durante la noche, mientras el equipo descansa en un improvisado campamento, afloran las dudas y el cansancio, sin imaginar que eso que intentan encontrar podría estar mucho más cerca de lo que creen.

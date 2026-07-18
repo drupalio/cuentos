@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-los-tres-besos/12257/
 
+
+**Imagen:** 0490-los-tres-besos.jpg
 ---
 
 Sinopsis: «Los tres besos», cuento deHoracio Quirogapublicado enLa Naciónen agosto de 1921, narra la historia de un hombre obsesionado con la idea de experimentar un amor intenso antes de morir. Un día recibe la visita de un ángel quien le comunica que Dios le ha concedido la oportunidad de besar a tres mujeres, las que él elija, con la advertencia de que el tercer beso le costará la vida. La historia explora las tensiones entre el amor, la felicidad y el deseo, invitando a reflexionar sobre el verdadero significado de la existencia y cómo nuestras elecciones moldean nuestro destino.

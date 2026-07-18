@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elena-garro-el-dia-que-fuimos-perros/2125/
 
+
+**Imagen:** 0975-el-día-que-fuimos-perros.jpg
 ---
 
 Sinopsis: «El día que fuimos perros» es un cuento de Elena Garro, publicado en 1964 en el libroLa semana de colores. Narra la historia de dos niñas que quedan solas en su casa mientras su familia viaja a Ciudad de México huyendo del calor de agosto. En este escenario de relativa libertad, las niñas exploran la casa y el jardín hasta decidir que ya no son humanas, sino perros que comparten su día con Toni, la mascota de la familia. Desde ese momento, las niñas se sumergen en un mundo construido con su imaginación, donde los límites entre el juego y la realidad se difuminan.

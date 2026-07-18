@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/teresa-wilms-montt-a-la-vera-del-brasero/2054/
 
+
+**Imagen:** 1413-teresa-wilms-montt-a-la-vera-del-brasero.jpg
 ---
 
 Frente a mi incensario que deja escapar por las bocas de bronce el humo del sándalo, me he puesto a recordar…

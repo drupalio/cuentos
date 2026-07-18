@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-conciliar-el-sueno/3652/
 
+
+**Imagen:** 1366-mario-benedetti-conciliar-el-sueño.jpg
 ---
 
 Lo que ocurre, doctor, es que en mi caso los sueños vienen por ciclos temáticos. Hubo una época en que soñaba con inundaciones. De pronto los ríos se desbordaban y anegaban los campos, las calles, las casas y hasta mi propia cama. Fíjense que en sueños aprendí a nadar y gracias a eso sobreviví a las catástrofes naturales. Lamentablemente, esa habilidad tuvo una vigencia sólo onírica, ya que un tiempo después pretendí ejercerla, totalmente despierto, en la piscina de un hotel y estuve a punto de ahogarme.

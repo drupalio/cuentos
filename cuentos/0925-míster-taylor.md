@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/augusto-monterroso-mister-taylor/14831/
 
+
+**Imagen:** 0925-míster-taylor.jpg
 ---
 
 Sinopsis: «Míster Taylor» es un cuento de Augusto Monterroso publicado en 1959 en el libroObras completas (y otros cuentos). Narra la historia de Percy Taylor, un estadounidense que llega a la selva amazónica en busca de fortuna. Pronto, Taylor descubre la oportunidad de un negocio insólito: la venta de cabezas humanas reducidas. Con el tiempo, la demanda de este artículo en su país natal crece desmesuradamente y Taylor se convierte en un próspero empresario. Sin embargo, este macabro comercio tendrá consecuencias imprevistas y devastadoras, que ponen de manifiesto una crítica mordaz a la codicia y la explotación.

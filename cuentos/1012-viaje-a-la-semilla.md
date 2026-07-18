@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alejo-carpentier-viaje-a-la-semilla/21985/
 
+
+**Imagen:** 1012-viaje-a-la-semilla.webp
 ---
 
 Sinopsis:«Viaje a la semilla» es un cuento de Alejo Carpentier, publicado en 1944 en el libro homónimo e incluido posteriormente enGuerra del tiempo(1958). La historia comienza con un misterioso anciano que observa en silencio cómo un grupo de obreros demuele una antigua casona. Al caer la noche, ya solo en el lugar, el hombre parece ejecutar un conjuro arcano que desencadena un proceso insólito: el tiempo comienza a retroceder, los escombros se reordenan y la casa recobra su forma original. Desde entonces, el relato traza un viaje regresivo por la vida de Don Marcial, recreando el tránsito que va desde la muerte hasta la concepción, en una prosa barroca que disuelve las fronteras entre lo real, lo mágico y lo mítico.

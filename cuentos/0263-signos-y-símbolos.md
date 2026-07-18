@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/vladimir-nabokov-signos-y-simbolos/2106/
 
+
+**Imagen:** 0263-signos-y-símbolos.webp
 ---
 
 Sinopsis: «Signos y símbolos» es un cuento de Vladimir Nabokov, publicado el 15 de mayo de 1948 enThe New Yorker. Relata un día especialmente difícil en la vida de una pareja de ancianos inmigrantes que visita a su hijo internado en un sanatorio por una enfermedad mental severa. Enfrentan contratiempos cotidianos, recuerdos dolorosos y el peso de una existencia marcada por la pérdida y la resignación. La narración avanza con una calma tensa, entre detalles aparentemente triviales que van revelando una atmósfera cargada de angustia, mientras los signos del mundo exterior parecen adquirir un inquietante significado oculto.

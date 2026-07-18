@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-la-vieja-inocencia/21728/
 
+
+**Imagen:** 1045-la-vieja-inocencia.webp
 ---
 
 Sinopsis: «La vieja inocencia» es un cuento de Mario Benedetti publicado en 1999 en el libroBuzón del tiempo. La historia sigue a un hombre mayor que escribe una carta a una antigua amiga de juventud y rememora el pasado desde la soledad de su vejez. Con un tono íntimo y reflexivo, evoca con ternura los momentos compartidos, el paso del tiempo, las pérdidas y la distancia que los separa. Con un lenguaje directo y nostálgico, el relato entrelaza recuerdos personales con confesiones que se han ido posponiendo durante mucho tiempo y muestra cómo un instante del pasado puede persistir intacto en la memoria emocional de toda una vida.

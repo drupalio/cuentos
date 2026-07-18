@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/franz-kafka-un-informe-para-una-academia/24136/
 
+
+**Imagen:** 0707-un-informe-para-una-academia.webp
 ---
 
 Sinopsis: «Un informe para una academia» (Ein Bericht für eine Akademie) es un cuento de Franz Kafka, publicado en 1917 en la revista Der Jude y luego incluido en el libroEin Landarzt(1920). Un peculiar simio que ha adoptado conductas humanas es convocado ante una asamblea académica para dar testimonio de su anterior vida en la naturaleza. Capturado en la Costa de Oro y encerrado en una jaula a bordo de un barco, narra con precisión las duras condiciones de su cautiverio y los motivos que lo llevaron a buscar una salida en la imitación de los hombres que lo rodeaban. Su relato reconstruye el inicio de una adaptación forzada que marcará para siempre el rumbo de su existencia.

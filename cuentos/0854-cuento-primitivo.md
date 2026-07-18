@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-cuento-primitivo/15481/
 
+
+**Imagen:** 0854-cuento-primitivo.webp
 ---
 
 Sinopsis: «Cuento primitivo» es una ingeniosa y satírica reinterpretación del Génesis escrita por Emilia Pardo Bazán, una de las autoras españolas más destacadas del siglo XIX. Publicado en 1893, este relato combina humor, crítica social y reflexión teológica. Mediante un narrador que evoca las conversaciones con un amigo anticlerical, la historia ofrece una versión alternativa de la creación del hombre y la mujer, con toques de ironía y escepticismo. Mediante el humor y la sátira, la autora aborda problemáticas de género que sorprenden por su actualidad, desmantelando aquellos mitos bíblicos que perpetúan la supuesta inferioridad de la mujer.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/william-faulkner-una-rosa-emily/773/
 
+
+**Imagen:** 0472-una-rosa-para-emily.jpg
 ---
 
 Sinopsis:«Una rosa para Emily» (A Rose for Emily) es un cuento de William Faulkner, publicado en abril de 1930 en la revistaThe Forum. Emily Grierson es una mujer enigmática que vive en un pequeño pueblo del sur de Estados Unidos. Perteneciente a una antigua familia aristocrática, su vida está marcada por la influencia de un padre dominante y celoso que ahuyenta a todos sus pretendientes. Tras la muerte de este, Emily se encierra progresivamente en su casa, aislándose del mundo exterior, hasta que la llegada de Homer Barron, un carismático capataz norteño, despierta la curiosidad y los rumores entre los habitantes del pueblo.

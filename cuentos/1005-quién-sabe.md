@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-quien-sabe/13643/
 
+
+**Imagen:** 1005-quién-sabe.jpg
 ---
 
 Sinopsis: «¿Quién sabe?» (Qui sait?), es un cuento de Guy de Maupassant publicado el 6 de abril de 1890 enL’Échode Paris. Narra la inquietante experiencia de un hombre solitario y profundamente introvertido, que valora la quietud y privacidad de su existencia por encima de la compañía humana, motivo por el que asegura sentirse más a gusto en compañía de objetos inanimados que de personas. Un día, tras regresar a su hogar luego de una noche en el teatro, asiste a una inexplicable experiencia sobrenatural que afectará profundamente su vida.

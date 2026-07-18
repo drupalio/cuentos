@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-bosch-la-mujer/6131/
 
+
+**Imagen:** 0392-la-mujer.webp
 ---
 
 Sinopsis:«La mujer» es un cuento del escritor dominicano Juan Bosch, publicado el 1 de mayo de 1932 en la revistaCarteles. En una carretera desolada, perdida en una vasta planicie rural, un viajero avanza bajo un sol abrasador. En la distancia distingue un bulto que, al acercarse, descubre que es una mujer brutalmente golpeada por su marido. Junto a ella, su hijo llora desconsolado. Movido por la compasión, el viajero decide socorrerla, sin sospechar las consecuencias que aquel acto de generosidad habrá de tener.

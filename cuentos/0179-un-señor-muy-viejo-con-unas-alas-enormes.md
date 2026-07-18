@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-un-senor-muy-viejo-con-unas-alas-enormes/2698/
 
+
+**Imagen:** 0179-un-señor-muy-viejo-con-unas-alas-enormes.jpg
 ---
 
 Sinopsis: «Un señor muy viejo con unas alas enormes» es un cuento de Gabriel García Márquez, publicado en 1972 en el libroLa increíble y triste historia de la cándida Eréndira y de su abuela desalmada. Cuenta la historia de Pelayo y su esposa Elisenda, quienes, tras varios días de lluvia, encuentran en su patio a un anciano con enormes alas caído y revolcado en el lodo. La pareja, desconcertada por su aspecto miserable y por el aspecto sucio de sus alas, no sabe si se enfrentan a un ángel o a un náufrago. La noticia se difunde rápidamente y el hombre alado se convierte en el centro de atención del vecindario, despertando entre los visitantes tanto la fe en lo sobrenatural como la pura curiosidad.

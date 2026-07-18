@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/james-joyce-una-madre/21996/
 
+
+**Imagen:** 1007-una-madre.webp
 ---
 
 Sinopsis:«Una madre» (A Mother) es un cuento de James Joyce, publicado en 1914 dentro de la colecciónDubliners. La historia gira en torno a Mrs. Kearney, una mujer orgullosa y meticulosa, que se compromete con entusiasmo en la organización de una serie de conciertos promovidos por una sociedad cultural irlandesa, donde su hija Kathleen debe actuar como pianista. Decidida a asegurar el reconocimiento profesional y económico de su hija, se involucra a fondo en los preparativos, pero pronto se enfrenta a la desorganización, el desinterés y la falta de seriedad de los responsables del evento.

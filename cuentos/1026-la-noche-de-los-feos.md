@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-la-noche-de-los-feos/2506/
 
+
+**Imagen:** 1026-la-noche-de-los-feos.webp
 ---
 
 Sinopsis: «La noche de los feos» es un cuento de Mario Benedetti, publicado en 1968 en el libroLa muerte y otras sorpresas. Narra el encuentro fortuito entre un hombre y una mujer marcados por visibles deformidades en el rostro, cuyas cicatrices físicas reflejan también una profunda herida emocional. Se conocen mientras hacen fila para entrar al cine y, al reconocerse en la fealdad del otro, establecen un vínculo teñido de resentimiento, anhelo y deseo de compañía. Unidos por la exclusión que sienten del mundo “normal”, se embarcan en una conversación íntima que los confronta con su soledad, su deseo y su humanidad.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-la-condecoracion/5565/
 
+
+**Imagen:** 1309-la-condecoración.jpg
 ---
 
 El maestro de escuela León Pustiakof vive al lado de la casa de su amigo el teniente Ladenzof. Allí dirige sus pasos en aquella mañana del día de Año Nuevo.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-el-violin-de-rothschild/27785/
 
+
+**Imagen:** 0158-el-violín-de-rothschild.webp
 ---
 
 Sinopsis:«El violín de Rothschild» (Скрипка Ротшильда) es un cuento del escritor ruso Antón Chéjov, publicado en 1894 en el diarioRusskie Védomosti. Yákov Ivánov es un viejo fabricante de ataúdes que vive pobremente en un pequeño pueblo junto a su silenciosa y abnegada esposa Marfa. Hombre amargado y avaro, obsesionado con las pérdidas económicas, complementa sus ingresos tocando el violín en una orquesta de bodas, donde descarga su odio sobre Rothschild, un humilde flautista judío. La existencia rutinaria de Yákov sufre un vuelco cuando Marfa cae enferma y él debe llevarla al hospital, donde se enfrenta a la indiferencia de un practicante incapaz de ofrecerle verdadera ayuda.

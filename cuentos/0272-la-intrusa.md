@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-la-intrusa/6103/
 
+
+**Imagen:** 0272-la-intrusa.jpg
 ---
 
 Sinopsis: «La intrusa» es un cuento de Jorge Luis Borges, publicado en 1970 en el libroEl informe de Brodie. La historia transcurre en Turdera, un pueblo ubicado en las afueras de Buenos Aires, y narra la vida de dos hermanos, Cristián y Eduardo Nilsen, rudos troperos unidos por la violencia, el orgullo y una extraña lealtad. Su vínculo comienza a tensarse cuando una mujer, Juliana Burgos, entra en sus vidas y altera el equilibrio que los mantenía unidos. Un cuento con una historia sórdida que retrata la vida en el campo argentino en una época en la que las mujeres no eran más que objetos.

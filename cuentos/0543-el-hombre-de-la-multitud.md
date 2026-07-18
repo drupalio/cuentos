@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-el-hombre-de-la-multitud/25575/
 
+
+**Imagen:** 0543-el-hombre-de-la-multitud.webp
 ---
 
 Sinopsis:«El hombre de la multitud» (The Man of the Crowd) es un cuento de Edgar Allan Poe, publicado en diciembre de 1840 enBurton’s Gentleman’s MagazineyAtkinson’s Casket. Un hombre observa desde la ventana de un café londinense el fluir incesante de personas por una avenida muy concurrida. Durante horas, contempla y clasifica a los transeúntes según su apariencia y comportamiento: comerciantes, empleados, tahúres, mendigos, prostitutas. Al anochecer, su atención queda atrapada por un anciano de expresión extraordinariamente enigmática. Impulsado por una curiosidad irresistible, abandona el café para seguir al misterioso viejo por las nocturnas calles de Londres.

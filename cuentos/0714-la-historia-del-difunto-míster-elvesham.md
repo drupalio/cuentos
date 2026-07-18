@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-g-wells-la-historia-del-difunto-mister-elvesham/24590/
 
+
+**Imagen:** 0714-la-historia-del-difunto-míster-elvesham.webp
 ---
 
 Sinopsis: «La historia del difunto Míster Elvesham» (The Story of the Late Mr. Elvesham) es un cuento de H. G. Wells, publicado en mayo de 1896 en la revistaThe Idler. Edward Eden, un joven estudiante de medicina, es abordado en la calle por un anciano desconocido que lo invita a almorzar y le propone convertirlo en su heredero. Intrigado y tentado por la oferta, Eden acepta someterse a una serie de exámenes que el anciano exige como condición para sellar el trato. Lo que parece una oportunidad providencial pronto se transforma en el umbral de un destino inquietante.

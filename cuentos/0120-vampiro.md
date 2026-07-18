@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-vampiro/13354/
 
+
+**Imagen:** 0120-vampiro.jpg
 ---
 
 Sinopsis: «Vampiro», es un cuento de Emilia Pardo Bazán publicado en 1901 enBlanco y Negro. Narra la historia de una unión desigual y escandalosa entre don Fortunato Gayoso, un anciano de setenta y siete años, y la joven Inesiña de solo quince. La boda desata rumores y escándalo en Vilamorta y sus alrededores. Don Fortunato, quien ha amasado una considerable fortuna de dudosa procedencia, ha vuelto a su tierra para invertir y casarse. Lo que comienza como la búsqueda de compañía para su vejez por parte de un anciano, pronto se desvela como un plan con intenciones mucho más siniestras.

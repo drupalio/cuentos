@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-muerte-constante-mas-alla-del-amor/23366/
 
+
+**Imagen:** 0827-muerte-constante-más-allá-del-amor.webp
 ---
 
 Sinopsis:«Muerte constante más allá del amor»es un cuento de Gabriel García Márquez, publicado en 1972 dentro del libroLa increíble y triste historia de la cándida Eréndira y de su abuela desalmada. Narra la visita del senador Onésimo Sánchez al remoto pueblo del Rosal del Virrey, como parte de su gira electoral. Mientras despliega su habitual espectáculo, cargado de promesas imposibles y escenografías de cartón, el senador arrastra en secreto una sentencia de muerte que lo confronta con el vacío de su existencia. En medio del calor sofocante, la rutina y la farsa política, su encuentro con la joven Laura Fariña marcará un giro inesperado en su vida.

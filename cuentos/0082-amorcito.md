@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-amorcito/28149/
 
+
+**Imagen:** 0082-amorcito.webp
 ---
 
 Sinopsis:«Amorcito» (Душечка) es un cuento del escritor ruso Antón Chéjov, publicado el 3 de enero de 1899 en la revistaSemia. Olenka es una mujer joven y dócil, de carácter afable y buena apariencia, que despierta simpatía en quienes la rodean. Pero Olenka tiene un defecto: no sabe formar opiniones propias. Por eso, cuando decide casarse, se entrega por entero a su matrimonio y adopta de su marido sus preocupaciones, su lenguaje y sus ideas, que repite como si fueran suyas. Todo marcha bien durante un tiempo, hasta que la felicidad conyugal se quiebra y Olenka debe rehacer su vida, siempre dispuesta a amar de nuevo y a pensar con ideas ajenas.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-el-extrano/5183/
 
+
+**Imagen:** 0600-el-extraño.webp
 ---
 
 Sinopsis:«El extraño» (The Outsider) es un cuento corto de H. P. Lovecraft, publicado en abril de 1926 en la revistaWeird Tales. Relata la desoladora existencia de un individuo aislado en un antiguo y sombrío castillo, completamente desconectado del mundo exterior y privado de todo contacto humano. Alimentado por recuerdos fragmentarios y oscuros, el protagonista habita en una soledad opresiva, rodeado de sombras y libros, sin conocer su origen ni su propia apariencia. Movido por un profundo anhelo de luz y de contacto con el mundo exterior, emprende una escalada temeraria hacia la cima del castillo, donde vivirá una experiencia estremecedora.

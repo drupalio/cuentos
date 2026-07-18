@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/oscar-cerruto-el-circulo/7741/
 
+
+**Imagen:** 0675-el-círculo.jpg
 ---
 
 Sinopsis:En«El círculo«, cuento de Oscar Cerruto publicado en 1958 enCerco de penumbras, Vicente regresa a su antigua ciudad en una fría y oscura noche, después de dos años de ausencia, para buscar a Elvira, su antiguo amor. Mientras se acerca a su casa, recuerda su tumultuosa relación, marcada por los celos y la inestabilidad emocional de ella, que lo llevaron a huir. Al llegar, es recibido por una Elvira pálida y distante, que parece esperarlo. Aunque ella no muestra las explosiones de celos que él temía, Vicente siente una inquietud latente. La conversación entre ambos es tensa y llena de emociones no resueltas, pero un beso parece hacer renacer las llamas de un amor que creía extinguido.

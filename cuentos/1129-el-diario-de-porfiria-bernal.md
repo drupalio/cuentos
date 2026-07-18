@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/silvina-ocampo-el-diario-de-porfiria-bernal/3035/
 
+
+**Imagen:** 1129-el-diario-de-porfiria-bernal.jpg
 ---
 
 «El diario de Porfiria Bernal», cuento de Silvina Ocampo, es una historia intrigante que se desarrolla en Argentina, centrada en la compleja relación entre una institutriz inglesa, Antonia Fielding, y su joven alumna, Porfiria Bernal. Antonia, contratada por una familia de la alta sociedad argentina, se encuentra inmersa en un ambiente cargado de misterio y sutiles tensiones. La narrativa toma un giro inesperado cuando Porfiria comienza a escribir un diario, animada por su institutriz, que se convierte en un elemento crucial en la trama. A través de las entradas del diario, se revelan percepciones sorprendentes y a menudo perturbadoras sobre la familia, el entorno y la propia Antonia. Este cuento, que entrelaza lo cotidiano con lo enigmático, es una exploración fascinante de la psicología de los personajes, la naturaleza de la realidad y el poder de la imaginación.

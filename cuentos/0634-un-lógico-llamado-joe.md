@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/murray-leinster-un-logico-llamado-joe/25092/
 
+
+**Imagen:** 0634-un-lógico-llamado-joe.webp
 ---
 
 Sinopsis:«Un lógico llamado Joe» (A Logic Named Joe) es un cuento de Murray Leinster, publicado en marzo de 1946 en la revistaAstounding Science Fiction. Relata la historia de Ducky, un técnico de mantenimiento que trabaja reparando “lógicos”, unas máquinas domésticas con pantalla y teclado capaces de responder cualquier consulta conectándose a vastos depósitos de información. Todo comienza cuando uno de esos aparatos, Joe, sale ligeramente defectuoso de fábrica y empieza a tomar decisiones por su cuenta, ofreciendo respuestas demasiado eficientes y peligrosas. Mientras Ducky lidia con su agitada vida personal y la llegada de una antigua novia, descubre que el inesperado ingenio de Joe podría volverse una amenaza para todos.

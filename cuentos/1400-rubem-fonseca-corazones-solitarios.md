@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/rubem-fonseca-corazones-solitarios/2385/
 
+
+**Imagen:** 1400-rubem-fonseca-corazones-solitarios.jpg
 ---
 
 Trabajaba en un diario popular como reportero de casos policiacos. Hacía mucho tiempo que no ocurría en la ciudad un crimen interesante, que involucrara a una rica y linda joven de la sociedad, muertes, desapariciones, corrupción, mentiras, sexo, ambición, dinero, violencia, escándalo.

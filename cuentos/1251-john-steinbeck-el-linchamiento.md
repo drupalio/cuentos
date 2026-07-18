@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/john-steinbeck-el-linchamiento/8176/
 
+
+**Imagen:** 1251-john-steinbeck-el-linchamiento.jpg
 ---
 
 El arrebato pasional, el confuso movimiento y el vocerío de la multitud fueron extinguiéndose poco a poco, y el silencio se hizo dueño de nuevo del pequeño parque municipal. Grupos de personas quedaban aún cerca de los árboles, como figuras fantasmales a la luz azulada de una casa próxima. Todos parecían cansados, y se movían sigilosos, casi de puntillas; uno a uno, los grupos se dispersaban, perdiéndose en las sombras. El césped del parque aparecía pisoteado y roto por mil sitios, como un tapiz hecho jirones.

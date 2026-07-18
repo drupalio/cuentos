@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/leopoldo-alas-clarin-el-rey-baltasar/4764/
 
+
+**Imagen:** 1350-leopoldo-alas-clarín-el-rey-baltasar.jpg
 ---
 
 Don Baltasar Miajas llevaba de empleado en una oficina de Madrid más de veinte años; primero había tenido ocho mil reales de sueldo, después diez, después doce y después… diez; porque quedó cesante, no hubo manera de reponerle en su último empleo y tuvo que conformarse, pues era peor morirse de hambre, en compañía de todos los suyos, con el sueldo inmediato… inferior. «¡Esto me rejuvenece!», decía con una ironía inocentísima; humillado, pero sin vergüenza, porque él no había hecho nada feo, y a los Catones de plantilla que le aconsejaban renunciar al destino por dignidad, les contestaba con buenas palabras, dándoles la razón, pero decidido a no dimitir, ¡qué atrocidad! Al poco tiempo, cuando todavía algunos compañeros, más por molestarle que por espíritu de cuerpo, hablaban con indignación del «caso inaudito de Miajas», el interesado ya no se acordaba de querer mal a nadie por causa del bajón de marras, y estaba con sus diez mil como si en la vida hubiese tenido doce.

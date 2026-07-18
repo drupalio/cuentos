@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-perro-rabioso/22689/
 
+
+**Imagen:** 0950-el-perro-rabioso.webp
 ---
 
 Sinopsis: «El perro rabioso» es un cuento de Horacio Quiroga, publicado en 1917 en el libroCuentos de amor de locura y de muerte(aunque fue suprimido en ediciones posteriores). En una aislada casa del interior argentino, Federico, su esposa y su madre viven bajo la amenaza de una epidemia de rabia que se extiende por la región. Las lluvias incesantes, el aislamiento y los relatos de perros enfermos alimentan la ansiedad de la familia, especialmente de la madre. Una noche, entre los aullidos que envuelven la oscuridad, algo logra abrirse paso hacia el interior del hogar.

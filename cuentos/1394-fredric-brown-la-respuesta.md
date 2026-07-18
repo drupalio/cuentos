@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fredric-brown-la-respuesta/2450/
 
+
+**Imagen:** 1394-fredric-brown-la-respuesta.jpg
 ---
 
 Dwar Ev soldó ceremoniosamente la última conexión con oro. Los ojos de una docena de cámaras de televisión le contemplaban y el subéter transmitió al universo una docena de imágenes sobre lo que estaba haciendo.

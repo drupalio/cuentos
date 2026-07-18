@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/enrique-anderson-imbert-el-fantasma/22308/
 
+
+**Imagen:** 0984-el-fantasma.webp
 ---
 
 Sinopsis: «El fantasma» es un cuento de Enrique Anderson Imbert, publicado en 1946 en el libroLas pruebas del caos. Narra la historia de un hombre que, al morir repentinamente, se descubre separado de su cuerpo y enfrentado a la desconcertante continuidad del mundo material. Atrapado entre lo visible y lo invisible, recorre su hogar convertido en un espectador silencioso de su propia ausencia. Nada ha cambiado salvo su nueva condición: está muerto, pero sigue allí, sin poder intervenir, contemplando cómo la vida continúa sin él. Así se inicia su existencia como espectro, marcado por la soledad, la rutina y el eco impasible de su vida anterior.

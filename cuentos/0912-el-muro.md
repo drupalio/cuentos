@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jean-paul-sartre-muro/796/
 
+
+**Imagen:** 0912-el-muro.jpg
 ---
 
 Sinopsis: «El muro» (Le mur), cuento de Jean-Paul Sartre publicado en 1939, relata la historia de tres prisioneros durante la Guerra Civil Española. Pablo Ibbieta, Tom Steinbock y Juan Mirbal están encarcelados por el régimen franquista y se enfrentan a una ejecución inminente. A lo largo de una tensa noche, los personajes luchan contra la realidad de su situación y exploran sus pensamientos, miedos y reflexiones sobre la vida y la muerte. Sartre utiliza esta premisa para examinar temas existencialistas como la libertad, la responsabilidad y el absurdo de la condición humana. La narrativa cruda y directa sumerge al lector en la atmósfera opresiva de la celda mientras los protagonistas se enfrentan a sus últimas horas y cuestionan el significado de sus vidas ante la certeza de la muerte.

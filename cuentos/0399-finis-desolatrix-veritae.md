@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/abraham-valdelomar-finis-desolatrix-veritae/26389/
 
+
+**Imagen:** 0399-finis-desolatrix-veritae.webp
 ---
 
 Sinopsis:«Finis desolatrix veritae» es un cuento del escritor peruano Abraham Valdelomar, publicado el 1 de enero de 1916 en el diarioEl Comercioe incluido posteriormente en la colecciónEl caballero Carmelo(1918). Un hombre despierta bajo un sol inmóvil y agonizante, en un páramo desolado donde la vida parece haberse extinguido por completo. Solo y desorientado en este escenario postapocalíptico, encuentra a otro ser y entabla con él un diálogo sobre el destino de la humanidad en un mundo donde el tiempo y el espacio han dejado de existir.

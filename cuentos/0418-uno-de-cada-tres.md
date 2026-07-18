@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/augusto-monterroso-uno-de-cada-tres/19441/
 
+
+**Imagen:** 0418-uno-de-cada-tres.webp
 ---
 
 Sinopsis:«Uno de cada tres» es un cuento de Augusto Monterroso, publicado en 1953. Narra la historia de un hombre que recibe una enigmática carta de alguien que dice conocer a fondo la psicología humana, especialmente la necesidad de algunas personas de atraer la atención exhibiendo sus desgracias. Con una aguda observación y un tono sarcástico, el remitente analiza esta compulsión y le propone al destinatario una solución a su profundo anhelo de ser escuchado.

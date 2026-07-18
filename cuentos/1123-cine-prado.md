@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elena-poniatowska-cine-prado/4458/
 
+
+**Imagen:** 1123-cine-prado.jpg
 ---
 
 Sinopsis: “Cine Prado”, cuento de Elena Poniatowska, se estructura en torno a la historia de un hombre obsesionado con una actriz de cine francesa. En el relato el hombre escribe una carta a la actriz para contarle lo decepcionado que está por el curso que ha tomado su carrera, y los estragos que esto ha provocado en su propia vida. Un cuento que explora la dificultad de algunas personas para distinguir ficción de realidad, especialmente cuando se trata de sus ídolos cinematográficos.

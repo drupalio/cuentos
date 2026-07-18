@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-este-pueblo-no-ladrones/1101/
 
+
+**Imagen:** 0127-en-este-pueblo-no-hay-ladrones.jpg
 ---
 
 Sinopsis: «En este pueblo no hay ladrones» es un cuento de Gabriel García Márquez publicado en 1962 en el libroLos funerales de la Mamá Grande. Dámaso es un joven impulsivo que comete un robo fallido por el que obtiene solo 25 centavos y tres bolas de billar. El atraco causa gran conmoción en el pequeño pueblo en que vive, donde todos se conocen y la idea de un ladrón es inimaginable. La situación se complica cuando un hombre inocente es arrestado por el delito, profundizando la tensión y el miedo entre los habitantes.

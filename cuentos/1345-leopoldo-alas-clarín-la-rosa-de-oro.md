@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/leopoldo-alas-clarin-la-rosa-de-oro/4583/
 
+
+**Imagen:** 1345-leopoldo-alas-clarín-la-rosa-de-oro.jpg
 ---
 
 Una vez era un Papa que a los ochenta años tenía la tez como una virgen rubia de veinte, los ojos azules y dulces con toda la juventud del amor eterno, y las manos pequeñas, de afiladísimos dedos, de uñas sonrosadas, como las de un niño en estatua de Paros, esculpida por un escultor griego. Estas manos, que jamás habían intervenido en un pecado, las juntaba por hábito en cuanto se distraía, uniéndolas por las palmas, y acercándolas al pecho como santo bizantino. Como un santo bizantino en pintura, llevaba la vida este Papa esmaltada en oro, pues el mundo que le rodeaba era materia preciosa para él, por ser obra de Dios. El tiempo y el espacio parecíanle sagrados, y como eran hieráticas sus humildes actitudes y posturas, lo eran los actos suyos de cada día, movidos siempre por regla invariable de piadosa humildad, de pureza trasparente. Aborrecía el pecado por lo que tenía de mancha, de profanación de la santidad de lo creado. Sus virtudes eran pulcritud.

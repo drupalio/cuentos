@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/nathaniel-hawthorne-joven-goodman-brown/1160/
 
+
+**Imagen:** 0302-el-joven-goodman-brown.webp
 ---
 
 «El joven Goodman Brown»(Young Goodman Brown), es un relato de terror escrito por Nathaniel Hawthorne, publicado enThe New-England Magazineen abril de 1835. La historia sigue a Goodman Brown, un joven de Salem que una noche se despide de su esposa para cumplir con una enigmática y urgente cita. A poco de iniciado el viaje, se encuentra con un misterioso hombre que se revela como Satanás, y juntos se adentran en lo más profundo del bosque, donde presenciará una inquietante ceremonia. En el transcurso de esa noche, Brown será confrontado con perturbadoras revelaciones que sacudirán su fe y su visión de todo lo que le rodea, marcando un antes y un después en su vida.

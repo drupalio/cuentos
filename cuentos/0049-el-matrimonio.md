@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/max-aub-el-matrimonio/4275/
 
+
+**Imagen:** 0049-el-matrimonio.jpg
 ---
 
 Sinopsis: «El matrimonio» es un cuento corto de Max Aub publicado en 1955 en la colecciónCiertos cuentos, cuentos ciertos. Una anciana débil y enferma, se levanta con dificultad para despedirse de los objetos que han sido parte de su existencia durante más de cuarenta años. Sus familiares, sumidos en la tristeza, la observan en silencio mientras ella recorre la sala, tocando cada mueble y recordando su vida. En su despedida final, revela un secreto profundo que cambia la perspectiva sobre su matrimonio.

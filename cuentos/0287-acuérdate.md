@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-rulfo-acuerdate/10801/
 
+
+**Imagen:** 0287-acuérdate.webp
 ---
 
 Sinopsis:«Acuérdate» es un cuento de Juan Rulfo, publicado en 1953 en la colecciónEl llano en llamas. Narra la historia de Urbano Gómez, un muchacho astuto y buscavidas criado en un entorno marcado por la pobreza y las habladurías de los vecinos. A través de recuerdos de su niñez —su madre pendenciera, su hermana con ataques de hipo, sus ventas y pequeños engaños para ganarse la vida—, el relato reconstruye los años en que Urbano recorre el pueblo, delineando un ambiente vivo en el que su figura se vuelve inseparable del bullicio cotidiano, hasta que un bochornoso incidente ocurrido en la escuela altera esa rutina para siempre.

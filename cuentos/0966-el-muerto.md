@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-muerto/660/
 
+
+**Imagen:** 0966-el-muerto.webp
 ---
 
 Sinopsis:«El muerto» es un cuento de Jorge Luis Borges, publicado en 1949 en la colecciónEl Aleph. Relata la historia de Benjamín Otálora, un joven compadrito porteño que, tras cometer un crimen, huye a Montevideo con la intención de empezar de nuevo. Allí se ve arrastrado a un mundo de gauchos y contrabandistas, donde el coraje y la astucia definen el destino de los hombres. Atraído por el poder y el peligro, Otálora se une a la banda de Azevedo Bandeira, un caudillo enigmático y temido. Impulsado por la ambición, emprende un ascenso temerario dentro del grupo, sin advertir las señales que presagian su destino.

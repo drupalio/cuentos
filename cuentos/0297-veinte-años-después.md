@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/o-henry-veinte-anos-despues/4743/
 
+
+**Imagen:** 0297-veinte-años-después.webp
 ---
 
 Sinopsis: «Veinte años después» (After Twenty Years) es un cuento de O. Henry (seudónimo de William Sydney Porter), publicado en 1906 en la colecciónThe Four Million. Ambientado en una fría noche neoyorquina, la historia comienza con un policía que patrulla las calles casi desiertas hasta encontrarse con un hombre que espera a un viejo amigo. Hace dos décadas, ambos hicieron una promesa: reencontrarse en ese mismo lugar y a la misma hora, sin importar cómo hubiese cambiado sus vidas. El diálogo entre el policía y el desconocido revela detalles de esa antigua amistad, marcando el tono nostálgico y expectante del relato.

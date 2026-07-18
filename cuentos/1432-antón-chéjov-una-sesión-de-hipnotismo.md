@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-una-sesion-hipnotismo/934/
 
+
+**Imagen:** 1432-antón-chéjov-una-sesión-de-hipnotismo.jpg
 ---
 
 La enorme sala rutilaba con sus luces y hormigueaba de gente. Era el reino del hipnotizador. A pesar de su aspecto endeble y poco atractivo, el hipnotizador brillaba, lucía, deslumbraba. Le sonreían, y aplaudían y obedecían. Y también palidecían.

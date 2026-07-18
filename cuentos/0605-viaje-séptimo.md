@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stanislaw-lem-viaje-septimo/25261/
 
+
+**Imagen:** 0605-viaje-séptimo.webp
 ---
 
 Sinopsis:«Viaje séptimo»(Podróż siódma) es un cuento del autor polaco Stanisław Lem, incluido en la colecciónNiezwyciężony i inne opowiadania, publicada en 1964. Narra la historia de Ijon Tichy, un cosmonauta que, tras una avería en su nave causada por un meteorito, queda a la deriva sin posibilidad de maniobrar. Atrapado en las cercanías de Betelgeuse, descubre que para solucionar el desperfecto necesita la ayuda de otra persona, pero viaja completamente solo. Aislado, frustrado y con recursos limitados, su intento de resolver el problema lo lleva a enfrentarse a una extraña distorsión temporal que transforma una tarea sencilla en un enredo cada vez más absurdo y delirante.

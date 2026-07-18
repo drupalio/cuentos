@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/aldous-huxley-joven-arquimedes/1030/
 
+
+**Imagen:** 1428-aldous-huxley-el-joven-arquímedes.jpg
 ---
 
 Fue la vista lo que nos decidió a alquilarla. Es cierto que la casa tenía sus inconvenientes. Estaba bastante lejos de la ciudad y no tenía teléfono. El alquiler era excesivamente caro y los desagües deficientes. En las noches de viento, cuando los vidrios mal colocados hacían en las maderas de las ventanas un ruido terrible como el de los ómnibus de hotel, la luz eléctrica, por algún misterioso motivo, se apagaba invariablemente y uno se quedaba en ruidosa oscuridad. Había un espléndido cuarto de baño; pero la bomba eléctrica, destinada a llevar el agua de los tanques a la terraza, no funcionaba. Puntualmente, en el otoño, el pozo de agua potable se secaba. Y nuestra casera mentía y era una tramposa.

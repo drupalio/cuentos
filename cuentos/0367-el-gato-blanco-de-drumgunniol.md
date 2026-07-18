@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/sheridan-le-fanu-el-gato-blanco-de-drumgunniol/18889/
 
+
+**Imagen:** 0367-el-gato-blanco-de-drumgunniol.webp
 ---
 
 Sinopsis:«El gato blanco de Drumgunniol» (The White Cat of Drumgunniol) es un cuento de Sheridan Le Fanu, publicado el 2 de abril de 1870 en la revistaAll the Year Round. Un profesor irlandés narra las leyendas y supersticiones que rodean a una antigua granja en una región aislada de Irlanda. Entre los recuerdos de su niñez, destaca la aparición de una figura femenina espectral y un misterioso gato blanco, asociado con presagios de muerte en su familia.

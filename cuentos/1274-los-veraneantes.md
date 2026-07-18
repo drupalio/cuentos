@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-los-veraneantes/6731/
 
+
+**Imagen:** 1274-los-veraneantes.jpg
 ---
 
 En el andén del apeadero de un lugar veraniego paséase una parejita de recién casados. Él la estrecha amoroso el talle y ella se inclina ligeramente hacia él; los dos se sienten felices. La Luna los contempla desde las nubes y frunce el ceño; seguramente los envidia en su inútil soledad. El aire, inmóvil, está impregnado del perfume de las lilas y de los cerezos.

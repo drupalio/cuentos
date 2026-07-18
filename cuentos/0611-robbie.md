@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-robbie/13845/
 
+
+**Imagen:** 0611-robbie.webp
 ---
 
 Sinopsis: «Robbie», cuento de Isaac Asimov publicado en septiembre de 1940 enSuper Science Storiesy luego recogido en la colecciónI, Robot(1950), narra la historia de Gloria, una niña de ocho años, y su robot Robbie, diseñado para ser su compañero y niñera. Gloria y Robbie tienen una relación muy cercana, siempre jugando y compartiendo aventuras. Sin embargo, la madre de Gloria, preocupada por la influencia que podría tener el robot y la opinión de los vecinos, decide deshacerse de Robbie, convencida de que una máquina no puede ser una compañía adecuada para una niña.

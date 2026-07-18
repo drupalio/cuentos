@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/clarice-lispector-felicidad-clandestina/5305/
 
+
+**Imagen:** 0433-felicidad-clandestina.webp
 ---
 
 Sinopsis: «Felicidad clandestina» es un cuento de Clarice Lispector, publicado en 1971. Relata la historia de una niña apasionada de la lectura que anhela un libro imposible de conseguir para ella. La hija del dueño de una librería, una niña cruel y manipuladora, le promete prestárselo, pero siempre inventa nuevas excusas para negárselo. La protagonista, aferrada a la esperanza, vuelve cada día, prisionera de una ilusión que siempre se le escapa.

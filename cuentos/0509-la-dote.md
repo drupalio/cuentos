@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-la-dote/4770/
 
+
+**Imagen:** 0509-la-dote.webp
 ---
 
 Sinopsis:«La dote» (La dot) es un cuento de Guy de Maupassant publicado el 9 de septiembre de 1884 en Gil Blas. Narra la historia de Simon Lebrumet, notario, que se casa con la joven Jeanne Cordier en el pueblo de Boutigny-le-Revours. Su matrimonio no sorprende a nadie, ya que Lebrumet necesita dinero para comprar una notaría y Jeanne posee una dote considerable. Él es un hombre agradable y ella una mujer atractiva, aunque algo provinciana. Los primeros días de su matrimonio están llenos de dulzura y pasión, y Lebrumet se muestra como un esposo tierno y delicado. Para disfrutar de su luna de miel, la pareja tiene previsto viajar a París; sin embargo, una curiosa situación altera los planes.

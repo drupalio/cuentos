@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/esteban-echeverria-el-matadero/5589/
 
+
+**Imagen:** 1315-el-matadero.jpg
 ---
 
 A pesar de que la mía es historia, no la empezaré por el arca de Noé y la genealogía de sus ascendientes como acostumbraban hacerlo los antiguos historiadores españoles de América, que deben ser nuestros prototipos. Tengo muchas razones para no seguir ese ejemplo, las que callo por no ser difuso. Diré solamente que los sucesos de mi narración pasaban por los años de Cristo del 183… Estábamos, a más, en cuaresma, época en que escasea la carne en Buenos Aires, porque la Iglesia, adoptando el precepto de Epicteto,sustine,abstine(sufre, abstente), ordena vigilia y abstinencia a los estómagos de los fieles a causa de que la carne es pecaminosa, y, como dice el proverbio, busca a la carne. Y como la Iglesia tieneab initio, y por delegación directa de Dios, el imperio inmaterial sobre las conciencias y estómagos, que en manera alguna pertenecen al individuo, nada más justo y racional que vede lo malo.

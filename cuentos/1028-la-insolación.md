@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-la-insolacion/9126/
 
+
+**Imagen:** 1028-la-insolación.jpg
 ---
 
 Sinopsis: «La insolación» es un cuento de Horacio Quiroga publicado en la revistaCaras y Caretasel 7 de mayo de 1908 y luego incluido en la colecciónCuentos de amor locura y muerte(1917). Narra la historia de cinco perros que habitan en la chacra de Míster Jones, en el Chaco. En un día de intenso calor, Old, el más joven del grupo, nota que Míster Jones está sentado sobre un tronco observándolos fijamente. Cuando el cachorro se dispone a ir donde su dueño, el resto de los perros lo detiene y afirma que no es su amo, sino la muerte, la que está frente a ellos. Aunque el cachorro se muestra escéptico, pronto la imagen de Míster Jones se desvanece, lo que confirma los temores de los perros mayores: esa aparición es presagio de malos augurios.

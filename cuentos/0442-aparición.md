@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-aparicion/19728/
 
+
+**Imagen:** 0442-aparición.webp
 ---
 
 Sinopsis: «Aparición» (Apparition) es un cuento de Guy de Maupassant, publicado enLe Gauloisel 4 de abril de 1883. Relata la inquietante experiencia de un anciano marqués que, en una reunión social, decide compartir un suceso que lo ha atormentado durante más de cincuenta años. En su juventud, un viejo amigo le pide que recupere unos documentos de su antigua casa. Al llegar, el marqués se encuentra con una atmósfera de abandono y un ambiente lúgubre que será escenario de una experiencia aterradora, que le dejará una huella de miedo imborrable.

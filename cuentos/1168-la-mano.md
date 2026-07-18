@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-la-mano/5262/
 
+
+**Imagen:** 1168-la-mano.jpg
 ---
 
 «La Mano», cuento de Guy de Maupassant, cuenta la historia de un enigmático inglés, John Rowell, que se instala en Ajaccio y despierta la curiosidad de los locales debido a su comportamiento huraño y su afición por la caza. Durante una reunión social, el juez Bermutier relata el extraño caso de Rowell, quien poseía una mano cortada como trofeo, expuesta en su casa. La trama se desarrolla alrededor de los misteriosos antecedentes de Rowell, su vida solitaria, y la inquietante mano disecada que desencadena una serie de sucesos desconcertantes en su vida. La narración mantiene un ambiente de suspense y misterio, explorando temas como la venganza, lo sobrenatural y los secretos oscuros del pasado.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elizabeth-gaskell-fin-se-justicia/1026/
 
+
+**Imagen:** 1154-por-fin-se-hace-justicia.webp
 ---
 
 Sinopsis:Por fin se hace justiciaes un cuento de Elizabeth Gaskell, publicado el 27 de noviembre de 1858 en Household Words. La historia sigue a Margaret Frazer, una joven de carácter firme que desafía la oposición de su familia al comprometerse con el doctor James Brown, un hombre talentoso pero de origen incierto. A medida que la pareja construye su vida juntos, una serie de acontecimientos revelan intrigas y secretos que pondrán a prueba la fortaleza y el amor de de la pareja, enfrentándolos a un destino incierto.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-la-fiesta-navidad-reginald/1238/
 
+
+**Imagen:** 1176-la-fiesta-de-navidad-de-reginald.webp
 ---
 
 En «La fiesta de Navidad de Reginald» (Reginald’s Christmas Revel), relato publicado en 1904, Saki nos presenta al ingenioso y mordaz Reginald, quien narra con ironía sus desventuras durante unas navidades en casa de los Babwold, una familia tan solemne como excéntrica. Forzado a asistir por compromiso familiar, el protagonista observa con agudo sarcasmo los absurdos rituales de la velada: un comandante obsesionado con sus cacerías, actividades sociales tediosas y una anfitriona cuya seriedad roza lo grotesco. Con su mordaz humor, Reginald convierte la monotonía de la experiencia en una sátira brillante que cuestiona las convenciones sociales y la vacuidad de la vida burguesa.

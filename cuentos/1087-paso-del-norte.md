@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-rulfo-paso-del-norte/11966/
 
+
+**Imagen:** 1087-paso-del-norte.jpg
 ---
 
 Sinopsis: «Paso del Norte» es un relato de Juan Rulfo publicado en 1953 en la colecciónEl llano en llamas. Narra la determinación de un hombre de abandonar su empobrecida vida en México para buscar mejores oportunidades en el norte. A pesar de los riesgos y la oposición familiar, su desesperación por escapar de la miseria lo impulsa a emprender un viaje peligroso, simbolizando la lucha universal por la supervivencia y la búsqueda de una vida digna.

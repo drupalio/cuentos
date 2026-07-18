@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/francisco-coloane-la-voz-del-viento/6097/
 
+
+**Imagen:** 0985-la-voz-del-viento.jpg
 ---
 
 Sinopsis:«La voz del viento» es un cuento de Francisco Coloane, publicado en 1941 dentro del libroCabo de Hornos. Ambientado en un aislado puesto ganadero en la inhóspita Tierra del Fuego, el relato sigue a Denis, un ex carneador que se traslada con su esposa Lucrecia a un paisaje dominado por el viento, la nieve y una soledad extrema. Mientras las ovejas son atacadas por aves carroñeras en medio de tormentas implacables, la relación entre la pareja se va deteriorando bajo la presión del encierro y el aislamiento. En este entorno hostil, comienzan a aflorar miedos profundos y una creciente tensión que parece presagiar una tragedia.

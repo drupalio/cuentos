@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-dia-estos/809/
 
+
+**Imagen:** 1033-un-día-de-estos.webp
 ---
 
 Sinopsis: «Un día de estos» es un cuento de Gabriel García Márquez, publicado en 1962 en la colecciónLos funerales de la Mamá Grande. Relata una mañana en la vida de Don Aurelio Escovar, un dentista sin título que trabaja en su modesto gabinete. De repente, recibe un inquietante mensaje: el alcalde del pueblo exige ser atendido de inmediato. El encuentro entre ambos hombres se desarrolla en un ambiente de tensión que permite adivinar un conflicto subyacente entre ellos, lo que convierte la entrevista en una lucha de poder poco disimulada.

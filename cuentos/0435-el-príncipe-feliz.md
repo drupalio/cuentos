@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/oscar-wilde-el-principe-feliz/4074/
 
+
+**Imagen:** 0435-el-príncipe-feliz.jpg
 ---
 
 Sinopsis: «El Príncipe Feliz» (The Happy Prince) es un cuento de Oscar Wilde, publicado en 1888 en la colecciónThe Happy Prince and Other Tales. La historia comienza con la imponente estatua del Príncipe Feliz, que se alza sobre la ciudad, adornada con oro y piedras preciosas. Desde su altura, observa la miseria de sus habitantes y llora por ellos. Una pequeña golondrina, retrasada en su migración, se refugia bajo la estatua y descubre su tristeza. Conmovida, decide ayudar al Príncipe en su deseo de aliviar el sufrimiento de los más necesitados, iniciando una conmovedora historia de generosidad y sacrificio.

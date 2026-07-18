@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-la-ultima-noche-del-mundo/5110/
 
+
+**Imagen:** 0609-la-última-noche-del-mundo.webp
 ---
 
 Sinopsis: «La última noche del mundo» (The Last Night of the World), es un cuento corto de Ray Bradbury publicado enEsquireen febrero de 1951 y luego incluido en la antologíaThe Illustrated Man(1951). Narra la historia de un matrimonio que enfrenta la posibilidad de que esa noche la humanidad llegue a su fin. En una tarde que transcurre con normalidad, mientras sus hijas juegan, el marido comparte con su esposa un sueño premonitorio sobre el apocalipsis que, curiosamente, también ha sido experimentado por sus colegas y muchas otras personas. La narrativa explora cómo ellos y su comunidad manejan la inminente certeza de estar viviendo sus últimas horas en la Tierra.

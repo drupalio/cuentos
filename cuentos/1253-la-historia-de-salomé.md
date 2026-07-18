@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/amelia-edwards-la-historia-de-salome/8129/
 
+
+**Imagen:** 1253-la-historia-de-salomé.jpg
 ---
 
 Hace unos años, no importa cuántos, yo, Harcourt Blunt, viajaba con mi amigo Coventry Turnour cuando, encontrándonos ambos en los escalones de la entrada de nuestro hotel, él me comunicó que había vuelto a enamorarse.

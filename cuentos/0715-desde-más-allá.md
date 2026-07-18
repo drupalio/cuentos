@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-desde-mas-alla/16999/
 
+
+**Imagen:** 0715-desde-más-allá.webp
 ---
 
 Sinopsis: «Desde más allá» (From Beyond) es un cuento de horror cósmico y ciencia ficción de H. P. Lovecraft publicado en 1934. Narra la historia de Crawford Tillinghast, un científico obsesionado con probar que la percepción humana es limitada. Tras semanas de aislamiento, invita a un amigo a su mansión para mostrarle una máquina que, al estimular la glándula pineal, permite percibir dimensiones ocultas. El experimento revela una realidad aterradora poblada por entidades monstruosas más allá de la comprensión humana, desatando consecuencias terroríficas para ambos hombres y desafiando los límites de la cordura y la realidad conocida.

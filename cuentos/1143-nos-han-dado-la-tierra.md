@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-rulfo-nos-dado-la-tierra/831/
 
+
+**Imagen:** 1143-nos-han-dado-la-tierra.webp
 ---
 
 Sinopsis:Nos han dado la tierra, cuento de Juan Rulfo publicado en la revistaPanen 1945, narra la marcha de un grupo de campesinos que van a tomar posesión de unas tierras que les entregó el gobierno. Mientras caminan bajo un sol implacable, reflexionan sobre la inutilidad de los terrenos que les han sido asignados, donde ninguna semilla puede crecer. El cuento describe detalladamente su lucha y resignación frente a un ambiente inhóspito y la falta de esperanza en el porvenir.

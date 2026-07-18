@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-conan-doyle-el-gran-experimento-de-keinplatz/6745/
 
+
+**Imagen:** 0995-el-gran-experimento-de-keinplatz.jpg
 ---
 
 Sinopsis: «El gran experimento de Keinplatz» (The Great Keinplatz Experiment) es un cuento deArthur Conan Doylepublicado en julio de 1885 enBelgravia Magazine. Relata la historia del profesor von Baumgarten, un científico excéntrico de la Universidad de Keinplatz, quien lleva a cabo un experimento de desdoblamiento de cuerpo y espíritu. Convencido de que bajo hipnosis el espíritu de una persona puede abandonar el cuerpo y vagar por los alrededores, el profesor decide probar su teoría con la ayuda de su asistente, Fritz von Hartmann, un joven estudiante enamorado de su hija, Elisa. Fritz acepta ser hipnotizado a cambio de la mano de Elisa. Sin embargo, no todo en el experimento resulta como se esperaba.

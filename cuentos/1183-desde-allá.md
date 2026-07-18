@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-desde-alla/17593/
 
+
+**Imagen:** 1183-desde-allá.webp
 ---
 
 «Desde allá» es un cuento de Emilia Pardo Bazán publicado enBlanco y Negroen 1897. Narra la historia de un anciano acaudalado, Don Javier de Campuzano, quien enfrenta sus últimos días de vida con una inquietud que lo atormenta: el temor de que sus dos hijos mellizos, a quienes ama profundamente, se enfrenten por su herencia tras su muerte. Con recuerdos de antiguos pleitos familiares pesando en su conciencia, Don Javier tomará medidas para prevenir conflictos y proteger la unidad entre sus hijos.

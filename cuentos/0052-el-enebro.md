@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermanos-grimm-el-enebro/28318/
 
+
+**Imagen:** 0052-el-enebro.webp
 ---
 
 Sinopsis:«El enebro» (Von dem Machandelboom) es un perturbador cuento recopilado por los Hermanos Grimm, publicado en 1812 en el primer volumen deKinder- und Haus-Märchen. Un hombre rico y su esposa viven apenados porque no pueden tener hijos. Un día de invierno, mientras pela una manzana bajo un enebro, la mujer desea intensamente tener un niño blanco como la nieve y rojo como la sangre. Su anhelo se cumple, pero la dicha queda marcada por la muerte de la madre. Tiempo después, el hombre vuelve a casarse, y la nueva esposa comienza a mirar al niño como un obstáculo para el futuro de su propia hija.

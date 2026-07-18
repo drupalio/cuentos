@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-emilio-pacheco-tarde-de-agosto/11762/
 
+
+**Imagen:** 1160-tarde-de-agosto.webp
 ---
 
 Sinopsis:Tarde de agostoes un cuento de José Emilio Pacheco, publicado en El viento distante en 1963. Relata un episodio en la vida de un adolescente que vive con su madre y se refugia en las novelas de guerra para escapar de su realidad. Su mundo da un vuelco cuando acompaña a su prima Julia y a su novio Pedro en un paseo por la ciudad. Los celos y la sensación de ser un intruso lo llevan a realizar una arriesgada acción que pondrá a prueba su fortaleza y su valor.

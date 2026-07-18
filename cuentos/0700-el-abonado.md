@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-el-abonado/2855/
 
+
+**Imagen:** 0700-el-abonado.webp
 ---
 
 Sinopsis: «El abonado» (The Commuter) es un cuento de ciencia ficción de Philip K. Dick, publicado en 1953 en la revistaAmazing Stories. La historia comienza cuando un hombre mayor intenta comprar un abono de tren hacia Macon Heights, un lugar que asegura es su hogar. Sin embargo, Ed Jacobson, el vendedor de billetes, le informa que no existe ningún destino con ese nombre en el itinerario. La discusión entre ambos se intensifica, hasta que Jacobson le muestra la guía del ferrocarril para probar su error. En ese momento, el hombre desaparece misteriosamente, sin dejar rastro. Desconcertado, Jacobson recurre a su supervisor, Bob Paine, quien decide investigar el enigma de Macon Heights.

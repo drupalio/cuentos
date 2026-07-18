@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-la-casa-de-asterion/9314/
 
+
+**Imagen:** 0565-la-casa-de-asterión.jpg
 ---
 
 Sinopsis: «La casa de Asterión», cuento corto de Jorge Luis Borges, publicado en 1947 enLos Anales de Buenos Airesy luego incluido en la colecciónEl Aleph(1949), explora la vida de Asterión, un personaje mítico y enigmático, que vive en una casa única, vasta y laberíntica. A través de una narración en primera persona, Asterión describe su existencia solitaria en esta casa misteriosa, donde se entretiene con diversos juegos y reflexiones, mientras espera la llegada del redentor que le ha sido prometido.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/leon-bloy-los-cautivos-de-longjumeau/2197/
 
+
+**Imagen:** 0227-los-cautivos-de-longjumeau.webp
 ---
 
 Sinopsis:«Los cautivos de Longjumeau» (Les captifs de Longjumeau) es un cuento del escritor francés Léon Bloy, publicado en 1894 en el libroHistoires désobligeantes. Un matrimonio joven se traslada a Longjumeau, en las afueras de París, a una hermosa residencia adquirida para ellos por un importante notario. Ahí viven lo que parece una eterna luna de miel, entregados a la mutua compañía y aislados del resto del mundo. Sin embargo, tras aquel retiro romántico se esconde un secreto: una fuerza misteriosa que parece mantenerlos extrañamente ligados a su morada.

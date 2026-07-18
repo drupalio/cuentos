@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-carlos-onetti-el-obstaculo/2129/
 
+
+**Imagen:** 1151-el-obstáculo.webp
 ---
 
 Sinopsis:El obstáculoes un cuento de Juan Carlos Onetti, publicado en 1935 en el diarioLa Naciónde Buenos Aires. La historia sigue a un joven que, bajo el amparo de la noche, se reúne con sus compañeros para planear una fuga. Mientras camina entre las sombras, revive su pasado en la institución donde creció, un lugar marcado por la disciplina y la dureza. La incertidumbre y el resentimiento lo acompañan en su recorrido, al tiempo que una sombra de fatalismo se cierne sobre él y sus anhelos.

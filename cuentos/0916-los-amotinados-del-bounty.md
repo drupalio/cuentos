@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jules-verne-los-amotinados-del-bounty/14931/
 
+
+**Imagen:** 0916-los-amotinados-del-bounty.jpg
 ---
 
 Sinopsis: «Los amotinados del Bounty» (Les Révoltés de la Bounty), de Jules Verne, es una narración basada en hechos reales que relata las consecuencias del famoso motín ocurrido en 1789 a bordo del HMS Bounty. La historia comienza cuando un grupo de marineros, hartos de los malos tratos, se rebela contra el mando del capitán Bligh. La narración sigue tres hilos principales: el peligroso viaje de supervivencia del capitán y los marineros leales abandonados en una pequeña embarcación; las peripecias de los amotinados liderados por Fletcher Christian en su búsqueda de un refugio seguro; y el sorprendente destino de estos últimos. Verne explora temas como la lealtad, la traición y la redención en esta fascinante recreación de uno de los episodios más célebres de la historia marítima.

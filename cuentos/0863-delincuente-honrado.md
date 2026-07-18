@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-delincuente-honrado/23407/
 
+
+**Imagen:** 0863-delincuente-honrado.webp
 ---
 
 Sinopsis: «Delincuente honrado» es un cuento de Emilia Pardo Bazán publicado el 12 de abril de 1897 en el diarioEl Imparcial. A través del relato del padre Téllez, se reconstruyen los últimos días de un anciano zapatero condenado a muerte por un crimen atroz. En la celda, el reo le confiesa su historia: un relato desgarrador en el que se entremezclan los celos, la obsesión y una noción distorsionada del honor. El sacerdote, testigo de esa confesión, intenta comprender al hombre que, entre lágrimas y delirios, se aferra a una idea retorcida de decencia mientras afronta su castigo y el peso de su conciencia.

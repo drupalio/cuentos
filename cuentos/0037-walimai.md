@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isabel-allende-walimai/28374/
 
+
+**Imagen:** 0037-walimai.webp
 ---
 
 Sinopsis:«Walimai» es un cuento de la escritora chilena Isabel Allende, publicado en 1989 en el libroCuentos de Eva Luna. Walimai, un hombre de los Hijos de la Luna, recuerda su infancia, las enseñanzas recibidas de sus mayores y su respeto por las tradiciones ancestrales. La paz de su entorno se quiebra con la invasión de hombres pálidos que alteran la vida de su pueblo y destruyen la naturaleza en busca de recursos, lo que obliga a la comunidad a trasladarse continuamente, adentrándose cada vez más en la selva. Un día, Walimai es capturado y llevado a un campamento dedicado a la extracción de caucho, donde vivirá una experiencia que marcará su vida.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/teresa-wilms-montt-caperucita-roja/1139/
 
+
+**Imagen:** 1034-caperucita-roja.webp
 ---
 
 Sinopsis: «Caperucita Roja» es un cuento de Teresa Wilms Montt, publicado en 1919 enCuentos para los hombres que son todavía niños. Se trata de una relectura lírica y trágica del clásico infantil en la que una joven de quince años, inocente y curiosa, vive con su madre viuda en un hogar humilde. Un día, embriagada por la belleza del bosque y la frescura del río, se encuentra con un extraño de modales suaves y palabras encantadoras. Atraída por su atención, la muchacha comienza a guardar un secreto que la separa cada vez más de su madre.

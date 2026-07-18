@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/p-d-james-el-asesinato-de-santa-claus/17945/
 
+
+**Imagen:** 0588-el-asesinato-de-santa-claus.webp
 ---
 
 Sinopsis:«El asesinato de Santa Claus» (The Murder of Santa Claus) es un relato policial de P. D. James, publicado en la colecciónGreat Detectives(1984). La historia sigue a Charles Mickledore, un joven de 16 años, que rememora la inquietante Navidad de 1939 que pasó en la sombría mansión de su tío Victor. Victor, un hombre adinerado y manipulador, reúne a un heterogéneo grupo de invitados para celebrar la Nochebuena, entre los que inesperadamente incluye a su sobrino. Lo que comienza como una reunión incómoda y cargada de tensiones rápidamente se transforma en el escenario de un crimen espeluznante que marcará a todos los presentes.

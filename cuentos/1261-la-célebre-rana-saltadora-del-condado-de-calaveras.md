@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mark-twain-la-celebre-rana-saltadora-del-condado-de-calaveras/6915/
 
+
+**Imagen:** 1261-la-célebre-rana-saltadora-del-condado-de-calaveras.jpg
 ---
 
 Para complacer la petición de un amigo que me escribía desde el este, fui a visitar al viejo Simon Wheeler, hombre amable y charlatán, a fin de pedirle noticias de un amigo de mi amigo, Leonidas W. Smiley. Tal había sido su petición, y he aquí el resultado. Tengo la vaga sospecha de que el tal Leonidas W. Smiley es un mito; de que mi amigo jamás conoció a tal personaje; y de que lo único que le movió a solicitarme aquel favor fue la conjetura de que, si yo preguntaba por él al viejo Wheeler, este se acordaría de cierto infame Jim Smiley y emprendería el relato mortalmente aburrido de los exasperantes recuerdos que de este tenía, un relato tan largo y tedioso como desprovisto de ningún interés para mí. Si esa fue su intención, lo logró plenamente.

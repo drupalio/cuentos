@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ryunosuke-akutagawa-un-cuerpo-de-mujer/5287/
 
+
+**Imagen:** 1332-ryunosuke-akutagawa-un-cuerpo-de-mujer.jpg
 ---
 
 Una noche de verano un chino llamado Yang despertó de pronto a causa del insoportable calor. Tumbado boca abajo, la cabeza entre las manos, se había entregado a hilvanar fogosas fantasías cuando se percató de que había una pulga avanzando por el borde de la cama. En la penumbra de la habitación la vio arrastrar su diminuto lomo fulgurando como polvo de plata rumbo al hombro de su mujer que dormía a su lado. Desnuda, yacía profundamente dormida, y oyó que respiraba dulcemente, la cabeza y el cuerpo volteados hacia su lado.

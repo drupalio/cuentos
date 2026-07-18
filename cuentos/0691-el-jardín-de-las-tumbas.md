@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/amparo-davila-el-jardin-de-las-tumbas/16768/
 
+
+**Imagen:** 0691-el-jardín-de-las-tumbas.webp
 ---
 
 Sinopsis: En «El jardín de las tumbas«, cuento de Amparo Dávila publicado en 1961 en la colecciónMúsica concreta, un hombre descubre un antiguo diario que escribió durante su infancia, cuando con su familia se retiraba cada verano a un viejo convento abandonado para escapar del calor de la ciudad. A través de las páginas, revive con nostalgia aquellos días en los que jugaba con sus hermanos en el amplio patio y el jardín del convento, que antes fue un cementerio de frailes. Mientras que las horas diurnas se llenan de entretenimiento y aventuras, las noches transforman el viejo edificio en un lugar inquietante, donde la oscuridad y el silencio despiertan temores y sombras que invaden la solitaria celda que le sirven al niño de habitación.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/samanta-schweblin-hacia-la-alegre-civilizacion/3933/
 
+
+**Imagen:** 0126-hacia-la-alegre-civilización.webp
 ---
 
 Sinopsis: «Hacia la alegre civilización» es un cuento de Samanta Schweblin, publicado en 2002 en el libroEl núcleo del disturbio. Gruner es un oficinista que ha perdido su pasaje de ferrocarril y queda varado en una remota estación, sin poder adquirir otro boleto por falta de cambio. Mientras cae la noche y el último tren pasa de largo, intenta razonar con el hombre de la boletería, pero su lógica urbana y su deseo de regresar a la Capital se enfrentan con una dinámica rural extraña, hospitalaria y opaca, que poco a poco lo atrapa en una rutina desconcertante, transformando su espera en algo más inquietante que un simple retraso.

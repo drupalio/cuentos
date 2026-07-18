@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-revueltas-la-acusacion/15560/
 
+
+**Imagen:** 0580-la-acusación.webp
 ---
 
 Sinopsis:«La acusación» es un cuento de José Revueltas, publicado en noviembre-diciembre de 1943 en la revistaAmérica. En un pueblo apartado, en las faldas de un volcán, dos hombres invitan a beber a Cristóbal, un hombre que ha despertado miedo y rencor entre los vecinos. Mientras el alcohol circula, un extraño murmullo recorre las calles, y, aunque todo parece en calma, bajo las cobijas y los sombreros los hombres esconden pensamientos sombríos.

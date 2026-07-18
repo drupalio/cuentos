@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-conan-doyle-jugando-con-fuego/24894/
 
+
+**Imagen:** 0668-jugando-con-fuego.webp
 ---
 
 Sinopsis:«Jugando con fuego»(Playing with Fire) es un cuento de Arthur Conan Doyle, publicado en marzo de 1900 enThe Strand Magazine. La historia sigue a un reducido grupo de intelectuales y aficionados al ocultismo que, impulsados por la curiosidad y el deseo de explorar más allá del mundo material, organizan sesiones de espiritismo en una casa londinense. La llegada de un enigmático visitante francés, experto en fenómenos psíquicos, introduce un giro inesperado en sus experimentos. A medida que la sesión avanza, los participantes cruzan límites cada vez más peligrosos, y lo que comienza como un juego se convierte en una experiencia inquietante y fuera de control.

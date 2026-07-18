@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-radrigan-la-madre-juan/1038/
 
+
+**Imagen:** 0155-la-madre-de-juan.webp
 ---
 
 Sinopsis:«La madre de Juan» es un cuento del escritor chileno Juan Radrigán, publicado en 1962 en el libroLos vencidos no creen en dios. Rosario, una mujer pobre y anciana, entra en una librería con el poco dinero que ha reunido para comprar la novela que su hijo Juan ha pedido como regalo de cumpleaños. El librero y su empleado la reciben con burlas crueles, pero ella insiste, movida por el deseo de darle a su único hijo una pequeña alegría en medio de una vida marcada por la miseria. Sin dinero suficiente, Rosario vuelve a su humilde hogar y busca desesperadamente la forma de cumplir ese gesto de amor.

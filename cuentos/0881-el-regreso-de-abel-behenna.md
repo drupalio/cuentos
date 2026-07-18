@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bram-stoker-el-regreso-de-abel-behenna/23260/
 
+
+**Imagen:** 0881-el-regreso-de-abel-behenna.webp
 ---
 
 Sinopsis: «El regreso de Abel Behenna» (The Coming of Abel Behenna) es un cuento de Bram Stoker, de tono romántico y oscuro, publicado en 1893 enLloyd’s Weekly Newspaper. En el apacible puerto de Pencastle, dos jóvenes inseparables desde la infancia, Abel y Eric, comparten no solo una profunda amistad, sino también el amor por la bella Sarah Trefusis, la joven más codiciada del pueblo. Cuando ella se ve obligada a elegir entre ambos, una propuesta inusual da origen a un arriesgado acuerdo que la mantendrá alejada de su prometido durante un año. Mientras el azar determina el futuro, los celos, la ambición y la incertidumbre comienzan a enturbiar el vínculo entre los antiguos camaradas.

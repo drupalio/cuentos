@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ursula-k-le-guin-la-version-de-la-esposa/4096/
 
+
+**Imagen:** 0444-la-versión-de-la-esposa.jpg
 ---
 
 Sinopsis:En «La versión de la esposa» (The Wife’s Story), cuento de Ursula K. Le Guin publicado en 1982 en la colecciónThe Compass Rose, la narradora describe su vida con un compañero que parece perfecto: esposo cariñoso, padre atento y miembro respetado de la comunidad. Sin embargo, su idílica vida familiar se ve interrumpida cuando él comienza a actuar de manera extraña durante ciertas noches en que desaparece sin motivo y regresa con un olor extraño y una actitud distante. La tensión aumenta cuando la hija pequeña manifiesta miedo hacia su padre, rechazándolo de manera inexplicable.

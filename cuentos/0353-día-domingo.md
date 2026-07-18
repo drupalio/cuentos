@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-vargas-llosa-dia-domingo/4449/
 
+
+**Imagen:** 0353-día-domingo.jpg
 ---
 
 Sinopsis:«Día domingo» es un cuento del escritor peruano Mario Vargas Llosa, publicado en 1959 en el libroLos jefes. Miguel, un joven tímido y dubitativo, intenta declarar sus sentimientos a Flora mientras lidia con la sombra de Rubén, su adversario tanto en el terreno sentimental como en la jerarquía del grupo de amigos. A lo largo de un domingo en Miraflores, entre plazas, calles y el mar de Lima, Miguel se enfrenta a sus miedos y se ve impulsado a un gesto de arrojo que pone a prueba su resistencia y precipita un momento clave de transformación personal. Un relato que aborda los conflictos propios de la adolescencia: el amor, la inseguridad, la rivalidad y el deseo de probarse a sí mismo.

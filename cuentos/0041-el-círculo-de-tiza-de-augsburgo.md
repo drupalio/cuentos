@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bertolt-brecht-circulo-tiza-augsburgo/1205/
 
+
+**Imagen:** 0041-el-círculo-de-tiza-de-augsburgo.webp
 ---
 
 Sinopsis:«El círculo de tiza de Augsburgo» (Der Augsburger Kreidekreis) es un cuento de Bertolt Brecht, publicado en 1949 enKalendergeschichten. En Augsburgo, durante la guerra de los Treinta Años, una familia protestante queda atrapada cuando las tropas imperiales invaden la ciudad. El curtidor Zingli muere en el saqueo y su esposa huye, dejando atrás a su hijo pequeño. Anna, una joven criada, encuentra al niño solo en la casa destruida y comprende que salvarlo puede costarle la vida. Tras buscar inútilmente a la madre, decide llevárselo al campo y hacerlo pasar por su hijo. A medida que el niño crece, Anna se siente cada vez más unida a él, hasta que un hecho inesperado amenaza con arrebatarle todo lo que ha protegido.

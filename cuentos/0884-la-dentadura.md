@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-la-dentadura/23302/
 
+
+**Imagen:** 0884-la-dentadura.webp
 ---
 
 Sinopsis: «La dentadura» es un cuento de Emilia Pardo Bazán, publicado en 1898 en la revistaBlanco y Negro. Narra la historia de Águeda, una joven de provincia enamorada del apuesto Fausto Arrayán. Aunque su relación comienza como un idilio romántico, una observación hiriente sobre su dentadura despierta en ella una dolorosa inseguridad. Decidida a cambiar su destino, Águeda está dispuesta a todo con tal de conquistar al ser amado. Ambientado en la España del siglo XIX, el relato retrata con aguda ironía las exigencias sociales sobre la belleza femenina y los sacrificios que una mujer puede llegar a afrontar para ser aceptada en un mundo regido por las apariencias.

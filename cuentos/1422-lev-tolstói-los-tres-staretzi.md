@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/lev-tolstoi-los-tres-staretzi/1181/
 
+
+**Imagen:** 1422-lev-tolstói-los-tres-staretzi.jpg
 ---
 
 Y orando, no habléis inútilmente, como los paganos,que piensan que por su parlería serán oídos.

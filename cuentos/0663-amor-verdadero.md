@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-amor-verdadero/2549/
 
+
+**Imagen:** 0663-amor-verdadero.jpg
 ---
 
 Sinopsis:«Amor verdadero» (True Love), es un cuento de Isaac Asimov publicado enAmerican Wayen febrero de 1977. Milton Davidson, un ingeniero de software, decide utilizar una avanzada inteligencia artificial para encontrar a su pareja ideal. Dentro del vasto sistema computacional de Multivac, Milton programa meticulosamente la máquina para que busque entre millones de mujeres aquella que sea perfecta para él. Adelantándose a la llegada de Tinder y de las IA a nuestras vidas, Asimov se sumerge en las implicaciones éticas del uso de la tecnología en la búsqueda de pareja, explorando las consecuencias inesperadas de la manipulación tecnológica en asuntos del amor.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/daphne-du-maurier-los-pajaros/14474/
 
+
+**Imagen:** 0735-los-pájaros.jpg
 ---
 
 Sinopsis: «Los pájaros» (The Birds) es un cuento de Daphne du Maurier, publicado originalmente en 1952 en el libroThe Apple Tree. Narra la inquietante experiencia de Nat Hocken, un veterano de guerra que vive en una tranquila zona costera con su familia. Tras un repentino cambio del clima, Nat observa cómo las aves comienzan a comportarse de forma inusual, actuando con una agresividad inexplicable. Una noche, los pájaros atacan violentamente su casa, intentando entrar por ventanas y chimeneas. La familia lucha desesperadamente para protegerse mientras afuera, miles de pájaros forman inquietantes bandadas que parecen obedecer a una fuerza desconocida.

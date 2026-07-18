@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-el-peaton/13155/
 
+
+**Imagen:** 1062-el-peatón.jpg
 ---
 
 Sinopsis: «El peatón» (The Pedestrian), cuento corto de Ray Bradbury, publicado enThe Reporteren 1951, es un relato de ciencia ficción ambientado en una ciudad distópica en el año 2053. La trama gira en torno a Leonard Mead, un escritor en declive que disfruta paseando de noche por las calles de la ciudad. En un mundo en el que la televisión ha sustituido a las interacciones sociales y la gente permanece encerrada en sus casas, los solitarios paseos de Mead destacan como una actividad inusual y disruptiva. Una noche, durante una de sus caminatas, Mead tendrá un encuentro inesperado, que vaticina afectar su vida para siempre.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hans-christian-andersen-el-nino-en-la-tumba/28108/
 
+
+**Imagen:** 0102-el-niño-en-la-tumba.webp
 ---
 
 Sinopsis:«El niño en la tumba» (Barnet i Graven) es un cuento del autor danés Hans Christian Andersen, publicado en 1859 en el libroNye Eventyr og Historier. Una madre queda sumida en una profunda desesperación tras la muerte de su hijo menor. Incapaz de aceptar la pérdida o de hallar consuelo en su esposo y sus hijas, concentra todos sus pensamientos en el niño perdido. Una madrugada, guiada por la angustia, abandona su hogar en secreto para visitar la sepultura en el cementerio. Allí, inclinada sobre la tumba y entregada al llanto, se le aparece una enigmática figura encapuchada que le ofrece descender bajo la tierra para reencontrarse con su pequeño.

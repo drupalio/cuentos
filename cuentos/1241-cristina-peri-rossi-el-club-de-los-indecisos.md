@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/cristina-peri-rossi-el-club-de-los-indecisos/8275/
 
+
+**Imagen:** 1241-cristina-peri-rossi-el-club-de-los-indecisos.jpg
 ---
 
 Los indecisos saben que cualquier decisión es parcialmente equivocada, no por el sentido de la misma, sino por el mero hecho de elegir. Es tan impertinente, en todo caso, salir o no salir a la calle, de modo que el hombre que opta por abrir la puerta, cruzar el umbral e integrarse a la muchedumbre anónima que circula por la ciudad no se equivoca menos que el otro, cerrador de puertas, que decide instalarse en un sillón y no abandonar la casa. Una u otra decisión, aparentemente opuestas, coinciden en un punto: intervienen sobre la realidad, desencadenan una serie de hechos imprevisibles y determinan otros, en un proceso incontrolable acerca del cual una sola responsabilidad es excesiva, y ninguna, cobardía.

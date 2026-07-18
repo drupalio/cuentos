@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/cristina-peri-rossi-te-adoro/9291/
 
+
+**Imagen:** 0656-te-adoro.webp
 ---
 
 Sinopsis:«Te adoro» es un cuento de Cristina Peri Rossi, publicado en 1988 dentro de la colecciónCosmoagonías. Relata el encuentro entre Alex, un hombre maduro, y una joven de diecinueve años cuya vitalidad lo deslumbra. Poco habituado a tratar con mujeres tan jóvenes, Alex se siente fascinado por su frescura y espontaneidad, pero también desconcertado. La narración se centra en el diálogo y la tensión entre ambos, donde se entremezclan la admiración, el deseo y cierta incomunicación generacional. Tras la fachada de un vínculo donde Alex asume el papel de guía, se oculta un juego de seducción que revela su inseguridad y la fugacidad de su conexión.

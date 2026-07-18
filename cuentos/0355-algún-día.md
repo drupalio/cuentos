@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-algun-dia/6805/
 
+
+**Imagen:** 0355-algún-día.webp
 ---
 
 Sinopsis: «Algún día» (Someday) es un cuento de Isaac Asimov publicado en agosto de 1956 en la revistaInfinity Science Fiction. Ambientado en un futuro en el que las máquinas han reemplazado gran parte de las tareas cotidianas, el relato sigue a Niccolo y Paul, dos amigos que descubren un antiguo Narrador, un dispositivo que crea y relata cuentos de forma automatizada. Ambos amigos se lamentan de que el aparato solo narre historias ambientadas en un mundo con caballos, vacas y otros objetos que ellos no reconocen. Mientras Paul intenta mejorar el dispositivo, le cuenta a Niccolo que hubo un tiempo, anterior a las computadoras, en que las personas necesitaban hacer algo llamado «leer» para conocer nuevas historias.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-la-capa/14429/
 
+
+**Imagen:** 0879-la-capa.jpg
 ---
 
 Sinopsis: «La capa» (The Cloak) es un cuento de Robert Bloch publicado en mayo de 1939 en la revistaUnknown. La historia sigue a un hombre, quien, la víspera de Halloween, busca un disfraz original y encuentra una capa en una oscura y solitaria tienda. El vendedor le asegura que es perfecta para un vampiro. Al ponérsela, Henderson siente un frío antiguo y una extraña sensación de poder. En la fiesta, su actitud cambia y lo que parecía ser una aburrida y rutinaria celebración se va convirtiendo poco a poco en una experiencia macabra y llena de tensión.

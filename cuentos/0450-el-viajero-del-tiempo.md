@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-el-viajero-del-tiempo/26095/
 
+
+**Imagen:** 0450-el-viajero-del-tiempo.webp
 ---
 
 Sinopsis:«El viajero del tiempo» (The Time Traveler) es un cuento de Isaac Asimov, publicado en noviembre de 1990 enIsaac Asimov’s Science Fiction Magazine. Fortescue Quackenbrane Flubb es un escritor exitoso que, pese a su fama y fortuna, arrastra el resentimiento por las humillaciones sufridas en su juventud. En una clase de escritura de la Aaron Burr High School, el profesor Yussif Newberry ridiculizó públicamente sus textos, dejando en él una herida persistente. Cuarenta años después, Flubb sigue obsesionado con aquellos desaires, consciente de que el tiempo parece haber vuelto irreparable cualquier ajuste de cuentas. Sin embargo, Azazel, un diminuto ser de dos centímetros dotado de una tecnología extraordinaria, quizá tenga la respuesta a sus problemas.

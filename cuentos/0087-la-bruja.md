@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/shirley-jackson-la-bruja/22767/
 
+
+**Imagen:** 0087-la-bruja.webp
 ---
 
 Sinopsis:«La bruja» (The Witch) es un cuento de Shirley Jackson, publicado en 1949 dentro de la colecciónThe Lottery, or, The Adventures of James Harris. En el interior de un vagón de tren viaja un niño con su madre y su hermanita bebé. Mientras la madre intenta mantener la calma leyendo un libro, el niño observa el paisaje, conversa con los pasajeros y deja volar su imaginación, poblada de brujas y fantasías. La atmósfera cambia cuando un extraño se sienta junto al pequeño y comienza a contarle una inquietante historia.

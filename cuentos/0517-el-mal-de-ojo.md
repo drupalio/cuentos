@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mary-shelley-el-mal-de-ojo/25739/
 
+
+**Imagen:** 0517-el-mal-de-ojo.webp
 ---
 
 Sinopsis:«El mal de ojo» (The Evil Eye) es un cuento de Mary Shelley, publicado en 1829 enThe Keepsakey recogido después enTales and Stories(1891). Ambientado en los Balcanes bajo la dominación otomana, narra la historia de Dmitri, un temido bandido albanés al que se atribuye el poder sobrenatural de causar daño con la mirada. Su pasado trágico y su reputación despiertan el temor y la superstición en los habitantes de la región. Cuando un antiguo compañero llega solicitando su ayuda para recuperar una herencia familiar, Dmitri acepta participar en un plan que lo conducirá por un laberinto de aventuras donde la violencia, el honor y la sed de venganza amenazan con despertar fantasmas que parecían enterrados.

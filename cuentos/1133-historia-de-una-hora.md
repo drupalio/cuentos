@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/kate-chopin-historia-de-una-hora/4118/
 
+
+**Imagen:** 1133-historia-de-una-hora.jpg
 ---
 
 Sinopsis:Historia de una hora(The Story of An Hour) es un cuento de Kate Chopin, publicado el 6 de diciembre de 1894 en la revistaVogue. Relata la reacción de una mujer al enterarse de la muerte de su esposo en un accidente ferroviario. Debido a su frágil salud, la noticia le es comunicada con sumo cuidado por su hermana y un amigo de la familia. Tras un primer momento de angustia, se aísla en su habitación, donde comienza a experimentar un torbellino de emociones inesperadas. A través de la contemplación del mundo exterior, un nuevo sentimiento crece en su interior, llevándola a una revelación profunda sobre su vida y su futuro.

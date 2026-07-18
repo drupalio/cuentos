@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/agatha-christie-testigo-de-cargo/13603/
 
+
+**Imagen:** 1010-testigo-de-cargo.jpg
 ---
 
 Sinopsis: «Testigo de cargo» (The Witness for the Prosecution) es un cuento de Agatha Christie, publicado el 31 de enero de 1925 en la revistaFlynn’s. Narra la investigación de un crimen en el que Leonardo Vole es acusado de asesinar a una anciana rica que lo había favorecido en su testamento. El abogado defensor, Mr. Mayherne, un hombre meticuloso y sagaz, intenta reconstruir los hechos para probar la inocencia de su cliente, quien asegura tener una coartada. La clave del caso parece estar en Romaine Heilger, la esposa de Vole, cuya declaración podría cambiar el curso del juicio. Pero su testimonio resulta más desconcertante de lo esperado.

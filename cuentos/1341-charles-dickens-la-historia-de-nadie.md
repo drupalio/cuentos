@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/charles-dickens-la-historia-de-nadie/4759/
 
+
+**Imagen:** 1341-charles-dickens-la-historia-de-nadie.jpg
 ---
 
 Vivía en la orilla de un enorme río, ancho y profundo, que se deslizaba silencioso y constante hasta un vasto océano desconocido. Así fluía desde el Génesis. Su curso se alteró algunas veces, al volcarse sobre nuevos canales, dejando el antiguo lecho seco y estéril; pero jamás sobrepasó su cauce, y seguirá siempre fluyendo hasta la eternidad.

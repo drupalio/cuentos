@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ken-liu-el-zoo-de-papel/28195/
 
+
+**Imagen:** 0071-el-zoo-de-papel.webp
 ---
 
 Sinopsis:«El zoo de papel» (The Paper Menagerie) es un cuento del escritor chino-estadounidense Ken Liu, publicado en marzo-abril de 2011 en la revistaThe Magazine of Fantasy & Science Fiction. Jack crece en Connecticut junto a su madre, una inmigrante china capaz de dar vida a sorprendentes animales de origami. Durante su infancia, un tigre de papel y otras criaturas animadas llenan de magia sus días y se convierten en el centro de un vínculo afectivo muy especial. Sin embargo, a medida que crece y toma conciencia de cómo lo ven los demás, Jack comienza a avergonzarse de sus raíces y de todo aquello que lo conecta con el mundo de su madre. Lo que empieza como una historia de maravilla infantil se transforma poco a poco en el relato de una distancia cada vez más difícil de salvar.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/carlos-maria-gutierrez-la-noche-de-la-cocina/3345/
 
+
+**Imagen:** 1371-carlos-maría-gutiérrez-la-noche-de-la-cocina.jpg
 ---
 
 A Augusto Bonardo

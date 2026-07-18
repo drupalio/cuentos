@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-sally/3540/
 
+
+**Imagen:** 1065-sally.jpg
 ---
 
 Sinopsis: «Sally»es un cuento de Isaac Asimov, publicado en 1953 en la revistaFantastic. La historia se sitúa en un futuro indeterminado, donde los automóviles autónomos con cerebros positrónicos han reemplazado a los vehículos de conducción manual. Al final de su vida útil, estos coches son acogidos en una granja cuidada por Jake, un hombre que admira y valora sus habilidades únicas. Su favorita es Sally, un elegante convertible con un comportamiento casi humano. La tranquilidad del lugar se ve interrumpida cuando Raymond Gellhorn llega con el plan de extraer los cerebros positrónicos para venderlos en el mercado negro. Un proyecto que planea llevar a cabo con o sin la colaboración de Jake.

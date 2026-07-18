@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roberto-arlt-acuerdate-de-azerbaijan/1282/
 
+
+**Imagen:** 1338-roberto-arlt-acuérdate-de-azerbaijan.jpg
 ---
 
 LOS DOS mahometanos se detuvieron para dejar paso a la procesión budista. Con un paraguas abierto sobre su cabeza delante de un palanquín dorado, marchaba un devoto.

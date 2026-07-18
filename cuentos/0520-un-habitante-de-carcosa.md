@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ambrose-bierce-un-habitante-de-carcosa/5192/
 
+
+**Imagen:** 0520-un-habitante-de-carcosa.webp
 ---
 
 Sinopsis:«Un habitante de Carcosa» (An Inhabitant of Carcosa) es un relato de Ambrose Bierce, publicado el 25 de diciembre de 1886 enSan Francisco Newsletter. Narra la experiencia de un hombre que despierta en un paisaje desolado y misterioso, poblado de hierbas marchitas, árboles secos y ruinas que parecen hablar de un pasado olvidado. Perdido en este entorno sombrío, el protagonista busca el camino hacia la antigua ciudad de Carcosa, mientras reflexiona sobre la naturaleza de la vida, la muerte y su propia existencia, enfrentándose a un enigma que trasciende el tiempo y la realidad.

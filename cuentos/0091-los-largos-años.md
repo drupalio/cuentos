@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-los-largos-anos/5235/
 
+
+**Imagen:** 0091-los-largos-años.jpg
 ---
 
 Sinopsis: «Los largos años» (The Long Years) es un cuento de Ray Bradbury publicado el 15 de septiembre de 1948 enMaclean’sy recogido luego enThe Martian Chronicles(1950). El señor Hathaway y su familia son los únicos habitantes de un Marte desolado. Hace veinte años, la Gran Guerra en la Tierra dejó al planeta rojo convertido en una tumba. Cuando Marte fue evacuado, Hathaway y su familia, dedicados a los estudios arqueológicos en las montañas, quedaron atrás. Desde entonces, han vivido esperando el regreso de un cohete que los lleve de vuelta a la civilización. Un día, una luz en el cielo parece anunciar el fin de su larga espera y les ofrece una esperanza renovada de rescate y regreso a casa.

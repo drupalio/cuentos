@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/angela-carter-la-camara-sangrienta/4246/
 
+
+**Imagen:** 0904-la-cámara-sangrienta.jpg
 ---
 
 Sinopsis: «La cámara sangrienta» (The Bloody Chamber), cuento de Angela Carter publicado en 1979, es una reinvención oscura y fascinante del relato clásico de «Barba Azul». Narra la historia de una joven pianista recién casada que se traslada al imponente castillo de su enigmático y rico marido. Allí, descubre un mundo de opulencia y secretos inquietantes. Mientras explora su nuevo hogar, la protagonista se enfrenta a un misterio aterrador y debe usar su ingenio para sobrevivir. Con un lenguaje poético y sensual, Carter crea una atmósfera gótica y opresiva que subvierte las expectativas de los cuentos de hadas tradicionales, ofreciendo una visión feminista y perturbadora sobre el matrimonio, el poder y el deseo.

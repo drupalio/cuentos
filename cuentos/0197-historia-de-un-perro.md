@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-historia-de-un-perro/21512/
 
+
+**Imagen:** 0197-historia-de-un-perro.webp
 ---
 
 Sinopsis:«Historia de un perro» (Histoire d’un chien) es un conmovedor cuento deGuy de Maupassant, publicado el 2 de junio de 1881 en el periódicoLe Gaulois. Narra el encuentro entre François, un cochero bonachón de las afueras de París, y una perra famélica que comienza a seguirlo una noche. Movido por la compasión, el hombre le ofrece refugio en el establo de sus amos, sin imaginar las consecuencias que esto traerá. El relato, contado con sencillez y tono realista, se presenta como un testimonio auténtico que invita a reflexionar sobre la fidelidad animal y el abandono.

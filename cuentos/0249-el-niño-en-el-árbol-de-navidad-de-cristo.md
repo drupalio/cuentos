@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fiodor-dostoyevski-el-nino-en-el-arbol-de-navidad-de-cristo/25591/
 
+
+**Imagen:** 0249-el-niño-en-el-árbol-de-navidad-de-cristo.webp
 ---
 
 Sinopsis:«El niño en el árbol de Navidad de Cristo» (Malchik u Khrista na yolke) es un cuento de Fiódor Dostoyevski, publicado en enero de 1876 enDnevnik pisatelya. En la víspera de Navidad, un niño pequeño despierta en un sótano húmedo y helado, junto a su madre enferma. Preso del hambre y del frío, sale a la calle y se enfrenta a una ciudad inmensa, ruidosa y deslumbrante. Mientras deambula, contempla vitrinas iluminadas, árboles de Navidad y un ambiente festivo que contrasta de forma brutal con su miseria. A través de su mirada ingenua, el relato expone la soledad y el desamparo infantil en medio del esplendor urbano y la indiferencia de quienes lo habitan.

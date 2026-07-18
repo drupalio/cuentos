@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-segunda-variedad/22466/
 
+
+**Imagen:** 0964-segunda-variedad.webp
 ---
 
 Sinopsis: «Segunda variedad» (Second Variety) es un cuento de ciencia ficción escrito por Philip K. Dick, publicado en mayo de 1953 en la revistaSpace Science Fiction. Ambientado en un mundo devastado por la guerra entre la ONU y la Unión Soviética, el relato sigue al mayor Hendricks, un oficial estadounidense en una Tierra arrasada por la radiación y patrullada por letales máquinas autónomas diseñadas para matar. Cuando los rusos envían un enigmático mensaje solicitando negociaciones de paz, Hendricks se adentra en territorio enemigo para averiguar si la guerra está por llegar a su fin… o algo más inquietante está por comenzar.

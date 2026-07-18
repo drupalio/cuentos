@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-las-medias-rojas/21678/
 
+
+**Imagen:** 0209-las-medias-rojas.webp
 ---
 
 Sinopsis: «Las medias rojas» es un cuento de Emilia Pardo Bazán, publicado en 1914 en la revistaPor esos mundos. Ambientado en un entorno rural gallego, narra la historia de Ildara, una joven campesina que regresa a casa tras recolectar leña y es sorprendida por su padre vistiendo unas llamativas medias rojas. El descubrimiento desata una violenta confrontación que revela las tensiones entre el deseo de la joven de forjar un futuro diferente y las rígidas imposiciones del mundo rural.

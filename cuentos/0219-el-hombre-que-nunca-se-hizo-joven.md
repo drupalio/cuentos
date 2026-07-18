@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fritz-leiber-el-hombre-que-nunca-se-hizo-joven/27453/
 
+
+**Imagen:** 0219-el-hombre-que-nunca-se-hizo-joven.webp
 ---
 
 Sinopsis:«El hombre que nunca se hizo joven» («The Man Who Never Grew Young») es un cuento del escritor estadounidense Fritz Leiber, publicado en 1947 en el libroNight’s Black Agents. En un remoto paisaje junto al Nilo, un hombre sin edad contempla cómo el mundo a su alrededor se desmantela lentamente: las pirámides son devueltas a las colinas, los grandes pensamientos son reabsorbidos por las mentes que los concibieron, y la humanidad retrocede hacia sus orígenes. Testigo inmutable de civilizaciones que desaparecen, el protagonista reflexiona con melancolía sobre su propia existencia en un tiempo que parece fluir en sentido inverso.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-los-suenos-en-la-casa-de-la-bruja/16579/
 
+
+**Imagen:** 0747-los-sueños-en-la-casa-de-la-bruja.webp
 ---
 
 Sinopsis: «Los sueños en la casa de la bruja» (The Dreams in the Witch-House) es un inquietante relato deH. P. Lovecraft, publicado enWeird Talesen julio de 1933, que fusiona ciencia ficción y horror cósmico. La historia sigue a Walter Gilman, un estudiante universitario que alquila una habitación en la enigmática ciudad de Arkham. Atraído por las matemáticas y el ocultismo, Gilman comienza a tener extraños sueños tras mudarse a una casa marcada por su siniestro pasado, donde habitó Keziah Mason, una bruja que escapó de la cárcel de Salem. A medida que sus pesadillas se tornan más vívidas, Gilman se adentra en un mundo donde la realidad y lo sobrenatural se confunden, enfrentando geometrías imposibles, símbolos ocultos y criaturas aterradoras.

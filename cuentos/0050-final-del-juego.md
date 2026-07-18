@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-final-del-juego/5992/
 
+
+**Imagen:** 0050-final-del-juego.webp
 ---
 
 Sinopsis: «Final del juego» es un cuento de Julio Cortázar publicado en 1956, que explora la compleja relación entre tres primas que encuentran en las vías del ferrocarril un escape de la rutina doméstica. Sumergidas en un mundo de fantasía, las niñas juegan a crear poses que exhiben a los pasajeros del tren que pasa, transformando su entorno en un reino imaginario. Sin embargo, la aparición de Ariel, un joven viajero que comienza a lanzarles cartas desde la ventanilla, altera la dinámica habitual del juego. Estas cartas despiertan nuevos sentimientos y tensiones entre las amigas, marcando un giro en la inocencia de sus pasatiempos y en su relación.

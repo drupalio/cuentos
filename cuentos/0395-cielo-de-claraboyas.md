@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/silvina-ocampo-cielo-de-claraboyas/2718/
 
+
+**Imagen:** 0395-cielo-de-claraboyas.jpg
 ---
 
 Sinopsis: «Cielo de claraboyas», cuento de Silvina Ocampo publicado en 1937 en la colecciónViaje olvidado, narra la historia de una niña que cada sábado visita la casa de su tía. En el piso superior de esta vivienda hay otra casa, cuyos habitantes se vislumbran a través de las claraboyas del techo del hall. La niña pasa las horas intentando descifrar los acontecimientos que suceden en este enigmático lugar. Un día, un suceso insólito y macabro, percibido a través del cristal difuso de las claraboyas, sacudirá profundamente a la protagonista y afectará la vida de quienes residen en la casa superior.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fritz-leiber-la-chica-de-los-ojos-hambrientos/12853/
 
+
+**Imagen:** 1081-la-chica-de-los-ojos-hambrientos.jpg
 ---
 
 Sinopsis:«La chica de los ojos hambrientos» es un cuento de Fritz Leiber, publicado en la antologíaThe Girl with the Hungry Eyes, and Other Stories. Narrado por un fotógrafo publicitario, presenta a una modelo enigmática cuya imagen comienza a dominar el mundo de la publicidad. Su mirada, hipnótica y perturbadora, despierta una fascinación colectiva que se extiende sin control. A medida que su rostro se vuelve omnipresente, el narrador revela una creciente inquietud ante una figura que parece superar los límites de lo humano: un misterio envuelto en belleza, pero cargado de un poder oscuro y profundamente inquietante.

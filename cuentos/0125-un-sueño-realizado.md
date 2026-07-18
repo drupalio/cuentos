@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-carlos-onetti-sueno-realizado/778/
 
+
+**Imagen:** 0125-un-sueño-realizado.webp
 ---
 
 Sinopsis:«Un sueño realizado» es un cuento del escritor uruguayo Juan Carlos Onetti, publicado el 6 de julio de 1941 en el diarioLa Nacióne incluido más tarde en el libroUn sueño realizado y otros cuentos(1951). Langman, un empresario teatral arruinado, se encuentra varado en una ciudad de provincia tras el fracaso de una temporada. Allí recibe la visita de una mujer extraña, vestida de forma anticuada, que le ofrece financiar un proyecto insólito: montar una escena breve, sin público y sin argumento convencional. No ha escrito una obra: solo quiere ver representado, con absoluta precisión, un momento que conserva en la memoria.

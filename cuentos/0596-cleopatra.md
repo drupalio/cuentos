@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-cleopatra/7701/
 
+
+**Imagen:** 0596-cleopatra.webp
 ---
 
 Sinopsis:«Cleopatra» es un cuento de Mario Benedetti, publicado en 1989 en el libroDespistes y franquezas. Mercedes, la única mujer de una familia con seis hijos varones, crece acostumbrada a las bromas y al trato protector de un entorno familiar dominado por lo masculino. Durante el carnaval de 1958, disfrazada de Cleopatra y acompañada por sus hermanos, asiste a un baile donde vive una noche cargada de ilusiones, emociones nuevas y un juego de identidades que marcará un momento decisivo en su camino hacia la madurez.

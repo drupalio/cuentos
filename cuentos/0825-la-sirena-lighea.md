@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/giuseppe-tomasi-di-lampedusa-la-sirena/15378/
 
+
+**Imagen:** 0825-la-sirena-lighea.webp
 ---
 
 Sinopsis: «La Sirena» (también conocido comoLighea) es un cuento de Giuseppe Tomasi di Lampedusa, publicado en 1961 en el libroRacconti. Ambientado en la Italia de 1938, narra la historia de Paolo Corbera, un joven periodista, misántropo y desencantado de la vida, que atraviesa un período de soledad y hastío. En un café de Turín, donde reina una atmósfera sombría y decadente, conoce a Rosario La Ciura, un célebre erudito retirado, de carácter áspero y mirada profunda, que parece vivir a contracorriente del mundo moderno. Entre ambos se forja una inesperada amistad que enlaza el desencanto juvenil con la sabiduría de toda una vida.

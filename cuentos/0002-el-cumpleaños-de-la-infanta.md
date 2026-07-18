@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/oscar-wilde-el-cumpleanos-de-la-infanta/3132/
 
+
+**Imagen:** 0002-el-cumpleaños-de-la-infanta.jpg
 ---
 
 Sinopsis: «El cumpleaños de la Infanta» (The Birthday of the Infanta) es un cuento de Oscar Wilde publicado en 1891 en el libroA House of Pomegranates. La joven princesa de España celebra su duodécimo cumpleaños con una magnífica fiesta en los suntuosos jardines del palacio real. Para la ocasión, se han organizado numerosos espectáculos, entre ellos una corrida de toros simulada, un malabarista africano y bailarines gitanos. Sin embargo, lo que más cautiva a la princesa y a su séquito es la actuación de un enano deforme traído de los bosques, cuya grotesca apariencia y divertida danza provocan la risa y el deleite de los presentes. Como muestra de agradecimiento, la infanta le obsequia una delicada rosa blanca que llevaba en el cabello, un gesto que despierta profundos sentimientos en el ingenuo protagonista.

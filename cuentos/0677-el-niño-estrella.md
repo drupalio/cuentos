@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/oscar-wilde-el-nino-estrella/6900/
 
+
+**Imagen:** 0677-el-niño-estrella.webp
 ---
 
 Sinopsis:«El niño-estrella» (The Star-Child) es un cuento fantástico deOscar Wildepublicado en 1891 en la colecciónA House of Pomegranates. Durante un crudo invierno, dos leñadores encuentran un niño abandonado en el bosque, envuelto en un manto de oro y con una cadena de ámbar. Aunque uno de ellos quiere dejarlo allí, el otro decide llevarlo a su hogar, donde el niño crece y se convierte en un joven de inusual belleza. Sin embargo, su apariencia no refleja su carácter: el Niño-estrella es vanidoso y cruel, desprecia a los demás y trata con dureza a los pobres y los afligidos. La arrogancia y el egoísmo del Niño-estrella pronto lo llevarán a enfrentarse a duras consecuencias.

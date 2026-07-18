@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jack-williamson-con-los-brazos-cruzados/23428/
 
+
+**Imagen:** 0880-con-los-brazos-cruzados.webp
 ---
 
 Sinopsis: «Con los brazos cruzados» (With Folded Hands…) es un relato de ciencia ficción distópica escrito por Jack Williamson, publicado en julio de 1947 en la revistaAstounding Science Fiction. Narra la historia de Underhill, un vendedor de androides que observa con inquietud la apertura de una misteriosa tienda en su ciudad. En ella se ofrecen mecánicos humanoides, impecables y solícitos, cuyo lema es: servir, obedecer y proteger al ser humano de cualquier daño. Su diseño es fascinante, su eficiencia es absoluta. Sin embargo, su presencia, tan repentina como envolvente, despierta en Underhill una sutil inquietud que no logra explicar, como si no solo el destino de su tienda estuviera amenazado.

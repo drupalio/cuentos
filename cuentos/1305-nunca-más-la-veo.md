@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-nunca-mas-la-veo/6018/
 
+
+**Imagen:** 1305-nunca-más-la-veo.jpg
 ---
 
 Alguien golpeó suavemente la puerta de la cocina, y cuando la señora O’Brian abrió, allí estaba su mejor inquilino, el señor Ramírez, entre dos oficiales de policía. El señor Ramírez se quedó en el porche, inmóvil, pequeño.

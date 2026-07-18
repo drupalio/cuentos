@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elsa-bornemann-manos/16692/
 
+
+**Imagen:** 0099-manos.webp
 ---
 
 Sinopsis:«Manos» es un cuento de terror para niños escrito por Elsa Bornemann, incluido en¡Socorro! 12 cuentos para caerse de miedo(1988). La historia sigue a tres amigas inseparables: Martina, Camila y Oriana, quienes pasan un fin de semana en la casa de campo de la familia de Martina. Tras disfrutar de una alegre noche bailandotapcon la abuela, la velada se interrumpe cuando la anciana sufre una descompensación y debe ser llevada al hospital. Mientras las niñas quedan solas en la casa, una violenta tormenta irrumpe, envolviéndolas en una atmósfera cada vez más inquietante.

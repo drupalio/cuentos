@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/manuel-mujica-lainez-el-hombrecito-del-azulejo-1875/5416/
 
+
+**Imagen:** 0088-el-hombrecito-del-azulejo-1875.webp
 ---
 
 Sinopsis:«El hombrecito del azulejo» es un cuento del escritor argentino Manuel Mujica Láinez, publicado en 1950 en el libroMisteriosa Buenos Aires. En una casona del barrio de San Miguel, a fines del siglo XIX, un niño llamado Daniel se encuentra gravemente enfermo. Los médicos anuncian que la noche será decisiva, mientras la Muerte aguarda en el patio el momento de actuar. En medio de la angustiosa espera, un singular amigo del niño hará todo lo posible para salvarlo.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/woody-allen-los-impresionistas-hubieran-dentistas/641/
 
+
+**Imagen:** 1175-si-los-impresionistas-hubieran-sido-dentistas.webp
 ---
 
 Sinopsis: El cuento «Si los impresionistas hubieran sido dentistas» (Without Feathers, 1975) es una sátira de Woody Allen que imagina a Vincent Van Gogh como un dentista frustrado, comunicándose con su hermano Theo a través de cartas. En estas cartas, Van Gogh relata sus desventuras y conflictos en el ámbito de la odontología, aplicando principios artísticos del impresionismo a sus procedimientos dentales, lo que resulta en situaciones absurdas y cómicas. Allen utiliza esta premisa para parodiar tanto el mundo del arte como el de la odontología, explorando las tensiones entre la integridad artística y las demandas prácticas de una profesión.

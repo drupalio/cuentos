@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mariana-enriquez-la-casa-de-adela/16942/
 
+
+**Imagen:** 0741-la-casa-de-adela.webp
 ---
 
 Sinopsis: «La casa de Adela», es un cuento de Mariana Enríquez publicado en la revista Orsai en 2012. Narra la historia de dos hermanos que viven en un barrio de Buenos Aires y se hacen amigos de Adela, una niña fascinante y misteriosa de carácter fuerte, que lleva una vida rodeada de mitos, especialmente relacionados con la ausencia de una de sus extremidades. La amistad entre los tres se ve transformada por su creciente obsesión con una casa abandonada en el barrio, un lugar que parece tener una energía extraña y aterradora. La trama se construye sobre la curiosidad y el peligro, mientras la casa va tomando un protagonismo inquietante.

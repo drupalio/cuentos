@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/rosario-ferre-la-muneca-menor/72/
 
+
+**Imagen:** 0165-la-muñeca-menor.jpg
 ---
 
 Sinopsis: «La muñeca menor«, cuento de la escritora puertorriqueña Rosario Ferré publicado en 1976 enPapeles de Pandora, narra la historia de una mujer que, tras sufrir un accidente en el río que la dejó con una herida incurable, se dedica a la creación de muñecas como forma de expresión y vinculación con sus sobrinas. Estas muñecas, elaboradas con minuciosa dedicación, no solo reflejan la evolución y crecimiento de las niñas, sino que también se convierten en un símbolo de la memoria familiar. A medida que las sobrinas crecen y se casan, cada una recibe como regalo la última muñeca que la tía ha hecho para ella, replica exacta de la novia. Con todas las sobrinas se cumple el mismo ritual, salvo con la menor, cuya muñeca tiene características que las otras no tenían.

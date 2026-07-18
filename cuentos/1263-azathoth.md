@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-azathoth-2/6168/
 
+
+**Imagen:** 1263-azathoth.jpg
 ---
 
 Cuando el mundo se sumió en la vejez, y la maravilla rehuyó la muerte de los hombres; cuando ciudades grises elevaron hacia cielos velados por el humo torres altas, temibles y feas, a cuya sombra nadie podía soñar sobre el sol ni las praderas floridas de la primavera; cuando el conocimiento despojó a la tierra de su manto de belleza, y los poetas no cantaron sino a distorsionados fantasmas, vistos a través de ojos cansados e introspectivos; cuando tales cosas tuvieron lugar y los anhelos infantiles se hubieron esfumado para siempre, hubo un hombre que empleó su vida en la búsqueda de los espacios hacia los que habían huido los sueños del mundo.

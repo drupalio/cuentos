@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/vicente-blasco-ibanez-un-silbido/4570/
 
+
+**Imagen:** 1346-vicente-blasco-ibáñez-un-silbido.jpg
 ---
 
 El entusiasmo caldeaba el teatro. ¡Qué debut! ¡QuéLohengrin! ¡Qué tiple aquella!

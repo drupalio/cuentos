@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/amparo-davila-el-espejo/16814/
 
+
+**Imagen:** 0469-el-espejo.webp
 ---
 
 Sinopsis:«El espejo», es un cuento de la escritora mexicana Amparo Dávila, publicado en 1959 en la colecciónTiempo destrozado. Mientras realiza un viaje de trabajo, un hombre deja a su madre hospitalizada debido a un accidente que le fractura la pierna. A su regreso, encuentra a la mujer profundamente afectada, con un nerviosismo inexplicable y un cambio notable en su carácter. Ella le confiesa que vive una experiencia aterradora relacionada con un espejo en su habitación, un secreto que solo comparte con él. A medida que el hijo intenta comprender la causa de la angustia de su madre, su propia inquietud crece, desatando un ambiente de tensión y misterio.

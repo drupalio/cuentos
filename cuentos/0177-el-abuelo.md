@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-vargas-llosa-el-abuelo/12821/
 
+
+**Imagen:** 0177-el-abuelo.jpg
 ---
 
 Sinopsis: «El abuelo» es un cuento de Mario Vargas Llosa, publicado en 1959 dentro de su primer libro,Los jefes. Narra la historia de un anciano, don Eulogio, quien espera escondido en el jardín de la casa a que aparezca su nieto. Mientras aguarda, el hombre recuerda una serie de eventos relacionados con una misteriosa sorpresa que tiene preparada para el niño. Sin embargo, cuando su nieto aparece, las cosas no salen del todo como estaban planeadas (¿o sí?)

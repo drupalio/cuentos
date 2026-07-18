@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-emilio-pacheco-no-entenderias/14348/
 
+
+**Imagen:** 0044-no-entenderías.jpg
 ---
 
 Sinopsis: «No entenderías», es un cuento del escritor mexicano José Emilio Pacheco, publicado en 1963 en la colecciónEl viento distante. Un padre y su hija pequeña atraviesan un parque al anochecer, apresurados por regresar a casa. La niña, con una curiosidad inocente, hace preguntas sobre duendes y brujas, pero sus dudas más profundas surgen cuando presencian un violento ataque entre niños. El padre, lleno de impotencia y culpa, no interviene, consciente del peligro. A través de este encuentro, la niña comienza a enfrentar la dureza del mundo, mientras el padre lucha por protegerla y encontrar respuestas a sus preguntas.

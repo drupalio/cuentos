@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/agatha-christie-el-caso-del-baile-de-la-victoria/6479/
 
+
+**Imagen:** 1059-el-caso-del-baile-de-la-victoria.jpg
 ---
 
 Sinopsis: «El caso del Baile de la Victoria» (The Affair at the Victory Ball), es un cuento de Agatha Christie publicado enThe Sketchen marzo de 1923. En la historia, el sagaz detective Hércules Poirot se encuentra involucrado en un misterioso asesinato ocurrido durante una fiesta de disfraces, donde los participantes representaban personajes de la Commedia dell’Arte. El detective es solicitado por el inspector Japp para ayudar a resolver el asesinato de Lord Cronshaw, quien fue encontrado muerto con un cuchillo en el corazón, y la coincidente muerte de Coco Courtenay, una actriz prometida a Cronshaw, que muere la misma noche por una sobredosis de cocaína. Haciendo gala de sus capacidades analíticas, Poirot devela el verdadero motivo de la muerte de Cronshaw y la forma en que el asesino pretendió ocultar sus huellas.

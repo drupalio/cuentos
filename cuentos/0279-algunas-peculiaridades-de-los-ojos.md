@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-algunas-peculiaridades-de-los-ojos/2381/
 
+
+**Imagen:** 0279-algunas-peculiaridades-de-los-ojos.webp
 ---
 
 Sinopsis: «Algunas peculiaridades de los ojos» (The Eyes Have It) es un relato corto de ciencia ficción de Philip K. Dick publicado en junio de 1953 en la revistaScience Fiction Stories. La historia sigue a un hombre que encuentra un libro abandonado en el transporte público. Al leerlo en casa, cree haber descubierto pruebas de una conspiración por la que una raza de seres alienígenas que se oculta entre los humanos estaría invadiendo sigilosamente la Tierra. Mientras su paranoia crece, el protagonista se enfrenta a la incertidumbre de si compartir lo que ha descubierto o mantenerlo en secreto.

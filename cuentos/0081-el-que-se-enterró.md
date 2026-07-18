@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/miguel-de-unamuno-el-que-se-enterro/28156/
 
+
+**Imagen:** 0081-el-que-se-enterró.webp
 ---
 
 Sinopsis:«El que se enterró» es un cuento de Miguel de Unamuno, publicado el 1 de enero de 1908 en el diarioLa Nación, de Buenos Aires. Emilio, un joven oficial antes alegre y despreocupado, se ha convertido en un hombre sombrío y taciturno. Intrigado por ese inexplicable cambio, un amigo cercano insiste una y otra vez hasta conseguir que Emilio acepte contarle su secreto. Encerrados en su cuarto de estudio, Emilio le relata cómo, meses atrás, padeció una misteriosa enfermedad que lo sumió en un terror irracional y paralizante, hasta quedar casi aislado del mundo. Entonces, un día, cuando estaba al borde del colapso, recibió una extraña visita que cambió su vida para siempre.

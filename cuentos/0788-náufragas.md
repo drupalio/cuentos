@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-naufragas/4555/
 
+
+**Imagen:** 0788-náufragas.webp
 ---
 
 Sinopsis: «Náufragas» es un cuento de Emilia Pardo Bazán publicado en 1909 en la revista Blanco y Negro. Narra la trágica historia de una madre y sus dos hijas, que se mudan a Madrid tras la muerte del padre. Esperanzadas por encontrar una vida mejor, pronto se enfrentan a la cruda realidad de la ciudad: indiferencia, pobreza y desilusión. A medida que las oportunidades se desvanecen, la madre y la hija mayor se ven empujadas a considerar decisiones impensables para sobrevivir. La autora pinta un retrato conmovedor y realista de la lucha por la dignidad en un mundo hostil, donde las ilusiones se desvanecen frente a la necesidad.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-la-tercera-expedicion/14170/
 
+
+**Imagen:** 0086-la-tercera-expedición.jpg
 ---
 
 Sinopsis: «La tercera expedición» (The Third Expedition) es un cuento de Ray Bradbury, publicado en 1951 como parte deThe Martian Chronicles. La historia sigue a la tripulación de una nave terrestre que aterriza en Marte durante la primavera marciana. Para su asombro, encuentran un pueblo apacible idéntico a los de la Tierra, con casas victorianas, árboles y jardines bien cuidados. La tripulación, desconcertada y asombrada, intenta descifrar cómo es posible tal semejanza. El capitán John Black, acompañado por dos hombres, decide explorar el lugar enfrentándose a un enigma que desafía la comprensión de los viajeros.

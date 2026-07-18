@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-el-hombre-en-el-estuche/23187/
 
+
+**Imagen:** 0883-el-hombre-en-el-estuche.webp
 ---
 
 Sinopsis: «El hombre en el estuche» (Chelovek v futlyare) es un cuento del escritor ruso Antón Chéjov, publicado en julio de 1898 en la revistaRusskaya Myslʼ. A través del relato de un maestro de instituto, conocemos a Belikov, un profesor de griego que vive con una obsesiva rigidez. Teme todo lo nuevo, evita cualquier emoción y se refugia en reglas y prohibiciones. Incluso su ropa parece una armadura contra el mundo. La historia, narrada entre cazadores durante una noche tranquila, se convierte en una crítica sutil a quienes viven prisioneros del miedo, encerrados en un estuche que los separa de la vida.

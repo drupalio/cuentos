@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ryunosuke-akutagawa-bosque/760/
 
+
+**Imagen:** 0065-en-el-bosque.webp
 ---
 
 Sinopsis:«En el bosque» («藪の中»,Yabu no naka) es un cuento del escritor japonés Ryūnosuke Akutagawa, publicado el 1 de enero de 1922 en la revistaShinchō. Una mañana, en un bosque cercano a Yamashina, un leñador encuentra el cadáver de un samurái entre los bambúes. Las declaraciones reunidas por la justicia revelan que el hombre viajaba el día anterior con su esposa cuando ambos se cruzaron con Tajômaru, un bandido conocido en la región. Lo que al principio parece un crimen fácil de esclarecer empieza a complicarse cuando cada testimonio añade una nueva sombra sobre lo ocurrido.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/paul-auster-el-cuento-de-navidad-de-auggie-wren/13443/
 
+
+**Imagen:** 0542-el-cuento-de-navidad-de-auggie-wren.jpg
 ---
 
 Sinopsis:«El cuento de navidad de Auggie Wren» (Auggie Wren’s Christmas Story) es un relato de Paul Auster, publicado el 25 de diciembre de 1990 enThe New York Times. Un escritor describe su amistad con Auggie Wren, un hombre ingenioso y observador que trabaja en un estanco de Brooklyn y que, durante doce años, ha llevado adelante un peculiar proyecto fotográfico en una esquina de Nueva York. Cuando el escritor necesita escribir un cuento navideño, Auggie le ofrece contarle una historia extraordinaria a cambio de un almuerzo, una historia que involucra una cartera robada y un inesperado encuentro.

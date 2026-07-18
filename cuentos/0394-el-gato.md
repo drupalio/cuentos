@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-carlos-onetti-el-gato/9234/
 
+
+**Imagen:** 0394-el-gato.webp
 ---
 
 Sinopsis:«El gato»es un cuento corto de Juan Carlos Onetti, publicado en la colecciónLiminaren 1980. La historia sigue a John, un inglés cínico y distante, que confiesa a un amigo el motivo detrás de su decisión de no casarse. En su relato, recuerda un antiguo compromiso con Marie, una mujer francesa por la que estaba profundamente enamorado. Todo estaba listo para que comenzaran su vida juntos, hasta que una inesperada y extraña situación cambió el rumbo de sus planes.

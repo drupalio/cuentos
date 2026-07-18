@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-los-funerales-de-la-mama-grande-2/28281/
 
+
+**Imagen:** 0054-los-funerales-de-la-mamá-grande.webp
 ---
 
 Sinopsis:«Los funerales de la Mamá Grande» es un cuento del escritor colombiano Gabriel García Márquez, publicado en 1962 en el libro del mismo título. La Mamá Grande es la soberana absoluta de Macondo, una matriarca que durante casi un siglo ha ejercido dominio sobre la familia, la tierra y la vida del pueblo. A sus noventa y dos años, demolida por la agonía y rodeada de sobrinos, sirvientes, un médico y un sacerdote, la anciana se prepara para dictar su última voluntad. Cuando la noticia empieza a extenderse, Macondo comprende que no solo está muriendo una mujer poderosa, sino todo un orden construido alrededor de su autoridad.

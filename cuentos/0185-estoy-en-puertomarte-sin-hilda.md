@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-estoy-en-puertomarte-sin-hilda/27671/
 
+
+**Imagen:** 0185-estoy-en-puertomarte-sin-hilda.webp
 ---
 
 Sinopsis:«Estoy en Puertomarte sin Hilda» (I’m in Marsport Without Hilda) es un cuento del escritor estadounidense Isaac Asimov, publicado en noviembre de 1957 enVenture Science Fiction Magaziney luego recogido en el libroAsimov’s Mysteries (1968). Max, agente del Servicio Galáctico, llega a Puertomarte para una escala de tres días antes de volver a la Tierra. La ocasión parece perfecta: su esposa Hilda no podrá acompañarlo, y él queda libre para llamar a Flora, una antigua amante. Pero justo cuando todo parece encaminarse hacia el ansiado encuentro, Rog Crinton, funcionario del Servicio en Marte, le encarga una misión urgente: descubrir cuál de tres importantes pasajeros transporta un peligroso contrabando capaz de amenazar los viajes espaciales.

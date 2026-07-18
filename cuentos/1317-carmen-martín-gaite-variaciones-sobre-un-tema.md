@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/carmen-martin-gaite-variaciones-sobre-un-tema/5486/
 
+
+**Imagen:** 1317-carmen-martín-gaite-variaciones-sobre-un-tema.jpg
 ---
 
 La fisonomía de un invierno, tomado en su conjunto, es de por sí difícil de individualizar, y ya llevaba cinco avecindada en Madrid Andrea Barbero cuando vino a sentirse picada por la comezón de desglosar de aquel que concluía, al calor de los primeros soles de marzo, el perfil de cada uno de los otros.

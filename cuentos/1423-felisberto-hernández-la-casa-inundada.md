@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/felisberto-hernandez-la-casa-inundada/1097/
 
+
+**Imagen:** 1423-felisberto-hernández-la-casa-inundada.jpg
 ---
 
 De esos días siempre recuerdo las vueltas en un bote alrededor de una pequeña isla de plantas. Cada poco tiempo las cambiaban; pero allí las plantas no se llevaban bien. Yo remaba colocado detrás del cuerpo inmenso de la señora Margarita. Si ella miraba la isla un rato largo, era posible que me dijera algo; pero no lo que me había prometido; sólo hablaba de las plantas y parecía que quisiera esconder entre ellas otros pensamientos. Yo me cansaba de tener esperanzas y levantaba los remos como si fueran manos aburridas de contar siempre las mismas gotas. Pero ya sabía que, en otras vueltas del bote, volvería a descubrir, una vez más, que ese cansancio era una pequeña mentira confundida entre un poco de felicidad. Entonces me resignaba a esperar las palabras que me vendrían de aquel mundo, casi mudo, de espaldas a mí y deslizándose con el esfuerzo de mis manos doloridas.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/cristina-peri-rossi-de-hermano-a-hermana/2668/
 
+
+**Imagen:** 0746-de-hermano-a-hermana.webp
 ---
 
 Sinopsis:«De hermano a hermana» es un cuento de Cristina Peri Rossi, publicado en 1976 en la colecciónLa tarde del dinosaurio. Un hombre observa con intensidad a su hermana Alina, a quien intenta fotografiar en poses que revelen su belleza y su misterio. La cámara se convierte en el medio para acercarse a ella, y con una fascinación obsesiva la recorre a través del lente para atrapar hasta el menor de sus gestos. Cada disparo parece fijar no sólo una imagen, sino también un deseo prohibido que late en silencio.

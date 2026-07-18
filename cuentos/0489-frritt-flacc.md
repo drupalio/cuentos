@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jules-verne-frritt-flacc/11565/
 
+
+**Imagen:** 0489-frritt-flacc.webp
 ---
 
 Sinopsis:«Frritt-Flacc», es un cuento de Jules Verne publicado el 5 de diciembre de 1884 en la revistaFigaro illustré. En una noche tormentosa, una joven busca desesperadamente al doctor Trifulgas para que salve a su padre moribundo. Conocido por su frialdad y avaricia, el doctor solo acepta pacientes que pueden pagar por adelantado, rechazando inicialmente la solicitud debido a la pobreza del enfermo. La persistencia de la familia y la promesa de un pago lo convencen de emprender el viaje, que resulta ser una experiencia sobrenatural y sorprendente.

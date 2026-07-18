@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isabel-allende-una-venganza/27578/
 
+
+**Imagen:** 0200-una-venganza.webp
 ---
 
 Sinopsis:«Una venganza» es un cuento de la escritora chilenaIsabel Allende, publicado en 1989 en el libroCuentos de Eva Luna. Dulce Rosa Orellano es la joven hija de un poderoso senador provincial, cuya belleza —más imaginada que real— inspira canciones y poemas. Cuando el temible Tadeo Céspedes ataca la hacienda del senador, la joven es encerrada en una habitación, con el firme propósito de acabar con su vida si los sitiadores logran burlar la defensa. Al ir el padre a su encuentro para evitar que caiga en manos de Céspedes, su hija le suplica que la deje vivir con un único propósito: vengarlo.

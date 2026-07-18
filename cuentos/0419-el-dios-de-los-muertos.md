@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/clark-ashton-smith-el-dios-de-los-muertos/15284/
 
+
+**Imagen:** 0419-el-dios-de-los-muertos.webp
 ---
 
 Sinopsis: «El dios de los muertos» (The Charnel God), es un cuento del escritor estadounidense Clark Ashton Smith, publicado en marzo de 1934 en la revistaWeird Tales. La historia nos transporta a la siniestra ciudad de Zul-Bha-Sair, donde el dios Mordiggian gobierna sobre los muertos. Phariom, un joven desesperado, lucha por salvar a su esposa Elaith, quien, erróneamente dada por muerta, ha sido reclamada por los sacerdotes de este oscuro dios. En un intento de rescatarla, Phariom se adentra en el tenebroso templo de Mordiggian, donde descubre un mundo de horrores necrománticos y criaturas sobrenaturales. Un cuento cargado de atmósfera gótica y un profundo sentido de terror cósmico, que nos sumerge en un universo donde la muerte y la magia negra son ley.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/miguel-hernandez-el-potro-obscuro/6172/
 
+
+**Imagen:** 1300-el-potro-obscuro.jpg
 ---
 
 Una vez había un potro oscuro. Su nombre era Potro-Obscuro. Siempre se llevaba a los niños y las niñas a la gran ciudad del Sueño. Se les llevaba todas las noches. Todos los niños y las niñas querían montar sobre el Potro-Obscuro. Una noche encontró a un niño. El niño dijo:

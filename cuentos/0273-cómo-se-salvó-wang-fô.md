@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/marguerite-yourcenar-como-se-salvo-wang-fo/2157/
 
+
+**Imagen:** 0273-cómo-se-salvó-wang-fô.webp
 ---
 
 Sinopsis:«Cómo se salvó Wang-Fô» (Comment Wang-Fô fut sauvé) es un cuento corto de la escritora francesa Marguerite Yourcenar, publicado en laRevue de Parisen 1936. El anciano pintor Wang-Fô y su devoto discípulo Ling recorren los caminos del reino de Han, deteniéndose para contemplar la belleza que los rodea. Wang-Fô busca capturar la esencia de las cosas en sus pinturas, valorando más las imágenes que las posesiones materiales. Ling, proveniente de una familia adinerada, queda fascinado por el arte y la visión del maestro, y abandona su vida cómoda para seguirlo. A lo largo de su viaje, Ling descubre una nueva percepción del mundo, aprendiendo a ver más allá de lo superficial. Juntos, maestro y discípulo enfrentan las maravillas y desafíos del camino, profundizando en su relación y en su devoción al arte.

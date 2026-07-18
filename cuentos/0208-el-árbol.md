@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/maria-luisa-bombal-arbol/893/
 
+
+**Imagen:** 0208-el-árbol.webp
 ---
 
 Sinopsis:«El árbol» es un cuento de la escritora chilena María Luisa Bombal, publicado en septiembre de 1939 en la revistaSur. Brígida es una mujer joven casada con Luis, un hombre mayor, serio y distante, amigo íntimo de su padre. Considerada «retardada» desde niña por no adaptarse a las expectativas familiares, Brígida creció sin educación formal y con una ingenuidad que la dejó desarmada frente a la vida adulta. Su matrimonio, más costumbre que pasión, transcurre en una soledad silenciosa. Su única compañía es un gran gomero que crece junto a la ventana del cuarto de vestir. En él encuentra refugio frente a una existencia cada vez más vacía.

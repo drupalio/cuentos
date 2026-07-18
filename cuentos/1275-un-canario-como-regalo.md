@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ernest-hemingway-un-canario-como-regalo/6833/
 
+
+**Imagen:** 1275-un-canario-como-regalo.jpg
 ---
 
 El tren pasó rápidamente junto a una larga casa de piedra roja con jardín, y, en él, cuatro palmeras gruesas, a la sombra de cada una de las cuales había una mesa. Al otro lado estaba el mar. El tren penetró en una hendidura cavada en la roca rojiza y la arcilla, y el mar sólo podía verse entonces interrumpidamente y muy abajo, contra las rocas.

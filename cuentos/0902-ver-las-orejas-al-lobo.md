@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alice-munro-ver-las-orejas-al-lobo/2103/
 
+
+**Imagen:** 0902-ver-las-orejas-al-lobo.webp
 ---
 
 Sinopsis:«Ver las orejas al lobo»(The Bear Came Over the Mountain) es un cuento de Alice Munro, publicado el 27 de diciembre de 1999 enThe New Yorker, e incluido en la colecciónHateship, Friendship, Courtship, Loveship, Marriage(2001). Fiona y Grant llevan décadas casados cuando Fiona muestra las primeras señales de pérdida de memoria. Lo que comienza con pequeños despistes y olvidos de cosas cotidianas se agrava hasta que ambos aceptan que es necesario ingresarla en un centro especializado. En medio del invierno, la pareja emprende el viaje hacia ese lugar, sin saber cuánto cambiará su relación a partir de entonces. Grant deberá enfrentarse a una forma de distancia emocional para la que no estaba preparado.

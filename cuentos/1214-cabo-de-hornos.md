@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/francisco-coloane-cabo-de-hornos/13358/
 
+
+**Imagen:** 1214-cabo-de-hornos.jpg
 ---
 
 «Cabo de Hornos», cuento de Francisco Coloane publicado en 1941, explora la salvaje y remota región de Tierra del Fuego, donde los elementos desafían a los marinos y cazadores que se aventuran en sus aguas. La historia se centra en la isla Sunstar, habitada únicamente por Jackie y Peter, dos hermanos cazadores de lobos marinos. Su vida solitaria se ve interrumpida cuando un prófugo llega pidiendo refugio y comida, a cambio de información sobre una rica lobería oculta. La promesa de riqueza lleva a los hermanos y al prófugo a una peligrosa expedición en busca de valiosas pieles.

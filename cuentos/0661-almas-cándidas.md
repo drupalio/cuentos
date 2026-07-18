@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-almas-candidas/6328/
 
+
+**Imagen:** 0661-almas-cándidas.webp
 ---
 
 Sinopsis:«Almas cándidas», es un cuento corto deHoracio Quiroga, publicado el 2 de noviembre de 1905 en el diarioLa Nación. Relata la emotiva historia de un matrimonio joven que enfrenta la dolorosa enfermedad de su perro León, un animal inteligente y leal que ha sido su compañero en la vida rural. A medida que la salud de León se deteriora, el relato expone la tristeza y la impotencia que sienten al no poder aliviar su sufrimiento. El cuento explora la profunda conexión emocional entre los humanos y sus animales domésticos, así como la gratitud y el respeto que merecen nuestras mascotas.

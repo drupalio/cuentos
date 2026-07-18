@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mariana-enriquez-cuando-hablabamos-con-los-muertos/22975/
 
+
+**Imagen:** 0005-cuando-hablábamos-con-los-muertos.webp
 ---
 
 Sinopsis: «Cuando hablábamos con los muertos» es un cuento de la escritora argentina Mariana Enríquez, publicado en 2009 en el libroLos peligros de fumar en la cama. Relata las experiencias de cinco adolescentes que se reúnen en secreto para jugar con una tabla ouija en la habitación de una de ellas. Lo que comienza como un juego lleno de misterio y complicidad juvenil da un giro inesperado cuando las chicas deciden ir más allá e intentar contactar a los espíritus de quienes desaparecieron durante la dictadura. Entre el humo de cigarrillos y supersticiones, las jóvenes se adentran en un territorio donde lo sobrenatural parece hacerse real.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/patricia-highsmith-el-hombre-que-escribia-libros-en-su-cabeza/5165/
 
+
+**Imagen:** 0807-el-hombre-que-escribía-libros-en-su-cabeza.webp
 ---
 
 Sinopsis: “El hombre que escribía libros en su cabeza” (The Man Who Wrote Books in His Head) es un cuento de Patricia Highsmith, publicado en 1979, que narra la peculiar vida de E. Taylor Cheever, un aspirante a escritor que, tras el fracaso de su primera novela, decide dedicarse a escribir únicamente en su mente. A lo largo de su vida, Cheever crea una vasta obra literaria, pero nunca llega a plasmarla en papel. La historia refleja su creciente aislamiento y las repercusiones que esta decisión tiene en su familia, especialmente en su hijo Everett, quien oscila entre la frustración y la admiración hacia su padre.

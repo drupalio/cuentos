@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-el-comadron/28343/
 
+
+**Imagen:** 0043-el-comadrón.webp
 ---
 
 Sinopsis:«El comadrón» es un cuento de la escritora española Emilia Pardo Bazán, publicado el 2 de abril de 1900 en el periódicoEl Imparcial. En una tormentosa noche de invierno, un comadrón espera poder descansar sin sobresaltos, convencido de que nadie lo llamará con semejante temporal. Sin embargo, al amanecer es arrancado de su cama por un hombre desconocido de aspecto imponente que lo conduce a un castillo remoto. Allí, en una cámara de la torre, descubre que la parturienta ha muerto. Su misterioso acompañante le exige que olvide el cadáver y se concentre en salvar a la criatura que aún lleva en el vientre.

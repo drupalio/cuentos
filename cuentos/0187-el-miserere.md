@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gustavo-adolfo-becquer-el-miserere/27604/
 
+
+**Imagen:** 0187-el-miserere.webp
 ---
 
 Sinopsis:«El miserere» es un cuento del escritor españolGustavo Adolfo Bécquer, publicado el 17 de abril de 1862 en el periódicoEl Contemporáneo. Durante una visita a la abadía de Fitero, un hombre encuentra un antiguo manuscrito musical inconcluso, cubierto de extrañas anotaciones en alemán que parecen escritas por un loco. Intrigado por su origen, escucha de labios de un anciano la historia de un músico peregrino que, atormentado por una culpa pasada, busca componer unMisereretan sublime que exprese de forma perfecta su arrepentimiento y le permita alcanzar el perdón divino. Esa búsqueda obsesiva lo conduce hasta una remota iglesia en ruinas, rodeada por una leyenda inquietante.

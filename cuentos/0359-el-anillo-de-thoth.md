@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-conan-doyle-el-anillo-de-thoth/16453/
 
+
+**Imagen:** 0359-el-anillo-de-thoth.webp
 ---
 
 Sinopsis: «El anillo de Thoth» (The Ring of Thoth) es un cuento de misterio y aventura escrito por Arthur Conan Doyle, publicado en 1890. La historia sigue a John Vansittart Smith, un reputado egiptólogo inglés que, durante una visita al museo del Louvre para estudiar antiguos papiros, se queda dormido y despierta después de la medianoche, encontrándose solo en el vasto museo. Atrapado en este ambiente misterioso, es testigo de un acontecimiento extraño y sobrenatural que lo conecta con una antigua historia del Egipto faraónico.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hans-christian-andersen-la-sirenita/12107/
 
+
+**Imagen:** 1164-la-sirenita.webp
 ---
 
 Sinopsis:La Sirenita, cuento de Hans Christian Andersen escrito en 1835, narra la historia de una joven sirena, hija del Rey del Mar, que vive en el fondo del océano. La muchacha se fascina con el mundo de la superficie, que visita habitualmente desde los quince años. En una de esas exploraciones conoce a un príncipe de quien se enamora. La joven está dispuesta a hacer cualquier sacrificio para estar con su amado, incluso renunciar al mundo que la vio nacer. Se trata de un cuento clásico de Hans Christian Andersen que fue llevado al cine por Disney con gran éxito, pero que en su adaptación cambió mucho la historia original.

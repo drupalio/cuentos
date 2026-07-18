@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-los-gatos-de-ulthar/8341/
 
+
+**Imagen:** 0365-los-gatos-de-ulthar.webp
 ---
 
 Sinopsis: «Los gatos de Ulthar» es un cuento de H. P. Lovecraft, publicado enThe Tryouten junio de 1920. En una aldea remota vive una pareja de crueles campesinos que infunde temor entre los vecinos por su actitud hacia los gatos. Un día llega al pueblo una caravana de misteriosos viajeros de costumbres desconocidas. Entre ellos viene un niño huérfano cuya única compañía es un pequeño gato negro. La presencia de estos extraños cambiará para siempre la vida en Ulthar.

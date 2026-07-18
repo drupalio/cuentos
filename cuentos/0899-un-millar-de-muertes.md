@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jack-london-un-millar-de-muertes/4164/
 
+
+**Imagen:** 0899-un-millar-de-muertes.webp
 ---
 
 Sinopsis: «Un millar de muertes» (A Thousand Deaths) es un cuento de ciencia ficción de Jack London, publicado en mayo de 1899 en la revistaThe Black Cat. Un náufrago es rescatado del mar y llevado a bordo de un yate, donde despierta conectado a una máquina diseñada para revivirlo. Pronto descubre que su rescate no ha sido fortuito ni desinteresado. Conducido a una isla solitaria y sin posibilidad de escapar, se convierte en el sujeto de una serie de experimentos extremos diseñados para desafiar los límites entre la vida y la muerte. Aislado y vigilado, deberá enfrentar pruebas para las que nadie está preparado.

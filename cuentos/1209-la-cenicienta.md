@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermanos-grimm-la-cenicienta/13935/
 
+
+**Imagen:** 1209-la-cenicienta.jpg
 ---
 
 «La Cenicienta», cuento recopilado por los Hermanos Grimm, narra la historia de una joven que, tras la muerte de su madre y el nuevo matrimonio de su padre, se ve relegada a ser sirvienta de su cruel madrastra y sus dos hermanastras. Conocida por su bondad y piedad, Cenicienta enfrenta numerosos maltratos, pero mantiene la esperanza gracias a la promesa de su madre de que siempre estaría con ella. Cuando el rey organiza un baile para que su hijo elija esposa, Cenicienta, con la ayuda mágica de un árbol especial plantado junto a la tumba de su madre, logra asistir secretamente. Durante tres noches, el príncipe queda cautivado por la misteriosa joven, pero sólo con la ayuda de un zapato de oro y de unas palomas, averiguará la verdadera identidad de su amada.

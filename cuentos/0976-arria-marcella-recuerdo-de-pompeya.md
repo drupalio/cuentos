@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/theophile-gautier-arria-marcella-recuerdo-de-pompeya/14059/
 
+
+**Imagen:** 0976-arria-marcella-recuerdo-de-pompeya.jpg
 ---
 
 Sinopsis: «Arria Marcella, recuerdo de Pompeya» (Arria Marcella, souvenir de Pompéi) es un cuento de Théophile Gautier, publicado en laRevue de Parisen 1852. Narra la historia de tres jóvenes amigos que visitan el museo Studii de Nápoles, donde quedan fascinados por los objetos antiguos exhumados de Pompeya y Herculano. Uno de ellos, Octavien, se siente hipnotizado por un molde de ceniza que conserva la forma del torso de una mujer. La historia toma un giro fantástico cuando, en un paseo nocturno a las ruinas de Pompeya, Octavien se encuentra transportado a la época del Imperio Romano y conoce a Arria Marcella, una bella pompeyana. La trama explora la conexión entre el presente y el pasado, la obsesión y el amor, en un entorno donde el tiempo parece haberse detenido.

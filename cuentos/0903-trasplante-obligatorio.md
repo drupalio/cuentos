@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-silverberg-trasplante-obligatorio/23171/
 
+
+**Imagen:** 0903-trasplante-obligatorio.webp
 ---
 
 Sinopsis:«Trasplante obligatorio»(Caught in the Organ Draft) es un cuento de Robert Silverberg, publicado en 1972 en la antologíaAnd Walk Now Gently Through the Fire and Other Science Fiction Stories. En una sociedad donde el envejecimiento ha sido postergado gracias a los avances médicos, los jóvenes son reclutados por el Estado para donar sus órganos a las élites de ancianos. El protagonista, un estudiante de diecinueve años, recibe su notificación de reclutamiento y se enfrenta a un sistema que convierte su cuerpo en propiedad estatal. Bajo la apariencia de progreso, persiste un antiguo ritual de sacrificio: el bisturí ha sustituido al cuchillo ceremonial.

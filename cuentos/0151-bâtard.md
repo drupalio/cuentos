@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jack-london-batard/27877/
 
+
+**Imagen:** 0151-bâtard.webp
 ---
 
 Sinopsis:«Bâtard» es un cuento del escritor estadounidense Jack London, publicado en junio de 1902 en la revistaThe Cosmopolitan. Black Leclère es un hombre cruel y brutal que, al ver a un feroz cachorro mestizo, mezcla de lobo y husky, decide adquirirlo no porque lo quiera, sino porque lo desprecia. Leclère bautiza al perro como Bâtard, “Bastardo”, y desde el primer momento hombre y animal quedan unidos por el odio. Durante cinco años recorren juntos el Norte canadiense. Entre el hambre y los malos tratos, Bâtard crece, se hace fuerte, domina con ferocidad a los demás perros y alimenta un rencor profundo contra su amo. Ambos quedan atrapados en una guerra de voluntades, unidos por una enemistad salvaje en la que cada uno espera el momento de destruir al otro.

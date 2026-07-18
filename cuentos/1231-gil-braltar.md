@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jules-verne-gil-braltar/11758/
 
+
+**Imagen:** 1231-gil-braltar.jpg
 ---
 
 «Gil Braltar» es un cuento satírico de Jules Verne publicado en 1887. La historia sigue a un patriota español que ha perdido la cordura, quien lidera a un peculiar grupo para intentar recuperar Gibraltar de las manos inglesas. El humor con que está tejida la historia, no oculta la irónica crítica que Verne realiza a través de este relato al espíritu imperialista inglés de la época, sus ansias de conquista, su racismo y su política colonial.

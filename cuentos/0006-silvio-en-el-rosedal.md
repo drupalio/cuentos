@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-silvio-en-el-rosedal/28456/
 
+
+**Imagen:** 0006-silvio-en-el-rosedal.webp
 ---
 
 Sinopsis:«Silvio en El Rosedal» es un cuento del escritor peruano Julio Ramón Ribeyro, publicado en 1977 enLa palabra del mudo. Tras la repentina muerte de su padre, Silvio Lombardi hereda El Rosedal, una hermosa hacienda cercana a Tarma. A sus cuarenta años, sin experiencia para administrarla y después de haber sacrificado su vocación musical trabajando en la ferretería familiar, piensa primero en venderla. Sin embargo, la antigua casa colonial y su extraordinario jardín de rosas lo convencen de quedarse. Silvio se recluye poco a poco en la hacienda y cae en una vida cada vez más solitaria y rutinaria, hasta que un día descubre que el lugar podría ocultar un mensaje que se empeña en descifrar.

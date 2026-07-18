@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-yaguai/12866/
 
+
+**Imagen:** 1099-yaguaí.webp
 ---
 
 Sinopsis: «Yaguaí» es un cuento de Horacio Quiroga, publicado el 26 de diciembre de 1913 en la revistaFray Mochoe incluido luego en la colecciónCuentos de amor de locura y de muerte(1917). Narra la historia de un fox-terrier blanco que habita en la región de Misiones, donde pasa sus días persiguiendo lagartijas bajo un sol abrasador. Curioso, inquieto y valiente, Yaguaí explora su entorno con perseverancia, enfrentándose al calor extremo y los desafíos del monte. Sin embargo, su rutina cambia cuando es entregado a un cazador para que aprenda nuevas técnicas de caza. Enfrentado a condiciones cada vez más difíciles, Yaguaí se ve obligado a adaptarse a un entorno inhóspito y a luchar por su supervivencia.

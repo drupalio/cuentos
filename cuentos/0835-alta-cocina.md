@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/amparo-davila-alta-cocina/6693/
 
+
+**Imagen:** 0835-alta-cocina.webp
 ---
 
 Sinopsis: «Alta cocina» es un perturbador relato de Amparo Dávila, publicado en 1959, que explora la crueldad y el horror. En una casa, cada domingo se prepara un peculiar y macabro platillo, cuyos ingredientes emiten gritos desgarradores mientras son cocidos vivos. A través de los ojos de un observador aterrorizado, el cuento revela la indiferencia de las personas ante el sufrimiento y la agonía de esas pequeñas criaturas, cuyos ojos negros y brillantes imploran piedad. La memoria de esos gritos sigue persiguiendo al narrador, dejando una marca imborrable de horror y repulsión.

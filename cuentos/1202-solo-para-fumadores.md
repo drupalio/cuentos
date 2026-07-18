@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-solo-para-fumadores/15496/
 
+
+**Imagen:** 1202-solo-para-fumadores.webp
 ---
 
 «Solo para fumadores»es un cuento autobiográfico del escritor peruano Julio Ramón Ribeyro. Publicado en 1987, la narración sigue la vida del autor, quien relata su relación íntima con el tabaco, desde la primera vez que fumó hasta el momento en que intenta dejar el vicio. A través de episodios personales y reflexiones profundas, Ribeyro presenta al cigarrillo como un compañero constante en su vida, a la vez que explora los impactos físicos, emocionales y sociales del hábito. Con un tono confesional y a veces melancólico, el cuento destaca por su sinceridad y por ofrecer un retrato honesto del autor y su adicción. Un relato introspectivo que, como advierte su título, probablemente solo quienes son o han sido fumadores podrán aquilatar en su real dimensión.

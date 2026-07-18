@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/j-g-ballard-el-hombre-subliminal/24983/
 
+
+**Imagen:** 0342-el-hombre-subliminal.webp
 ---
 
 Sinopsis:«El hombre subliminal» (The Subliminal Man) es un cuento de J. G. Ballard, publicado en enero de 1963 en la revistaNew Worlds Science Fictiony recogido luego enTerminal Beach(1964). El doctor Franklin vive en una sociedad obsesionada con el consumo, donde la estandarización y el reemplazo constante de objetos marcan la vida cotidiana. Hathaway, un viejo conocido con fama de excéntrico y conspiranoico, intenta advertirle sobre unas misteriosas señales gigantes que, según él, controlan las mentes de la población mediante mensajes subliminales. Al principio escéptico, Franklin empieza a sospechar que sus teorías quizá no sean tan descabelladas.

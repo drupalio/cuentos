@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-la-paz-de-mowsle-barton/5542/
 
+
+**Imagen:** 1322-la-paz-de-mowsle-barton.jpg
 ---
 
 CREFTON LOCKYER estaba cómoda y tranquilamente sentado en el borde del terreno, mitad huerto, mitad jardín, que se hallaba cerca del patio de la granja Mowsle Barton. Después de los largos años pasados en medio del ruido y la agitación de la vida ciudadana, la calma y la paz de aquella morada entre las colinas impresionaba su ánimo de una manera casi insoportable. El tiempo y el espacio parecían haber perdido su significación y su brusquedad; los minutos se fundían en las horas; los prados y los barbechos se extendían a lo lejos y se mezclaban dulce e imperceptiblemente. Las hierbecillas del seto se aventuraban hasta el medio de los arriates mientras que el boj y los alhelíes lanzaban sus contraataques hasta el patio de la granja y el camino. Algunas gallinas de aspecto somnoliento y unos patos solemnes y preocupados parecían sentirse tan a gusto en el patio como en el huerto o en el camino; nada parecía tener sitio fijo; ni siquiera las puertas estaban siempre encajadas en sus goznes. Y sobre toda la escena campeaba una sensación de paz casi mágica. A mediodía se tenía la impresión de que siempre había sido mediodía y que siempre seguiría siendo mediodía; en el crepúsculo uno comprendía que jamás podía haber sido otra cosa más que crepúsculo.

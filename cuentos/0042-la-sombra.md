@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hans-christian-andersen-la-sombra/28351/
 
+
+**Imagen:** 0042-la-sombra.webp
 ---
 
 Sinopsis:«La sombra» (Skyggen) es un cuento del escritor danés Hans Christian Andersen, publicado en 1847 en la colecciónNye Eventyr. Un joven sabio de los países fríos visita una ciudad de clima sofocante, donde un sol implacable obliga a vivir con puertas y ventanas cerradas durante el día. Al caer la tarde, sale a su balcón y observa la silenciosa casa que tiene enfrente: allí no se ve a nadie, pero hay flores cuidadas y, desde el interior, llega una música extraña. Una noche cree distinguir entre las plantas a una misteriosa joven. Intrigado, bromea con su propia sombra y la invita a entrar a investigar aquel lugar. A la mañana siguiente descubre que la sombra ha desaparecido.

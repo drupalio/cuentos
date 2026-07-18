@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/haruki-murakami-el-septimo-hombre/28267/
 
+
+**Imagen:** 0058-el-séptimo-hombre.webp
 ---
 
 Sinopsis:«El séptimo hombre» («七番目の男»,Nanabanme no otoko) es un cuento del escritor japonés Haruki Murakami, publicado en febrero de 1996 en la revistaBungei Shunjū. Durante una reunión nocturna, un hombre de mediana edad toma la palabra para relatar una experiencia que lo marcó desde la infancia. Cuando tenía diez años, vivía en un pequeño pueblo costero y era inseparable de K, un niño frágil y de carácter dulce, dotado de un talento excepcional para el dibujo. Un día de septiembre, mientras un tifón azota la región, ambos aprovechan la calma del ojo de la tormenta para acercarse a la playa. Allí, ante un mar extrañamente retirado y silencioso, el protagonista comprende que algo terrible se aproxima.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hugh-walpole-la-mascara-de-plata/23050/
 
+
+**Imagen:** 0924-la-máscara-de-plata.webp
 ---
 
 Sinopsis: «La máscara de plata» (The Silver Mask) es un cuento del escritor británico Hugh Walpole, publicado por primera vez en marzo de 1932 enHarper’s Bazaary más tarde incluido en la colecciónAll Souls’ Night(1933). La historia comienza una noche fría en Londres, cuando Miss Sonia Herries, una mujer solitaria de cincuenta años, se topa con un joven mendigo extraordinariamente apuesto que le ruega ayuda para su familia hambrienta. Movida por un impulso compasivo, Sonia lo invita a su casa, sin sospechar que ese gesto la arrastrará a una situación extraña y perturbadora, donde la vulnerabilidad emocional se convierte en su mayor debilidad.

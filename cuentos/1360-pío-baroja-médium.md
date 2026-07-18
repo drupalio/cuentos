@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/pio-baroja-medium/4027/
 
+
+**Imagen:** 1360-pío-baroja-médium.jpg
 ---
 
 Soy un hombre tranquilo, nervioso; pero no estoy loco, como dicen los médicos que me han reconocido. He analizado todo, he profundizado todo, y vivo intranquilo. ¿Por qué? No lo he sabido todavía.

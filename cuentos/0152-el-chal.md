@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/cynthia-ozick-el-chal/4166/
 
+
+**Imagen:** 0152-el-chal.webp
 ---
 
 Sinopsis:«El chal» («The Shawl») es un cuento de la escritora estadounidense Cynthia Ozick, publicado el 26 de mayo de 1980 enThe New Yorker. Rosa es conducida a un campo de detención junto a Stella, su sobrina adolescente, y Magda, su hija pequeña. En medio del hambre, el frío y el miedo, intenta proteger a la niña de las miradas ajenas, ocultándola entre sus brazos bajo un chal que parece sostenerla con una fuerza casi mágica. La prenda se convierte para Magda en refugio y consuelo, y para Rosa en la única defensa posible contra el horror que las rodea.

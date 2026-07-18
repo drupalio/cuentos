@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/oscar-wilde-el-amigo-fiel/5339/
 
+
+**Imagen:** 0161-el-amigo-fiel.jpg
 ---
 
 Sinopsis: «El amigo fiel»(The Devoted Friend) es un cuento de Oscar Wilde, publicado en 1888 en la colecciónThe Happy Prince and Other Tales. Presentado como una fábula dentro de otra, el relato comienza cuando un pardillo narra a una rata de agua y a una pata la historia del pequeño Hans, un joven bondadoso que cuida con esmero su jardín y mantiene una relación desigual con un molinero que se aprovecha de su generosidad y entrega incondicional. A través de esta estructura alegórica, Wilde critica la hipocresía y el egoísmo ocultos tras discursos de virtud, y muestra cómo la verdadera amistad puede corromperse por el interés y la manipulación.

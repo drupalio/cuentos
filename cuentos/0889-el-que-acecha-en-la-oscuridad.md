@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-el-que-acecha-en-la-oscuridad/15122/
 
+
+**Imagen:** 0889-el-que-acecha-en-la-oscuridad.webp
 ---
 
 Sinopsis: «El que acecha en la oscuridad» (The Haunter of the Dark) es un cuento deH. P. Lovecraftdedicado aRobert Bloch, escrito como respuesta al relato «El vampiro estelar«, donde Lovecraft aparece como personaje. Fue publicado en la revistaWeird Talesen diciembre de 1936. La historia sigue a Robert Blake, un escritor que se muda a Providence y desarrolla una obsesión con una misteriosa iglesia abandonada en Federal Hill. Blake investiga la siniestra historia del lugar y descubre un culto antiguo y peligroso. Imprudentemente, entra en la iglesia y encuentra objetos extraños que despiertan un poder ancestral. A medida que avanza la narración, Blake se ve cada vez más atormentado por fuerzas sobrenaturales, lo que crea una atmósfera de creciente tensión y horror cósmico característico de la obra de Lovecraft.

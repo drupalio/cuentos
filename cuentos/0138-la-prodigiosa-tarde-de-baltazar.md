@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-la-prodigiosa-tarde-de-baltazar/2071/
 
+
+**Imagen:** 0138-la-prodigiosa-tarde-de-baltazar.jpg
 ---
 
 Sinopsis: «La prodigiosa tarde de Baltazar» es un cuento de Gabriel García Márquez publicado en la colecciónLos funerales de la Mamá Grande(1962). Narra la historia de Baltazar, un carpintero habilidoso, que construye una extraordinaria jaula para pájaros que asombra a todo el pueblo. La noticia se extiende rápidamente y muchos vienen a admirar su creación. Entre los interesados está el doctor Giraldo, quien desea comprarla para su esposa. Sin embargo, Baltazar insiste en que la jaula fue encargada por el hijo de José Montiel, el hombre más rico del pueblo, y que sólo a él le pertenece.

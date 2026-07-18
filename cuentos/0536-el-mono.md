@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stephen-king-el-mono/15541/
 
+
+**Imagen:** 0536-el-mono.webp
 ---
 
 Sinopsis:En «El mono» (The Monkey), relato de Stephen King publicado enGalleryen noviembre de 1980, Hal Shelburn se enfrenta a sus peores temores cuando su hijo encuentra un antiguo y siniestro juguete: un mono de cuerda con platillos. Este hallazgo revive los aterradores recuerdos de Hal, quien se había desprendido del juguete años atrás luego de experimentar una serie de tragedias inexplicables.

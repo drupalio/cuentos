@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/f-marion-crawford-pues-la-sangre-es-vida/14880/
 
+
+**Imagen:** 0922-pues-la-sangre-es-vida.jpg
 ---
 
 Sinopsis: «Pues la sangre es vida» (For the Blood is the Life) es un cuento de F. Marion Crawford, publicado el 15 de diciembre de 1905 en la revistaCollier’s. Ambientado en una torre solitaria del sur de Italia, narra la experiencia de dos hombres que, tras cenar al aire libre, observan un extraño montículo bañado por la luz de la luna. Uno de ellos, un artista escandinavo, asegura ver una tumba y, sobre ella, una figura tendida. Intrigado, baja a inspeccionar el lugar. Su amigo, dueño de la torre, aprovecha la ocasión para contarle la inquietante historia del ser que habita ese paraje, revelando un antiguo y oscuro misterio.

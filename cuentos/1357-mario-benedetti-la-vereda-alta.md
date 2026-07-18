@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-la-vereda-alta/758/
 
+
+**Imagen:** 1357-mario-benedetti-la-vereda-alta.jpg
 ---
 
 Si yo hubiera tenido padre y madre, todo habría sido diferente. Pero mi familia era una abuela materna, y una abuela materna no alcanza para nada. Además, a ésta le faltaban casi todos los dientes y siempre, cuando hablaba, uno creía que iba a escupir el último. Es probable que su odio hacia mí haya empezado en eso. Ella se daba cuenta de lo mal que me impresionaban sus encías inermes y balbucientes. Pero yo no podía evitarlo, así como ella no evitaba el odio.

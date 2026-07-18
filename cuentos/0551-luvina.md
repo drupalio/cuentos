@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-rulfo-luvina/9300/
 
+
+**Imagen:** 0551-luvina.jpg
 ---
 
 Sinopsis: En «Luvina», cuento publicado enEl llano en llamas(1953), Juan Rulfo describe un pueblo inhóspito azotado por el viento constante y la aridez de su entorno. A través de los recuerdos de un hombre que narra su experiencia en él, se presenta un lugar donde la naturaleza y el tiempo parecen haberse detenido, dejando solo el eco de la soledad y la tristeza. Los habitantes, marcados por la resignación, viven una vida dura y monótona, atados a la tierra estéril y al peso de sus muertos. En medio de este paisaje desolado, el narrador comparte su melancólica reflexión sobre la lucha inútil contra un destino implacable.

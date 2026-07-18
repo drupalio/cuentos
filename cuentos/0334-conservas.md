@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/samanta-schweblin-conservas/23817/
 
+
+**Imagen:** 0334-conservas.webp
 ---
 
 Sinopsis: «Conservas» es un cuento de Samanta Schweblin, publicado en 2008 en la antología La furia de las pestes. La historia sigue a una joven que enfrenta un embarazo que se adelanta a sus deseos, lo que trastoca sus planes, su rutina, su relación de pareja y la calma familiar. A medida que su cuerpo cambia, crecen la angustia, el insomnio y una sensación de pérdida de control. Junto a su pareja, exploran distintas alternativas: obstetras, curanderos, una comadrona y un chamán. Finalmente, encuentran al doctor Weisman, cuya propuesta parece ofrecer una solución definitiva a sus problemas.

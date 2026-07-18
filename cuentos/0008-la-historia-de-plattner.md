@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-g-wells-la-historia-de-plattner/28512/
 
+
+**Imagen:** 0008-la-historia-de-plattner.webp
 ---
 
 Sinopsis:«La historia de Plattner» (The Plattner Story) es un cuento de H. G. Wells, publicado en abril de 1896 en la revistaThe New Review. Gottfried Plattner es un discreto profesor de lenguas modernas que también imparte química en una pequeña escuela privada inglesa. Una tarde, mientras analiza un extraño polvo verdoso llevado por un alumno, una violenta explosión sacude el aula y Plattner desaparece sin dejar rastro. Nueve días después reaparece de manera inesperada, desaliñado y con los lados derecho e izquierdo de su cuerpo invertidos. A su regreso, Plattner cuenta una historia insólita sobre un universo más allá del entendimiento humano y una realidad oculta a nuestros ojos.

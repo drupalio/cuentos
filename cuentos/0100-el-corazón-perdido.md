@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-el-corazon-perdido/2750/
 
+
+**Imagen:** 0100-el-corazón-perdido.webp
 ---
 
 Sinopsis:«El corazón perdido» es un cuento de Emilia Pardo Bazán, publicado en 1898 en el libroCuentos de amor. Una tarde, durante un paseo por las calles de la ciudad, alguien encuentra en el suelo un corazón rojo, vivo y palpitante, que supone perdido por alguna mujer. Con la intención de devolverlo, adquiere unos anteojos mágicos que permiten observar el interior del pecho de las transeúntes. Pronto descubre, con asombro, que ninguna de las mujeres examinadas posee corazón, aunque todas rechazan indignadas el que se les ofrece. Cuando la búsqueda parece condenada al fracaso, ve pasar a una niña pálida que parece diferente de las demás.

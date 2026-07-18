@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ambrose-bierce-los-ojos-de-la-pantera/25806/
 
+
+**Imagen:** 0508-los-ojos-de-la-pantera.webp
 ---
 
 Sinopsis:«Los ojos de la pantera» (The Eyes of the Panther) es un relato de Ambrose Bierce, publicado el 17 de octubre de 1897 en elSan Francisco Examiner. Jenner Brading e Irene Marlowe se aman, pero ella se resiste obstinadamente a casarse con él. Ante la insistencia de Jenner por conocer el motivo de su negativa, Irene le narra una extraña y macabra historia familiar ocurrida en una cabaña aislada en el bosque, un episodio que habría dejado una profunda huella en su vida y que parece impedirle cualquier compromiso matrimonial.

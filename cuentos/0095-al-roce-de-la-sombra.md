@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guadalupe-duenas-al-roce-de-la-sombra/13428/
 
+
+**Imagen:** 0095-al-roce-de-la-sombra.jpg
 ---
 
 Sinopsis: «Al roce de la sombra» es un cuento de Guadalupe Dueñas, publicado en 1958 en el libroTiene la noche un árbol. Raquel es una joven maestra que llega al apartado pueblo de San Martín, enviada por la directora del Hospicio donde creció. Lleva una carta de recomendación que debe presentar a las señoritas Moncada, dos aristocráticas hermanas que viven aisladas y rodeadas de misterio. Aunque la reciben con frialdad, las Moncada deciden hospedarla en su lujosa mansión y proporcionarle todo lo necesario. Deslumbrada por la riqueza que la rodea, Raquel lleva una vida tranquila hasta que, un día, al regresar antes de lo previsto, descubre el secreto que se oculta tras aquella casa.

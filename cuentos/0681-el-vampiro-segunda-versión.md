@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-vampiro-segunda-version/14320/
 
+
+**Imagen:** 0681-el-vampiro-segunda-versión.jpg
 ---
 
 Sinopsis: «El vampiro» es un cuento de Horacio Quiroga, publicado en el diarioLa Naciónen 1927 y luego incluido en el libroMás allá(1935). Es el segundo relato de Quiroga en llevar este título. La historia es narrada por un hombre internado en un sanatorio mental, quien relata su vínculo con Guillén de Orzúa y Rosales, un caballero de inmensa fortuna y refinada erudición, obsesionado con la idea de proyectar y materializar imágenes. Rosales sostiene que las figuras del cinematógrafo, especialmente las actrices, contienen un soplo de vida que puede ser extraído y corporizado. Sus experimentos, sin embargo, derivarán en consecuencias inquietantes.

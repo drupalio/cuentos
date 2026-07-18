@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-tendencias/19797/
 
+
+**Imagen:** 0424-tendencias.webp
 ---
 
 Sinopsis: «Tendencias»(Trends) es un cuento de Isaac Asimov, publicado en julio de 1939 enAstounding Science-Fiction. Ambientado en un futuro donde el fundamentalismo religioso está en auge y el avance científico es visto con desconfianza, narra la historia de John Harman, un ingeniero que desafía la oposición social y religiosa para realizar el primer vuelo espacial. A medida que se acerca el día del lanzamiento, la presión pública se intensifica y aumentan las amenazas contra su vida. Con una determinación inquebrantable, Harman enfrenta el rechazo de un mundo temeroso del cambio, mientras sus enemigos claman que su proyecto es un sacrilegio que desafía los designios divinos.

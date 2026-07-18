@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/cristina-peri-rossi-el-testigo/6515/
 
+
+**Imagen:** 0046-el-testigo.jpg
 ---
 
 Sinopsis: «El testigo» es un perturbador relato de la escritora uruguaya Cristina Peri Rossi, publicado en 1989 en el libroCuentos eróticos. Un joven narra la experiencia de crecer en un hogar donde su madre, separada de su padre, acoge a amigas que frecuentemente se quedan a vivir por largos periodos con ellos. El joven describe lo agradable de crecer rodeado de mujeres que lo atienden y cuidan con calidez, en ausencia de la violenta presencia masculina. Sin embargo, la llegada de Helena, una joven actriz con una infancia difícil, transforma la dinámica familiar. El protagonista desarrolla una estrecha relación con Helena, lo que desencadena situaciones que alteran profundamente la atmósfera del hogar.

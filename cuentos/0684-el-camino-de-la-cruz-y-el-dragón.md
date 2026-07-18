@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/george-r-r-martin-el-camino-de-la-cruz-y-el-dragon/4201/
 
+
+**Imagen:** 0684-el-camino-de-la-cruz-y-el-dragón.jpg
 ---
 
 Sinopsis:«El camino de la Cruz y el Dragón» (The Way of Cross and Dragon) es un relato de ciencia ficción de George R. R. Martin, publicado en la revistaOmnien junio de 1979, con el cual ganó los premios Hugo y Locus en 1980. El padre Damien Har Veris, un caballero inquisidor de la orden Militante de los Caballeros de Jesucristo, es enviado a combatir una nueva herejía en el planeta Arión. Esta herejía adora a Judas Iscariote como santo y rey de los dragones, basándose en un libro apócrifo llamadoEl camino de la Cruz y el Dragón. Durante su misión, Damien descubrirá verdades y enfrentará desafíos que pondrán a prueba su fe y sus creencias.

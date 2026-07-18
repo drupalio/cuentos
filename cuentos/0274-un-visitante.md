@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-vargas-llosa-un-visitante/12407/
 
+
+**Imagen:** 0274-un-visitante.jpg
 ---
 
 Sinopsis:«Un visitante» es un cuento de Mario Vargas Llosa, publicado en 1959 dentro del libroLos jefes. Narra la llegada inesperada de un sujeto apodado el Jamaiquino a un tambo solitario donde vive doña Merceditas, una mujer mayor que habita al borde de la selva. Aunque el visitante en un principio se muestra amable, pronto revela un propósito oculto: va tras la pista de Numa, un antiguo compinche. A través de una serie de interacciones tensas y enigmáticas entre los protagonistas, Vargas Llosa desarrolla una trama de traición y venganza, en la que el pasado de los personajes y sus relaciones complejas son cruciales para dar vida a una narración cargada de suspense.

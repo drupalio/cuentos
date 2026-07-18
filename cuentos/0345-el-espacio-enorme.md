@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/j-g-ballard-el-espacio-enorme/14960/
 
+
+**Imagen:** 0345-el-espacio-enorme.jpg
 ---
 
 El espacio enormede J. G. Ballard narra la historia de un hombre que toma la repentina decisión de aislarse completamente en su casa. A medida que pasan los días y meses, el protagonista se desconecta gradualmente del mundo exterior, rechazando todas las responsabilidades y conexiones sociales. El protagonista se adentra en un viaje mental y emocional, explorando los límites entre el espacio físico y psicológico, mientras lucha contra el hambre y la soledad.

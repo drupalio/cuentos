@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/chimamanda-ngozi-adichie-una-experiencia-privada/2873/
 
+
+**Imagen:** 0033-una-experiencia-privada.webp
 ---
 
 Sinopsis:«Una experiencia privada» (A Private Experience) es un cuento de la escritora nigeriana Chimamanda Ngozi Adichie, publicado el 15 de junio de 2004 en la revistaVirginia Quarterly Review. En una ciudad del norte de Nigeria sacudida por disturbios étnicos y religiosos, dos mujeres buscan refugio en una tienda abandonada. Chika es una joven universitaria de familia acomodada, perteneciente al pueblo igbo y de religión cristiana. La otra es una humilde vendedora de cebollas en el mercado, musulmana y del pueblo hausa. Mientras pasan las horas y la violencia continúa en las calles, ambas comparten la espera y la angustia de no saber qué ha ocurrido con sus familiares.

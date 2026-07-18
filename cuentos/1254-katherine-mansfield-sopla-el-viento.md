@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/katherine-mansfield-sopla-el-viento/8288/
 
+
+**Imagen:** 1254-katherine-mansfield-sopla-el-viento.jpg
 ---
 
 Repentinamente… horriblemente… ella se despierta. ¿Qué ha ocurrido? Ha ocurrido algo horrible. No, no ha ocurrido nada. Es sólo el viento que estremece la casa, sacudiendo las ventanas, golpeando un hierro del techo y haciendo temblar su cama. Las hojas pasan aleteando frente a su ventana, alejándose hacia arriba; en la avenida un periódico completo se agita en el aire como una cometa perdida y cae clavándose en un pino. Hace frío. El verano ha terminado… es otoño, todo es feo. Los carros pasan ruidosamente, balanceándose de lado a lado; dos chinos avanzan a pasitos cargados con un balancín de madera del que penden los cestos cargados de verduras… sus coletas y sus blusas azules volando al viento. Un perro blanco de tres patas pasa aullando frente a la cerca. ¡Todo ha terminado! ¿Qué ha terminado? ¡Oh, todo! Y ella empieza a recogerse el pelo con dedos temblorosos, sin atreverse a mirar en el espejo. En el vestíbulo, mamá habla con la abuela.

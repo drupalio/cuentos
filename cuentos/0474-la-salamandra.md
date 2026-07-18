@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/merce-rodoreda-la-salamandra/25952/
 
+
+**Imagen:** 0474-la-salamandra.webp
 ---
 
 Sinopsis:«La salamandra» es un cuento de la escritora catalana Mercè Rodoreda, publicado en 1967 en la colecciónLa meva Cristina i altres contes. Una joven inicia una relación clandestina con un hombre casado. Cuando la esposa los descubre, el pueblo entero se vuelve contra la protagonista, acusándola de brujería. La comunidad la persigue con actos cada vez más crueles y violentos. La muchacha se convierte progresivamente en un ser marginado y rechazado, una paria que debe ser castigada.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-la-calavera-del-marques-de-sade/15177/
 
+
+**Imagen:** 0885-la-calavera-del-marqués-de-sade.webp
 ---
 
 Sinopsis: En «La calavera del Marqués de Sade» (The Skull of the Marquis de Sade), cuento deRobert Blochpublicado en la revista Weird Tales en septiembre de 1945, el erudito y coleccionista Christopher Maitland se obsesiona con adquirir objetos raros y macabros para su colección. Un día recibe una tentadora oferta de un proveedor siniestro llamado Marco, quien le presenta un cráneo humano supuestamente perteneciente al infame Marqués de Sade. A medida que Maitland profundiza en la historia detrás del cráneo, se desatan eventos perturbadores que revelan un oscuro y malévolo poder.

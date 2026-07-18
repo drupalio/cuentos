@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-la-noche-de-los-alcaravanes/7560/
 
+
+**Imagen:** 0140-la-noche-de-los-alcaravanes.webp
 ---
 
 Sinopsis:«La noche de los alcaravanes» es un relato de Gabriel García Márquez publicado en 1953 en el diarioCrónicay luego incluido en la colecciónOjos de perro azul(1974). La historia nos sumerge en un misterioso bar donde tres hombres se enfrentan a una realidad que les resulta confusa. Reunidos en un lugar oscuro, con música repetitiva y olores extraños, perciben que algo inexplicable los envuelve. A medida que intentan orientarse, una creciente sensación de encierro los invade, mientras se enfrentan a figuras enigmáticas y espectros que parecen conocer verdades olvidadas por ellos.

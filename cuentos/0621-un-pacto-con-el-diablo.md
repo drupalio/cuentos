@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-jose-arreola-un-pacto-con-el-diablo/9410/
 
+
+**Imagen:** 0621-un-pacto-con-el-diablo.jpg
 ---
 
 Sinopsis:En «Un pacto con el diablo», cuento de Juan José Arreola publicado en el libro Confabulario (1952), un hombre llega tarde al cine y le pide a su vecino que le resuma la película que están viendo. Este accede amablemente y le pone al día sobre la historia que se exhibe en la pantalla. Esto sirve de excusa para que entre ambos se entable una conversación sobre un tema tan misterioso como fascinante: ¿Qué haría usted si el diablo intentara comprar su alma? Un relato que nos invita a reflexionar sobre el valor del dinero y el verdadero sentido de la vida.

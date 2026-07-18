@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/thomas-wolfe-tengo-algo-que-deciros/3119/
 
+
+**Imagen:** 1375-thomas-wolfe-tengo-algo-que-deciros.jpg
 ---
 
 A las siete sonó en tono bajo el teléfono de al lado de mi cama. Me di la vuelta y luego me desperté de pronto de uno de esos sueños intranquilos y poco profundos que experimenta uno cuando se ha acostado tarde sabiendo que tiene que levantarse temprano. Era el portero.

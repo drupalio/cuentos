@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-la-cita/21413/
 
+
+**Imagen:** 1085-la-cita.webp
 ---
 
 Sinopsis:«La cita» es un cuento de Edgar Allan Poe, publicado en enero de 1834 en la revistaThe Lady’s Book. Ambientado en Venecia, el relato sigue al narrador en su encuentro con un hombre enigmático, cuya figura romántica y melancólica parece surgir de un mundo de sueños. La historia se inicia con una dramática escena en el Puente de los Suspiros, donde un niño cae al canal y un desconocido se lanza a salvarlo. A partir de ahí, Poe construye una atmósfera opresiva y sugestiva, marcada por la pasión, el misterio y una fatalidad latente.

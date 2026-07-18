@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-el-viento/13565/
 
+
+**Imagen:** 0699-el-viento.jpg
 ---
 
 Sinopsis: «El viento» (The Wind), es un relato de terror psicológico de Ray Bradbury publicado enWeird Talesen marzo de 1943. Narra la historia de Allin, un hombre convencido de que los vientos son entidades vivientes y que uno de ellos intenta poseerlo. Buscando apoyo, Allin recurre a su amigo Herb Thompson, pero Herb se encuentra impedido de ir al hogar de Allin debido a que espera invitados en su propia casa; además, no puede dejar a su esposa, quien cree que Allin está demente. A lo largo de la noche, Herb recibe varias llamadas de Allin, cada vez más alarmantes y perturbadoras.

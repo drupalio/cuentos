@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/franz-kafka-josefina-la-cantora-o-el-pueblo-de-los-ratones/27744/
 
+
+**Imagen:** 0159-josefina-la-cantora-o-el-pueblo-de-los-ratones.webp
 ---
 
 Sinopsis:«Josefina la cantora o el pueblo de los ratones» (Josefine, die Sängerin oder Das Volk der Mäuse) es un cuento de Franz Kafka, publicado el 20 de abril de 1924 en Prager Presse. Josefina es un personaje único en el pueblo de los ratones: una cantora venerada por una comunidad que, paradójicamente, parece carecer por completo de sensibilidad musical. Su arte, semejante al silbido común de todos, provoca sin embargo un recogimiento especial entre quienes acuden a escucharla, más impresionados por su actitud que por su voz. Amparada en esa fascinación colectiva, Josefina empieza a reclamar privilegios que ponen a prueba la paciencia de su pueblo.

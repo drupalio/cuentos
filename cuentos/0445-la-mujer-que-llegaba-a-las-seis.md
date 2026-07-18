@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-la-mujer-que-llegaba-a-las-seis/12185/
 
+
+**Imagen:** 0445-la-mujer-que-llegaba-a-las-seis.webp
 ---
 
 Sinopsis: «La mujer que llegaba a las seis» es un cuento de Gabriel García Márquez publicado en 1950 en el periódicoEl Espectadory recopilado luego en la colecciónOjos de perro azul(1972). La historia transcurre en un pequeño restaurante donde José, el dueño, recibe cada tarde a una mujer que siempre llega a la misma hora. Sin embargo, esa tarde, aunque su rutina parece intacta, ella insiste en que ha llegado antes. A través de un diálogo tenso y lleno de insinuaciones, la mujer va desvelando poco a poco el motivo de su conducta.

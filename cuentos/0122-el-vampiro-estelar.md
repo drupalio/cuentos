@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-el-vampiro-estelar/5789/
 
+
+**Imagen:** 0122-el-vampiro-estelar.jpg
 ---
 
 Sinopsis: «El vampiro estelar» (The Shambler from the Stars) es un cuento deRobert Blochpublicado en septiembre de 1935 en la revistaWeird Tales. Dedicado aH. P. Lovecraft, narra la historia de un escritor fascinado por lo desconocido y lo siniestro que, en su búsqueda de inspiración para crear una auténtica obra de terror, se topa con un antiguo libro tituladoDe Vermis Mysteriis, que contiene conocimientos arcanos y prohibidos. Con la ayuda de un amigo erudito que vive en Providence, intentan descifrarlo. Su imprudencia tendrá consecuencias horrorosas.

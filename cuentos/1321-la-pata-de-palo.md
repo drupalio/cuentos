@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-de-espronceda-la-pata-de-palo/5520/
 
+
+**Imagen:** 1321-la-pata-de-palo.jpg
 ---
 
 Voy a contar el caso más espantable y prodigioso que buenamente imaginarse pueda, caso que hará erizar el cabello, horripilarse las carnes, pasmar el ánimo y acobardar el corazón más intrépido, mientras dure su memoria entre los hombres y pase de generación en generación su fama con la eterna desgracia del infeliz a quien cupo tan mala y tan desventurada suerte. ¡Oh cojos!, escarmentad en pierna ajena y leed con atención esta historia, que tiene tanto de cierta como de lastimosa; con vosotros hablo, y mejor diré con todos, puesto que no hay en el mundo nadie, a no carecer de piernas, que no se halle expuesto a perderlas.

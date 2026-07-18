@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ana-maria-shua-octavio-el-invasor/27307/
 
+
+**Imagen:** 0257-octavio-el-invasor.webp
 ---
 
 Sinopsis:«Octavio, el invasor» es un cuento de Ana María Shua, publicado en 1984 en la revistaMinotauro 6. Narra la llegada a la Tierra de un ser que, tras una compleja transmigración, despierta en el cuerpo de un recién nacido humano. Desorientado por las sensaciones físicas, la luz y la gravedad, intenta adaptarse a ese organismo desconocido mientras recuerda su misión: formar parte de una avanzada destinada a invadir el planeta. Incapaz al principio de organizar sus percepciones, comienza a reconocer voces, a establecer contacto con otros como él y a enfrentarse a las primeras dificultades de habitar un cuerpo que no domina.

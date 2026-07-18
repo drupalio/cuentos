@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/liliana-blum-una-novia-para-kafka/2556/
 
+
+**Imagen:** 1382-liliana-blum-una-novia-para-kafka.jpg
 ---
 
 La luz entra por la ventana como una resbaladilla por la que bajan miles de partículas de polvo hasta mi cama. Traspasan mi piel, se meten en mi cuerpo, viajan por mis venas. Los olores se transforman, van de la tierra mojada a carne descompuesta. Ellos me enseñan los prejuicios de los sentidos: un olor es un olor. Mi cerebro se abre a todo: soy un receptáculo. Cierro los ojos y ya están allí. Rojos, retorcidos, sangrantes, mostrando los colmillos. Me amenazan y palpitan detrás de mis párpados dictándome órdenes. Son ellos. Hoy me piden que la encuentre.

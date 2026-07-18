@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/samanta-schweblin-mi-hermano-walter/28368/
 
+
+**Imagen:** 0036-mi-hermano-walter.webp
 ---
 
 Sinopsis:«Mi hermano Walter» es un cuento de la escritora argentina Samanta Schweblin, publicado en 2008 en el libroLa furia de las pestes. Walter está sumido en una fuerte depresión y, aunque su familia intenta acompañarlo, permanece callado e indiferente a cuanto ocurre a su alrededor. Sin embargo, en torno a su tristeza la vida de los demás empieza a mejorar de manera inesperada. La familia prospera, las reuniones se vuelven cada vez más animadas y todos parecen sentirse unidos por una felicidad creciente, mientras Walter sigue sentado, ajeno y sombrío, como una presencia inmóvil en medio de ese entusiasmo.

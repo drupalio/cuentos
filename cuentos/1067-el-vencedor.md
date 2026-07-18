@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/cesar-vallejo-el-vencedor/5132/
 
+
+**Imagen:** 1067-el-vencedor.jpg
 ---
 
 Sinopsis: «El vencedor» es un cuento de César Vallejo escrito entre 1935 y 1936 y publicado póstumamente enNovelas y cuentos completos(1967). Ambientado en un pueblo andino, narra el enfrentamiento entre dos niños a la salida de la escuela, seguido por una multitud de exaltados compañeros que los conducen a un cerro para presenciar la pelea. Uno de los niños, Juncos, es pobre y descalzo; el otro, Cancio, pertenece a una familia acomodada. A medida que avanza la contienda, el entusiasmo da paso a una tensión cargada de emociones ambiguas.

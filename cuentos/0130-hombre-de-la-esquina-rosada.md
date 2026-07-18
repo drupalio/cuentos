@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-hombre-la-esquina-rosada/782/
 
+
+**Imagen:** 0130-hombre-de-la-esquina-rosada.webp
 ---
 
 Sinopsis:«Hombre de la esquina rosada» es un cuento de Jorge Luis Borges, publicado en 1935 dentro del libroHistoria universal de la infamia. Ambientado en los suburbios de Buenos Aires, el relato es narrado por un testigo anónimo que rememora una ominosa noche en un salón de baile del arrabal. Allí, la inesperada aparición de un forastero de actitud desafiante genera un ambiente de tensión entre los presentes y pone a prueba la reputación del temido Rosendo Juárez, apodado «el Pegador». En ese escenario de tangos, cuchillos y códigos de honor, se desata una historia de coraje, cobardía y misterio.

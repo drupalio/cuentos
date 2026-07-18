@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-el-ahogado-mas-hermoso-del-mundo/3278/
 
+
+**Imagen:** 0278-el-ahogado-más-hermoso-del-mundo.webp
 ---
 
 Sinopsis: «El ahogado más hermoso del mundo» es un cuento de Gabriel García Márquez, publicado en 1972 en la recopilaciónLa increíble y triste historia de la cándida Eréndira y de su abuela desalmada. La historia comienza cuando unos niños descubren un cuerpo varado en la playa de un pequeño pueblo costero. Al llevarlo al interior, los habitantes quedan asombrados por su descomunal tamaño y presencia imponente. Mientras las mujeres lo limpian y lo preparan, imaginan quién fue en vida y qué significó su existencia. A partir de este hallazgo, el pueblo empieza a transformarse interiormente, tocado por la misteriosa grandeza del ahogado.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-el-hombre-del-piso-de-arriba/16780/
 
+
+**Imagen:** 0123-el-hombre-del-piso-de-arriba.webp
 ---
 
 Sinopsis: «El hombre del piso de arriba» (The Man Upstairs) es un inquietante cuento de Ray Bradbury, publicado en marzo de 1947 enHarper’s Magazine. La historia sigue a Douglas, un niño curioso que vive con su abuela, una mujer habilidosa en la cocina cuyos rituales culinarios lo fascinan. Un día, un extraño llamado señor Koberman llega a la pensión para alquilar la habitación del piso de arriba. Desde su llegada, la atmósfera de la casa se vuelve incómoda y misteriosa. Intrigado por el comportamiento del nuevo inquilino, Douglas empieza a sospechar que hay algo muy inusual en él, algo que desafía toda lógica.

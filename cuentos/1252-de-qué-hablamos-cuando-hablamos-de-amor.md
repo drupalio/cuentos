@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/raymond-carver-de-que-hablamos-cuando-hablamos-de-amor/2694/
 
+
+**Imagen:** 1252-de-qué-hablamos-cuando-hablamos-de-amor.jpg
 ---
 
 Estaba hablando mi amigo Mel McGinnis. Mel McGinnis es cardiólogo, y eso le da a veces derecho a hacerlo.

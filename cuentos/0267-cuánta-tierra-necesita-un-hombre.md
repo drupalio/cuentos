@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/lev-tolstoi-cuanta-tierra-necesita-un-hombre/6208/
 
+
+**Imagen:** 0267-cuánta-tierra-necesita-un-hombre.jpg
 ---
 
 Sinopsis: «¿Cuánta tierra necesita un hombre?», es un cuento de Lev Tolstói, publicado en abril de 1886 en la revistaRusskoe bogatstvo. La historia sigue a Pajom, un campesino ruso que, insatisfecho con sus posesiones, se embarca en una búsqueda insaciable por adquirir más tierras. El diablo, siempre atento a aprovecharse de los deseos humanos, decide satisfacerlo y darle toda la tierra que Pajom cree necesitar.Considerado por James Joyce como el mejor cuento jamás escrito, en él Tolstói examina la esencia de la codicia y cómo esta puede cegar a los individuos.

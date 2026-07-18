@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/rodolfo-walsh-esa-mujer/1088/
 
+
+**Imagen:** 1219-esa-mujer.jpg
 ---
 
 Usando como antecedente el misterioso caso del secuestro del cadáver embalsamado de Eva Perón a manos de la dictadura argentina, Rodolfo Walsh construye un relato lleno de tensión, donde un periodista entrevista a uno de los principales responsables del robo del cuerpo, de quien intenta obtener la confesión sobre su paradero. En la obra Walsh aplica con maestría la técnica del “iceberg” desarrollada por Hemingway, y con ella elabora una narración donde obliga al lector a convertirse en coautor, para llenar los silencios y espacios vacíos que tiene la historia. En el cuento, tan importante como lo que está escrito, es lo que se insinúa. “Esa mujer” es una narración que transita entre la realidad de una entrevista periodística y la ficción de un relato policial, todo ello envuelto en una atmósfera de violenta tensión e intriga.

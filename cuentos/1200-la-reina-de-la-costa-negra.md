@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-e-howard-la-reina-de-la-costa-negra/16100/
 
+
+**Imagen:** 1200-la-reina-de-la-costa-negra.webp
 ---
 
 «La reina de la Costa Negra» es un relato clásico de espada y brujería escrito por Robert E. Howard, publicado enWeird Talesen mayo de 1934. La historia sigue las peripecias de Conan el Bárbaro, quien, tras escapar del puerto de Argos, se une a una temida banda de piratas liderada por la fascinante y letal Belit, conocida como la «reina de la Costa Negra». Juntos, dominan los mares y forman una pareja poderosa e imparable. En busca de fabulosos tesoros, Belit decide aventurarse en un antiguo y misterioso reino, pero pronto ambos se enfrentarán a horrores más allá de lo imaginable. Este relato es uno de los más destacados del ciclo de Conan, donde Howard combina magistralmente acción, romance y terror sobrenatural en igual medida.

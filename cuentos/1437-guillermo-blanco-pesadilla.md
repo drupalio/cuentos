@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guillermo-blanco-pesadilla/752/
 
+
+**Imagen:** 1437-guillermo-blanco-pesadilla.jpg
 ---
 
 ¡TACATAC, tacatac, tacatac!… Aquí estaban de nuevo los caballos. Se iban metiendo a la pieza por la mancha negra del ropero, eran negros, con sus jinetes negros, y se hinchaban prodigiosamente, como pompas de jabón. Pasaban por sobre su cabeza, rechinaban contra los muros; sus herraduras iban golpeando con ruido de metal sobre el aire, que era duro: una especie de vidrio. Las crines flameaban, las capas de los jinetes se movían semejando alas, y sus bocas estaban abiertas en la actitud del grito, pero no gritaban. Todo ocurría en una especie de silencio terrible, un silencio que era fusión del tacatac ensordecedor y de la sombra, que se esfumaba y volvía a intervalos disparejos. Era pavoroso el golpeteo de las patas, y lo era también la quietud que le seguía, y ambos tenían algo de enloquecedor, formaban una armonía enervante en cuya garra el alma del niño se iba sintiendo cada vez más presa, cada vez más impotente, más débil, más despavorida.

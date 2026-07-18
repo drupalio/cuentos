@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ines-arredondo-la-senal/24064/
 
+
+**Imagen:** 0775-la-señal.webp
 ---
 
 Sinopsis: «La señal» es un cuento de la escritora mexicana Inés Arredondo, publicado en 1965 en el libro del mismo nombre. En una tarde sofocante, Pedro busca refugio del sol en una iglesia solitaria. Envuelto por el silencio y la frescura del templo, entra en un estado de calma interior. La irrupción de un desconocido con una petición insólita rompe esa quietud y desencadena una escena desconcertante, cargada de tensión y simbolismo. Lo que parecía un momento de recogimiento se convierte en una experiencia íntima e irrepetible, que lo marcará para siempre.

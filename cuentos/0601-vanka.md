@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-vanka/4587/
 
+
+**Imagen:** 0601-vanka.webp
 ---
 
 Sinopsis:«Vanka» (Ванька) es un conmovedor relato de Antón Chéjov publicado en 1886 en la Gaceta de San Petersburgo. Narra la historia de Vanka Zhukov, un niño de nueve años que trabaja como aprendiz en la casa de un zapatero y vive en condiciones miserables. La víspera de Navidad, aprovechando la ausencia de sus amos, Vanka decide escribirle una carta a su abuelo Konstantín Makárich para pedirle que lo rescate de su vida de sufrimientos y maltratos. En la carta, Vanka describe su vida diaria llena de abusos, hambre y soledad, y expresa su anhelo de volver a la aldea para estar con su abuelo.

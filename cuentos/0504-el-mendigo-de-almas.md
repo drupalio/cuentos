@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/giovanni-papini-el-mendigo-de-almas/5279/
 
+
+**Imagen:** 0504-el-mendigo-de-almas.webp
 ---
 
 Sinopsis:«El mendigo de almas» (Il mendicante di anime), cuento del escritor italiano Giovanni Papini, publicado enIl tragico quotidianoen 1906, narra la experiencia de un escritor desesperado por encontrar inspiración. Tras horas infructuosas, decide buscar en las calles a un hombre ordinario que le confíe su vida para convertirla en un relato. Este peculiar «mendigo» de historias aborda a los transeúntes, buscando en sus biografías la chispa que le falta. En su búsqueda, la monotonía y simplicidad de lo cotidiano chocan con su necesidad de trascendencia, planteando reflexiones sobre el sentido de la existencia y el valor de las vidas comunes.

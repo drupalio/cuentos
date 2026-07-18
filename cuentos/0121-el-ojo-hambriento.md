@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-el-ojo-hambriento/21671/
 
+
+**Imagen:** 0121-el-ojo-hambriento.webp
 ---
 
 Sinopsis: «El ojo hambriento» (The Hungry Eye) es un cuento de Robert Bloch publicado en mayo de 1959 en la revistaFantastic. La historia comienza en las calles de Chicago, cuando un hombre llamado Dave Larson se encuentra por azar con su hermano George, al que no veía desde hacía años. Al intentar hablar con él, George huye aterrorizado. Poco después, Dave descubre que su hermano está vinculado a un asesinato relacionado con una antigua colección de arte. A medida que avanza la narración, el protagonista se ve arrastrado a una espiral de horror ancestral ligada a una joya de origen incierto, cuya presencia despierta impulsos violentos y revela verdades que desafían toda lógica.

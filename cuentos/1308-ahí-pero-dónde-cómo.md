@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-ahi-pero-donde-como/5623/
 
+
+**Imagen:** 1308-ahí-pero-dónde-cómo.jpg
 ---
 
 Un cuadro de René Magritte representa una pipaque ocupa el centro de la tela. Al pie de la pintura sutítulo:Esto no es una pipa.A Paco, que gustaba de mis relatos.(Dedicatoria de Bestiario, 1951)

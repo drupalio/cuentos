@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ryunosuke-akutagawa-rashomon/730/
 
+
+**Imagen:** 0066-rashômon.jpg
 ---
 
 Sinopsis: «Rashômon» (羅生門) es un cuento del escritor japonés Ryunosuke Akutagawa, publicado en 1915 enTeikoku Bungaku. Un sirviente desempleado se cobija bajo la puerta Rashômon en un Kyoto devastado por las calamidades. Mientras espera que cese la lluvia, se enfrenta a una crisis existencial sobre su futuro incierto. Al buscar refugio en el edificio, se encuentra con una anciana que realiza un acto siniestro. Este encuentro lo lleva a una reflexión sobre la moralidad y la supervivencia, planteando preguntas sobre qué es correcto hacer cuando la desesperación y la necesidad de sobrevivir se imponen.

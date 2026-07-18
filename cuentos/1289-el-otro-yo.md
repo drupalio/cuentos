@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-el-otro-yo/6344/
 
+
+**Imagen:** 1289-el-otro-yo.jpg
 ---
 
 Se trataba de un muchacho corriente: en los pantalones se le formaban rodilleras, leía historietas, hacía ruido cuando comía, se metía los dedos a la nariz, roncaba en la siesta, se llamaba Armando. Corriente en todo menos en una cosa: tenía Otro Yo.

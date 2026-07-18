@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-martina/23924/
 
+
+**Imagen:** 0795-martina.webp
 ---
 
 Sinopsis: «Martina» es un cuento de Emilia Pardo Bazán publicado en 1898 en el libroCuentos de amor. Martina es una joven hermosa, inteligente y alegre, criada en un hogar lleno de afecto. Aunque despierta admiración en todos los círculos sociales de Marineda, su corazón permanece intacto, esperando un amor que esté a la altura de sus ilusiones. La llegada del capitán Lorenzo Mendoza, con su aire distinguido y su misteriosa melancolía, despierta en Martina una pasión profunda. Mientras florece el romance, la ciudad comienza a murmurar sobre el pasado del forastero, sin que Martina sospeche las consecuencias de esos rumores.

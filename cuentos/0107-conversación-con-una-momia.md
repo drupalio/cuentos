@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-conversacion-con-una-momia/28037/
 
+
+**Imagen:** 0107-conversación-con-una-momia.webp
 ---
 
 Sinopsis:«Conversación con una momia» (Some Words with a Mummy) es un cuento del escritor estadounidenseEdgar Allan Poe, publicado en abril de 1845 en la revistaAmerican Review. En el hogar del doctor Ponnonner, un grupo de personas se reúne para presenciar el examen de una momia egipcia que durante años ha permanecido intacta en un museo. Tras abrir sus sucesivos ataúdes, los asistentes descubren que el cuerpo está excepcionalmente bien conservado y que no presenta las habituales incisiones practicadas durante el embalsamamiento. Fascinados por el hallazgo, deciden someter el cadáver a la acción de una pila voltaica, lo que desencadena una inesperada reacción en la momia.

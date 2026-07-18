@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-de-como-natanael-hace-una-visita/3662/
 
+
+**Imagen:** 0142-de-cómo-natanael-hace-una-visita.webp
 ---
 
 Sinopsis:«De cómo Natanael hace una visita»es un cuento corto de Gabriel García Márquez, publicado el 6 de mayo de 1950 enCrónicay más tarde incluido en la colecciónOjos de perro azul(1974). Natanael, un hombre común atrapado en la monotonía de la existencia, interrumpe su trayecto habitual al detenerse en una esquina: un hecho aparentemente insignificante capta su atención y lo impulsa a cambiar de rumbo. A partir de entonces, y tras un peculiar encuentro con un lustrabotas, se encamina —casi sin proponérselo— hacia una casa desconocida donde lo espera una mujer misteriosa, cuya sola presencia parece tener el poder de alterar su destino.

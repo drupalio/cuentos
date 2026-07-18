@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-el-aprendiz-de-brujo/14701/
 
+
+**Imagen:** 0606-el-aprendiz-de-brujo.jpg
 ---
 
 Sinopsis:«El aprendiz de brujo» (The Sorcerer’s Apprentice) es un cuento deRobert Blochpublicado en enero de 1949 en la revistaWeird Tales. Narra la historia de Hugo, un joven marginado que huye del orfanato y encuentra refugio con Sadini, un mago itinerante. Hugo admira los trucos de Sadini, pero pronto descubre que no son simples ilusiones. Isobel, la esposa de Sadini, persuade a Hugo de que Sadini ha vendido su alma al diablo y que sus poderes son reales. Deslumbrado por la belleza de Isobel, Hugo se deja convencer de que debe hacer algo para apoderarse del poder de Sadini y así liberarla de la maligna influencia de su esposo.

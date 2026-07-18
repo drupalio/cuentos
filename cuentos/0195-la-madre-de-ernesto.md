@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/abelardo-castillo-la-madre-ernesto/523/
 
+
+**Imagen:** 0195-la-madre-de-ernesto.jpg
 ---
 
 Sinopsis: «La madre de Ernesto» es un cuento deAbelardo Castillo, publicado en 1961 en el libroLas otras puertas. Relata la historia de tres adolescentes cuyas vidas se ven perturbadas por la noticia de que una nueva mujer ha comenzado a trabajar en El Alabama, una estación de servicio que por las noches funciona como club nocturno. Lo que inquieta a los jóvenes es el rumor de que esta mujer podría ser la madre de Ernesto, un antiguo amigo de la infancia. Movidos por la curiosidad y el morbo, deciden visitarla una noche para confirmar su identidad.

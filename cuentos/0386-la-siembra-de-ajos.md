@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arturo-uslar-pietri-la-siembra-de-ajos/26481/
 
+
+**Imagen:** 0386-la-siembra-de-ajos.webp
 ---
 
 Sinopsis:«La siembra de ajos» es un cuento del escritor venezolano Arturo Uslar Pietri, publicado en 1936 en el libroRed. Tras varios días de camino, un joven campesino llega a un pequeño pueblo para cumplir una promesa hecha a la Virgen por la recuperación de su madre enferma. Sin dinero para regresar a su hogar, consigue trabajo como peón en una plantación. Allí, mientras labora bajo el sol, el penetrante y embriagador olor de la siembra de ajos despierta en él un deseo intenso y obsesivo por la hija del patrón.

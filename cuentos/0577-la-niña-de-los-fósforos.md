@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hans-christian-andersen-la-muchachita-de-los-fosforos/6588/
 
+
+**Imagen:** 0577-la-niña-de-los-fósforos.webp
 ---
 
 Sinopsis:«La niña de los fósforos» (Den Lille Pige med Svovlstikkerne), es un emotivo relato de Hans Christian Andersen publicado en diciembre de 1845. Ambientado en una gélida noche de fin de año, la historia sigue a una pequeña niña pobre y descalza que intenta vender fósforos en las calles de una ciudad. Ignorada por los transeúntes y temerosa de volver a casa sin haber vendido nada, busca refugio en un rincón. Allí, para calentarse, enciende los fósforos uno a uno, encontrando en las llamas breves momentos de consuelo, ilusión y cálidas visiones. Un cuento conmovedor que explora la inocencia y la esperanza en medio de la adversidad.

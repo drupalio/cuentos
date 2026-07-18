@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mary-shelley-la-prueba-amor/846/
 
+
+**Imagen:** 1167-la-prueba-de-amor.jpg
 ---
 
 Sinopsis: «La prueba de amor», cuento de Mary Shelley publicado en 1834, narra la historia de Angeline, una joven huérfana que vive en un convento y mantiene un amor secreto con Ippolito, un joven aristócrata. A instancias del padre de Ippolito, ambos se someten a una prueba de un año de separación sin comunicarse, para demostrar la constancia de sus sentimientos. La llegada de Faustina, una amiga de la infancia de Angeline, pone a prueba su lealtad y el destino de su amor.

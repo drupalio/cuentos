@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/katherine-mansfield-veneno/4249/
 
+
+**Imagen:** 0702-veneno.webp
 ---
 
 Sinopsis: «Veneno» (Poison) es un cuento de Katherine Mansfield, publicado en 1924 en la colecciónSomething Childish and Other Stories. La historia se centra en una pareja que habita una casa en el sur de Francia: ella, que ha tenido dos maridos, se mueve con soltura y ocupa todo el espacio; él, más joven, vive atrapado en un amor intenso. La mañana es cálida, luminosa. Conversan sobre asuntos triviales, mientras ella muestra una leve impaciencia por el retraso del cartero. Todo parece en calma, sin embargo, una sombra de inquietud comienza a insinuarse.

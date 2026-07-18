@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/rosario-castellanos-la-tregua/11993/
 
+
+**Imagen:** 1229-la-tregua.jpg
 ---
 
 En «La Tregua», cuento de Rosario Castellanos, Rominka, una mujer indígena, se encuentra inesperadamente con un extraño caxlán (no indígena) en su camino. Este encuentro despierta temores ancestrales en su comunidad, vinculando al hombre con el pukuj, un espíritu maléfico. La historia explora las tensiones culturales y las supersticiones locales, culminando en un acto de violencia colectiva contra el extraño, visto como una amenaza sobrenatural. A medida que la historia se desarrolla, se revela un trasfondo de tensiones culturales, creencias ancestrales y la brutalidad de las autoridades locales contra las prácticas clandestinas de la comunidad.

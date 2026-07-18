@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-los-guantes-de-goma/3914/
 
+
+**Imagen:** 0934-los-guantes-de-goma.webp
 ---
 
 Sinopsis: «Los guantes de goma» es un cuento del escritor uruguayo Horacio Quiroga, publicado el 27 de marzo de 1909 en la revistaCaras y Caretas. Todo comienza cuando un hombre se pone gravemente enfermo en una residencia familiar, lo que provoca el nerviosismo de las jóvenes que viven allí. Cuando se confirma que se trata de un caso de viruela, el temor al contagio se extiende entre los habitantes del hogar. Una de las hermanas, Desdémona, especialmente impresionable, desarrolla una obsesión creciente con la higiene, convencida de que los microbios la acechan. Su inquietud pronto se convierte en una manía que la lleva a adoptar comportamientos cada vez más extremos.

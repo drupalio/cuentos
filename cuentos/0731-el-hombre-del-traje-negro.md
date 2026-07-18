@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stephen-king-el-hombre-del-traje-negro/18131/
 
+
+**Imagen:** 0731-el-hombre-del-traje-negro.webp
 ---
 
 Sinopsis: «El hombre del traje negro» (The Man in the Black Suit) es un perturbador cuento de terror sobrenatural de Stephen King, publicado enThe New Yorkeren octubre de 1994 y ganador delWorld Fantasy Awarden 1995. Ambientado en el verano de 1914, narra la escalofriante experiencia de Gary, un niño de nueve años que, mientras pesca en el río Castle, se encuentra con un misterioso hombre vestido de negro. Convencido de que se trata del demonio, Gary queda paralizado por el miedo, incapaz de escapar. El hombre se acerca y le revela una noticia tan devastadora que amenaza con quebrar la cordura del niño.

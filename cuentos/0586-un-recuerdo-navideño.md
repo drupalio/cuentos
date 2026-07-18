@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/truman-capote-recuerdo-navideno/1223/
 
+
+**Imagen:** 0586-un-recuerdo-navideño.webp
 ---
 
 Sinopsis:«Un recuerdo navideño» (A Christmas Memory) es un conmovedor cuento de Truman Capote, publicado enMademoiselleen diciembre de 1956. En un nostálgico otoño del sur de Estados Unidos, un niño de siete años y su peculiar y cariñosa prima se aprontan a cumplir la tradición anual de preparar tartas de frutas para regalar en Navidad. Hermanados por una entrañable amistad, recorren los alrededores recogiendo frutos y visitando singulares rincones del pueblo para reunir los ingredientes necesarios. Para ellos, la Navidad no es un evento social más, sino un ritual íntimo que celebra la ternura, la imaginación y los lazos del corazón.

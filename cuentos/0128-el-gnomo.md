@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gustavo-adolfo-becquer-el-gnomo/27964/
 
+
+**Imagen:** 0128-el-gnomo.webp
 ---
 
 Sinopsis:«El gnomo» es una leyenda aragonesa del escritor españolGustavo Adolfo Bécquer, publicada el 12 de enero de 1863 enLa América. En un pueblo a los pies del Moncayo, en el pórtico de una iglesia, el tío Gregorio advierte a las muchachas que regresan de buscar agua sobre los peligros de demorarse en la fuente al caer la noche, pues, según cuenta, en las entrañas de la montaña viven espíritus diabólicos que custodian tesoros ocultos y seducen a los incautos con promesas de riqueza. Entre quienes escuchan la historia se encuentran Marta y Magdalena, dos hermanas huérfanas de caracteres opuestos que, sin confesárselo, aman al mismo hombre y sueñan con escapar de la miseria.

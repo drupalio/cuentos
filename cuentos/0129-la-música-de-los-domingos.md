@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/liliana-heker-la-musica-de-los-domingos/8371/
 
+
+**Imagen:** 0129-la-música-de-los-domingos.webp
 ---
 
 Sinopsis:«La música de los domingos» es un conmovedor cuento de Liliana Heker, publicado en la colecciónCuentos de fútbol argentino(2011). Una familia se reúne cada fin de semana para acompañar y alegrar al abuelo, un hombre melancólico y apasionado por el fútbol que vive en un hogar de ancianos. Domingo tras domingo, lo complacen con música tangos y emisiones de partidos, pero el hombre insiste en que falta algo que él llama: «la música de los domingos». Esta misteriosa nostalgia intriga a la familia, especialmente a dos hermanos, que intentan descubrir su significado.

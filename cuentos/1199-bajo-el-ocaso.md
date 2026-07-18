@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bram-stoker-bajo-el-ocaso/15874/
 
+
+**Imagen:** 1199-bajo-el-ocaso.webp
 ---
 
 «Bajo el ocaso» (Under the Sunset) es un cuento alegórico deBram Stokerincluido en la colección de cuentos para niños del mismo nombre publicada en 1881. La historia describe un país mágico más allá del horizonte, visible solo en sueños. Este reino idílico, similar al nuestro, pero más perfecto, vive en armonía hasta que el pecado lo altera. Cuando los hijos de la Muerte, liderados por el temible Skooro, amenazan con invadir este paraíso, se revela un plan divino ideado para volver a traer la bondad al mundo.

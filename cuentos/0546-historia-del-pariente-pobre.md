@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/charles-dickens-historia-del-pariente-pobre/25564/
 
+
+**Imagen:** 0546-historia-del-pariente-pobre.webp
 ---
 
 Sinopsis:«Historia del pariente pobre» (The Poor Relation’s Story) es un cuento de Charles Dickens, publicado el 25 de diciembre de 1852 en la revistaHousehold Words. Durante una reunión familiar, Michael, un hombre humilde y discreto, es obligado a iniciar la ronda de relatos navideños. Con tono reflexivo, comienza su narración exponiendo la imagen que su familia tiene de él: un pariente fracasado, solitario y sin fortuna, condenado a una vida gris y rutinaria, cuyo principal enemigo es él mismo. Sin embargo, afirma que detrás de esa apariencia aceptada por todos se oculta una historia muy distinta de la que los demás creen conocer.

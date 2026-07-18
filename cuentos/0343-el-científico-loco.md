@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-el-cientifico-loco/26555/
 
+
+**Imagen:** 0343-el-científico-loco.webp
 ---
 
 Sinopsis:«El científico loco» (The Mad Scientist) es un cuento de Isaac Asimov, publicado en julio de 1989 en la revistaAnalog Science Fiction and Facty luego recogido en el libroMagic: The Final Fantasy Collection(1996). George, un sujeto locuaz y oportunista, interrumpe el trabajo de su amigo escritor aprovechando que la esposa de este no está en casa. Durante el encuentro le narra la historia de Martinus Augustus Dander, un físico amargado y excéntrico que asegura haber descubierto una teoría revolucionaria capaz de obtener energía ilimitada del vacío. Sin embargo, su falta de prestigio académico hace que sus artículos sean rechazados una y otra vez. Para ayudarlo, George decide recurrir a Azazel, un diminuto ser extraterrestre con poderes más allá de las capacidades humanas.

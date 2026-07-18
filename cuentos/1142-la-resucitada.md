@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-la-resucitada/19970/
 
+
+**Imagen:** 1142-la-resucitada.webp
 ---
 
 Sinopsis: «La resucitada» es un cuento de Emilia Pardo Bazán, publicado enEl Imparcialel 29 de junio de 1908. Narra la historia de Dorotea de Guevara, quien recobra la conciencia en pleno velatorio, rodeada de cirios y de la penumbra de una iglesia cerrada. Sorprendida de seguir viva, decide escapar por una capilla familiar para regresar a su hogar, donde espera encontrar consuelo y alegría. Pero al llamar a la puerta, su regreso no es acogido como esperaba.

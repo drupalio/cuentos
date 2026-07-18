@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/silvina-ocampo-el-verdugo/28258/
 
+
+**Imagen:** 0061-el-verdugo.webp
 ---
 
 Sinopsis:«El verdugo» es un cuento de la escritora argentina Silvina Ocampo, publicado en 1959 en el libroLa furia. Con la llegada de la primavera, un Emperador convoca a sus súbditos en una plaza pública para celebrar el día de los festivales. A la fiesta patriótica llega acompañado por sus ministros y por un técnico que lleva un misterioso cofre de madera con incrustaciones de oro. Ante la expectación del pueblo, el soberano sube a un pedestal para dar inicio a un insólito espectáculo en el que espera hacer muestra de su poder. Sin embargo, la ceremonia no se desarrolla como estaba planeada.

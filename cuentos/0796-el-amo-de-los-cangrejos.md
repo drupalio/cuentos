@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/clark-ashton-smith-el-amo-de-los-cangrejos/15700/
 
+
+**Imagen:** 0796-el-amo-de-los-cangrejos.webp
 ---
 
 Sinopsis: «El amo de los cangrejos», es un cuento de Clark Ashton Smith publicado en la revistaWeird Talesen 1948. En las sombrías costas de Zothique, un aprendiz es arrastrado por su maestro, el hechicero Mior Lumivix, en una carrera desesperada contra el temido Sarcand. Su objetivo: un tesoro oculto en la misteriosa Isla de Iribos. Mientras navegan hacia el oeste, enfrentan tempestades, calmas embrujadas y los horrores que acechan en las profundidades. En la isla, la traición, la magia antigua y las criaturas marinas se convierten en los protagonistas de una lucha por el poder y la supervivencia.

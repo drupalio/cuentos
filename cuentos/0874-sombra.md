@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-sombra/23005/
 
+
+**Imagen:** 0874-sombra.webp
 ---
 
 Sinopsis:«Sombra»(Shadow: A Fable) es un cuento breve del escritor estadounidenseEdgar Allan Poe, publicado en septiembre de 1835 enThe Southern Literary Messengery más tarde incluido enTales of the Grotesque and Arabesque(1840). Ambientado en la ciudad ficticia de Ptolemáis durante una peste devastadora, el relato comienza con un grupo de siete hombres encerrados en una habitación sombría, bebiendo vino junto al cadáver reciente de un amigo. Mientras intentan ignorar el horror exterior, una sombra inexplicable surge entre las colgaduras de la sala, interrumpiendo su forzado regocijo con una presencia que parece hablar desde un lugar más allá del tiempo.

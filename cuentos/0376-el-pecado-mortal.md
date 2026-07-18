@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/silvina-ocampo-el-pecado-mortal/4867/
 
+
+**Imagen:** 0376-el-pecado-mortal.jpg
 ---
 
 Sinopsis: «El pecado mortal», cuento de la escritora argentina Silvina Ocampo, publicado en 1961 en la colecciónLas invitadas, es un crudo y perturbador relato sobre la infancia, la culpa y la corrupción de la inocencia. Narra la historia de una niña criada en un entorno de estricta religiosidad, donde la pureza se erige como un ideal inalcanzable. En el umbral de su primera comunión, la protagonista se ve inmersa en un acontecimiento traumático en el seno de su hogar, que ella, en su inocencia, interpreta como un pecado inconfesable que la atormenta.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/giambattista-basile-sol-luna-y-talia/28462/
 
+
+**Imagen:** 0004-sol-luna-y-talía.webp
 ---
 
 Sinopsis:«Sol, Luna y Talía» (Sole, Luna e Talia) es un cuento del escritor italiano Giambattista Basile, publicado en 1636 enLo cunto de li cunti(Il Pentamerone). Al nacer Talía, unos sabios predicen que una astilla de lino pondrá su vida en peligro. Su padre prohíbe entonces cualquier objeto relacionado con el hilado, pero, años después, la curiosidad de la joven hace que la profecía se cumpla. Convencido de que ha muerto, el padre la abandona en un palacio campestre. Tiempo más tarde, un rey que persigue a uno de sus halcones entra en la residencia y encuentra a Talía sola y sumida en un sueño del que nadie logra despertarla.

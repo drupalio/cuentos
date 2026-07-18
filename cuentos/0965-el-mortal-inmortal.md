@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mary-shelley-el-mortal-inmortal/2350/
 
+
+**Imagen:** 0965-el-mortal-inmortal.jpg
 ---
 
 Sinopsis:«El mortal inmortal»(The Mortal Immortal) es un cuento de Mary Shelley, publicado en diciembre de 1833 enThe Keepsake. Narra la historia de Winzy, un joven aprendiz del alquimista Cornelius Agrippa, enamorado de Bertha, una mujer orgullosa y caprichosa. Movido por el dolor y la desesperación, Winzy bebe por error una misteriosa pócima que, según su maestro, otorga el don de la vida eterna. A partir de entonces, comienza a experimentar inquietantes transformaciones, mientras se pregunta si la inmortalidad es una bendición o una condena.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-juan-darien/13423/
 
+
+**Imagen:** 1029-juan-darién.jpg
 ---
 
 Sinopsis: «Juan Darién» es un cuento de Horacio Quiroga, publicado enLa Naciónel 25 de abril de 1920, y más tarde recopilado enEl desierto(1924). Narra la historia de un tigre recién nacido que, tras perder a su madre, es acogido por una mujer que ha perdido a su hijo y decide criarlo como si fuera suyo. Gracias a la intervención de una serpiente mágica, el animal adquiere forma humana y crece hasta convertirse en un niño llamado Juan Darién. Aunque es bondadoso y estudioso, su origen lo vuelve blanco de prejuicios y sospechas en la comunidad, que no está dispuesta a aceptar lo que no comprende.

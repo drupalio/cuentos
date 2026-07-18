@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/adela-fernandez-cordelias/24659/
 
+
+**Imagen:** 0374-cordelias.webp
 ---
 
 Sinopsis: «Cordelias» es un cuento de Adela Fernández publicado en 1986 en el libroDuermevelas. Narra la llegada de una niña a una aldea remota, donde una mujer bondadosa decide acogerla como a una hija. El origen enigmático de la pequeña despierta la curiosidad y la inquietud entre los habitantes del pueblo, divididos entre la compasión, el asombro y la superstición. Pronto, ciertos sucesos inexplicables parecen dar forma a los temores que algunos vecinos ya intuían.

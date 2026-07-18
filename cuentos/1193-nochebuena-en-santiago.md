@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/manuel-rojas-nochebuena-en-santiago/6677/
 
+
+**Imagen:** 1193-nochebuena-en-santiago.webp
 ---
 
 «Nochebuena en Santiago» es un cuento de Manuel Rojas, publicado por primera vez en 2019 dentro de una edición de susCuentos completos. La historia sigue a Augusto, un guatemalteco que, tras desempeñarse como secretario en la embajada de su país en Bolivia, termina estableciéndose en Chile. Durante la noche de Navidad, mientras deambula por las calles de Santiago, Augusto se ve envuelto en una experiencia absurda y surrealista que lo lleva a cuestionar las ideas de fraternidad y solidaridad que suelen asociarse con el espíritu navideño.

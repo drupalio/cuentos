@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/boris-vian-el-lobo-hombre/2051/
 
+
+**Imagen:** 0078-el-lobo-hombre.webp
 ---
 
 Sinopsis: «El lobo-hombre» (Le Loup-garou), cuento de Boris Vian publicado en 1970, narra la peculiar vida de Denis, un lobo civilizado que disfruta de la mecánica y vive discretamente en un bosque cerca de París. Una noche, tras un inesperado encuentro con el Mago del Siam y su acompañante, Denis es mordido y se transforma en humano. Decidido a aprovechar su nueva apariencia Denis inicia una serie de aventuras en la ciudad, que lo llevarán a saborear la experiencia de ser persona.

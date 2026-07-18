@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/patricia-highsmith-la-perfecta-senorita/2479/
 
+
+**Imagen:** 1127-la-perfecta-señorita.webp
 ---
 
 Sinopsis:La perfecta señorita(The Perfect Little Lady) es un cuento de Patricia Highsmith, publicado en 1975 en la colecciónKleine Geschichtgen für Weiberfeinde. Narra la vida de Theodora, una niña que desde su nacimiento es considerada un modelo de perfección. Siempre impecable, educada y encantadora, parece encarnar la elegancia y los buenos modales. Sin embargo, su naturaleza reservada la mantiene apartada de los demás niños, quienes la ven con recelo. Mientras los otros juegan y se divierten, Theodora traza su propio camino en un mundo que no siempre la acepta.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-jose-arreola-la-jirafa/10447/
 
+
+**Imagen:** 1237-la-jirafa.jpg
 ---
 
 En «La jirafa» Juan José Arreola dibuja una metáfora poética sobre la aspiración y las limitaciones humanas. El relato comienza con una intervención divina en que Dios alarga el cuello de la jirafa para alcanzar frutos inaccesibles. A través de esta transformación, Arreola simboliza la constante búsqueda de lo inalcanzable. Sin embargo, también muestra cómo, a pesar de nuestras aspiraciones, seguimos vinculados a nuestras necesidades y realidades terrenales.

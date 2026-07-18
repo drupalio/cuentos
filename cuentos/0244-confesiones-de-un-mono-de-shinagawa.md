@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/haruki-murakami-confesiones-de-un-mono-de-shinagawa/23675/
 
+
+**Imagen:** 0244-confesiones-de-un-mono-de-shinagawa.webp
 ---
 
 Sinopsis: «Confesiones de un mono de Shinagawa» (Shinagawa Saru no Kokuhaku) es un cuento de Haruki Murakami, publicado en febrero de 2020 en la revistaBungakukaiy luego incluido en el libroIchininshō Tansū(2020). Durante un viaje solitario por la prefectura de Gunma, un hombre se aloja en un modesto hostal de aguas termales. Allí, mientras toma un baño, aparece un insólito compañero: un viejo mono que trabaja en el lugar y habla como un humano. Sorprendido, el hombre inicia una conversación con el extraño personaje, que poco a poco comienza a revelar su singular historia.

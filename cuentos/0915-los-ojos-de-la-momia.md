@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-los-ojos-de-la-momia/14919/
 
+
+**Imagen:** 0915-los-ojos-de-la-momia.jpg
 ---
 
 Sinopsis: «Los ojos de la momia» (The Eyes of the Mummy), cuento de Robert Bloch publicado enWeird Talesen abril de 1938, narra la historia de un hombre fascinado por el antiguo Egipto que se embarca en una expedición secreta con un arqueólogo para saquear la tumba de un sacerdote del dios Sobek. Tras descubrir la momia, se enfrentan a unas misteriosas gemas que ocupan el lugar de los ojos del cadáver. Estas joyas poseen propiedades hipnóticas y sobrenaturales relacionadas con antiguas creencias egipcias sobre la resurrección. Lo que comienza como una simple búsqueda de tesoros se convierte en una aterradora experiencia que desafía la comprensión del protagonista y lo enfrenta a fuerzas oscuras más allá de su entendimiento, poniendo en peligro su cordura y su propia existencia.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/louisa-may-alcott-perdidos-en-una-piramide-o-la-maldicion-de-la-momia/23100/
 
+
+**Imagen:** 0914-perdidos-en-una-pirámide-o-la-maldición-de-la-momia.webp
 ---
 
 Sinopsis:«Perdidos en una pirámide, o la maldición de la momia» (Lost in a Pyramid, or the Mummy’s Curse) es un cuento de Louisa May Alcott, publicado el 16 de enero de 1869 en la revistaThe New World. En una tarde tranquila, Paul Forsyth le cuenta a su prometida una inquietante vivencia ocurrida durante un viaje a Egipto, cuando quedó atrapado con un profesor entre los pasadizos de una pirámide. Allí encontraron el cuerpo momificado de una antigua hechicera y una caja de oro con unas misteriosas semillas dentro, presagio de una terrible maldición.

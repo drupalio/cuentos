@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/marguerite-yourcenar-cuento-azul/1108/
 
+
+**Imagen:** 1419-marguerite-yourcenar-cuento-azul.jpg
 ---
 
 Los mercaderes procedentes de Europa estaban sentados en el puente, de cara a la mar azul, en la sombra color índigo de las velas remendadas de retazos grises. El sol cambiaba constantemente de lugar entre los cordajes y, con el balanceo del barco, parecía estar saltando como una pelota que rebotara por encima de una red de mallas muy abiertas. El navío tenía que virar continuamente para evitar los escollos; el piloto, atento a la maniobra, se acariciaba el mentón azulado.

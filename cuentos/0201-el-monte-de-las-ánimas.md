@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gustavo-adolfo-becquer-el-monte-de-las-animas/4433/
 
+
+**Imagen:** 0201-el-monte-de-las-ánimas.jpg
 ---
 
 Sinopsis: «El Monte de las Ánimas» es un relato deGustavo Adolfo Bécquerpublicado el 7 de noviembre de 1861 enEl Contemporáneo. Narra una leyenda que se sitúa en Soria durante la Noche de Difuntos. La trama sigue a dos primos, Alonso y Beatriz, quienes deben abandonar con cierta premura un monte que se cree maldito por los espíritus de templarios y caballeros allí fallecidos. A medida que cae la noche, Alonso cuenta a Beatriz la siniestra historia del monte, donde antiguas batallas dejaron un rastro de violencia y muerte que aún perdura. Escéptica ante el relato de su primo, Beatriz decide retarlo para que vuelva al monte a buscar una cinta que perdió durante el paseo.

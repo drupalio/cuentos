@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/pio-baroja-la-enamorada-del-talento/4107/
 
+
+**Imagen:** 1096-la-enamorada-del-talento.webp
 ---
 
 Sinopsis: «La enamorada del talento» es un cuento de Pío Baroja, publicado en 1900 dentro de la colecciónVidas sombrías. Narra la historia de Matilde, una joven bella y altiva que, más que riqueza o apariencia, anhela encontrar un hombre de genio, un talento excepcional que despierte su admiración. Su mundo cambia cuando conoce a un pintor andaluz de aire melancólico, en quien cree ver al ser excepcional que tanto anhela.

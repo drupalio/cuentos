@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/osamu-dazai-el-arbol-de-cerezo-y-el-silbido-magico/2170/
 
+
+**Imagen:** 0022-el-árbol-de-cerezo-y-el-silbido-mágico.webp
 ---
 
 Sinopsis: «El árbol de cerezo y el silbido mágico» (Hazakura to Mateki) es un cuento del escritor japonés Osamu Dazai, publicado en junio de 1939 en la revistaWakakusa. Narra la historia de una mujer que recuerda su juventud, cuando vivía con su padre y su hermana en una pequeña casa junto a un templo budista. Su hermana, dulce y frágil, iluminaba el hogar con su belleza y alegría, hasta que una enfermedad inesperada marcó su destino. Cuando la primavera trae el esplendor de los cerezos en flor, la protagonista enfrenta la angustia de la inevitable pérdida, mientras un misterioso e inexplicable evento sucede.

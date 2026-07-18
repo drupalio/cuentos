@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-continuidad-los-parques/377/
 
+
+**Imagen:** 0696-continuidad-de-los-parques.jpg
 ---
 
 Sinopsis: En «Continuidad de los parques», cuento corto deJulio Cortázarpublicado en 1956 en la colecciónFinal del Juego, un hombre retoma la lectura de una novela que había dejado por asuntos de negocios. En la tranquilidad de su estudio, se sumerge en la historia, disfrutando de cada detalle. La trama de la novela, que sigue a una pareja de amantes en un encuentro clandestino, lo absorbe por completo. Mientras la tarde avanza y el entorno del estudio se desvanece, la línea entre la realidad y la ficción se vuelve inquietantemente borrosa.

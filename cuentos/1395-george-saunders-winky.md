@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/george-saunders-winky/2389/
 
+
+**Imagen:** 1395-george-saunders-winky.jpg
 ---
 
 Ochenta personas con sombreros de papel fabricados en serie aguardaban en la penumbra de la sala de reuniones del Hyatt. Los Sombreros Blancos estaban Empezando a Empezar. Los Sombreros Rosa estaban Avanzando en el Empezar. Los Sombreros Verdes estaban Empezando con Mucha Decisión, camino de los Sombreros de Oro, que habían Dominado la Vida y formaban un grupo alrededor de la Mesa de los Canapés, susurrando, consultándose y dándose codazos cada vez que pasaba junto a ellos alguien con un sombrero inferior.

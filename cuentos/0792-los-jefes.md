@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-vargas-llosa-los-jefes/1065/
 
+
+**Imagen:** 0792-los-jefes.jpg
 ---
 
 Sinopsis: «Los jefes» es un cuento de Mario Vargas Llosa publicado en 1957 en elMercurio Peruano. Relata la insurrección de un grupo de estudiantes contra las imposiciones del director de su colegio, que amenaza con modificar el calendario de los exámenes finales, una medida que los alumnos consideran un ataque directo a su derecho a una preparación justa. A medida que el conflicto se intensifica, surge entre algunos estudiantes una intensa competencia por ver quién asumirá el liderazgo de sus compañeros en la defensa de sus derechos.

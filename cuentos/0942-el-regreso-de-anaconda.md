@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-regreso-de-anaconda/22781/
 
+
+**Imagen:** 0942-el-regreso-de-anaconda.webp
 ---
 
 Sinopsis: «El regreso de Anaconda» es un cuento del escritor uruguayo Horacio Quiroga, publicado el 1 de febrero de 1925 en el diarioLa Nacióne incluido luego en el libroLos desterrados(1926). La historia —continuación del cuento «Anaconda» de 1918—, se sitúa en la selva tropical, donde Anaconda, una poderosa serpiente, lidera una cruzada para recuperar su territorio ancestral, amenazado por la presencia creciente del ser humano. En medio de una devastadora sequía, convoca a los animales de la región para unirse en una epopeya fluvial que devuelva al río su antiguo silencio. El inicio de las lluvias será la señal para dar comienzo a la aventura.

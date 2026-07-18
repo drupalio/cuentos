@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roberto-arlt-un-error-judicial/4673/
 
+
+**Imagen:** 1351-roberto-arlt-un-error-judicial.jpg
 ---
 
 De pronto, el señor Roeder, levantándose de entre el círculo de herederos que escudriñaban el semblante de la señora Grummer, exclamó:

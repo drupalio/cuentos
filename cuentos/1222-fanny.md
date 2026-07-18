@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-fanny/12390/
 
+
+**Imagen:** 1222-fanny.jpg
 ---
 
 «Fanny» (titulado originalmente “Lección de Amor”) es un cuento deHoracio Quirogapublicado en 1907 que narra la vida de una joven llamada Fanny, quien desde temprana edad muestra una sensibilidad extraordinaria hacia el amor. Sus primeras experiencias amorosas, aunque inocentes, provocan la preocupación y reprimenda de su madre. A medida que crece, Fanny se ve envuelta en diferentes enamoramientos, cada uno marcado por la ternura y la entrega, pero también por la desaprobación materna. La trama alcanza su clímax cuando Fanny se enamora de Leandro, un joven que parece corresponder a sus sentimientos y que cuenta con la aprobación de su madre. Con Leandro Fanny aprenderá una dura lección sobre el amor.

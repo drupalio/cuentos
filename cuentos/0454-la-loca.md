@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-la-loca/26075/
 
+
+**Imagen:** 0454-la-loca.webp
 ---
 
 Sinopsis:«La loca» (La folle) es un cuento de Guy de Maupassant, publicado el 5 de diciembre de 1882 en el diarioLe Gaulois. La historia presenta a una mujer que, tras perder en poco tiempo a su padre, a su esposo y a su hijo recién nacido, queda sumida en un estado de postración y mutismo absoluto. Durante quince años permanece inmóvil en su cama, atendida por una anciana sirvienta, hasta que la guerra franco-prusiana alcanza su aldea y un oficial enemigo, irritado por su aparente indiferencia, interpreta su enfermedad como un gesto de resistencia y soberbia.

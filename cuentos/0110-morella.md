@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-morella/10891/
 
+
+**Imagen:** 0110-morella.webp
 ---
 
 Sinopsis:«Morella» es un cuento de Edgar Allan Poe, publicado en abril de 1835 en elSouthern Literary Messenger. Un hombre se casa con Morella, una mujer de gran erudición y marcada inclinación por la metafísica y los saberes místicos. Aunque al principio se siente profundamente unido a ella, con el tiempo experimenta un creciente desapego y una aversión inexplicable hacia su esposa, sentimiento que se intensifica mientras ella languidece y su presencia se vuelve cada vez más perturbadora.

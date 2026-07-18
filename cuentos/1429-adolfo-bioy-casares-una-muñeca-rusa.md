@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/adolfo-bioy-casares-una-muneca-rusa/1024/
 
+
+**Imagen:** 1429-adolfo-bioy-casares-una-muñeca-rusa.jpg
 ---
 
 Los males de mi columna me retuvieron en un largo encierro, interrumpido únicamente por visitas a consultorios, a institutos de radiografías y de análisis. Al cabo de un año recurrí a las termas, porque me acordé de Aix-les-Bains. Quiero decir, de su fama de rumbosas temporadas de la gente más frívola y elegante de Europa; y de aguas cuya virtud curativa se admitió desde tiempos anteriores a Julio César. Para que mi estado de ánimo cambiara y para que reaccionara mi organismo, creo que yo necesitaba, más aún que las aguas, la frivolidad.

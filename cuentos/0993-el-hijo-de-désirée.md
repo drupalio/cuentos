@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/kate-chopin-el-hijo-de-desiree/22197/
 
+
+**Imagen:** 0993-el-hijo-de-désirée.webp
 ---
 
 Sinopsis: «El hijo de Désirée» (Désirée’s Baby) es un cuento de Kate Chopin, publicado el 14 de enero de 1893 en la revistaVogue, y más tarde incluido en la colecciónBayou Folk(1894). Ambientado en la Luisiana del siglo XIX, narra la historia de Désirée, una joven de origen desconocido adoptada por la familia Valmondé, que crece hasta convertirse en una mujer dulce y hermosa. Désirée se casa con Armand Aubigny, un hombre acaudalado, y ambos parecen felices tras el nacimiento de su hijo. Sin embargo, una inquietud inesperada empieza a empañar la felicidad de Désirée cuando las consecuencias de un secreto familiar comienzan a aflorar.

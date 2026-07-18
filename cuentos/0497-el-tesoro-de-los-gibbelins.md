@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/lord-dunsany-el-tesoro-de-los-gibbelins/25847/
 
+
+**Imagen:** 0497-el-tesoro-de-los-gibbelins.webp
 ---
 
 Sinopsis: «El tesoro de los gibbelins» (The Hoard of the Gibbelins) es un cuento de Lord Dunsany, publicado el 25 de enero de 1911 en la revistaThe Sketchy luego recogido en la colecciónThe Book of Wonder (1912). En el confín del mundo, más allá de un antiguo río, se alza la torre de los gibbelins, seres monstruosos que acumulan riquezas fabulosas para atraer a los hombres y devorarlos. Alderic, un caballero, estudia durante años la forma de despojar a los gibbelins de su tesoro, hasta que un día, montado en un dragón, se lanza a la arriesgada empresa.

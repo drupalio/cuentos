@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/george-r-r-martin-en-las-tierras-perdidas/17624/
 
+
+**Imagen:** 1184-en-las-tierras-perdidas.webp
 ---
 
 «En las tierras perdidas» (In the Lost Lands) es un relato de fantasía de George R. R. Martin publicado enAmazons II(1982). Lady Melange, una joven y ambiciosa gobernante, desea un poder único: la capacidad de transformarse en lobo. Para conseguirlo, envía a Jerais, el paladín más destacado de la guardia, a negociar con Gray Alys, una enigmática comerciante famosa por cumplir cualquier petición… aunque siempre con resultados impredecibles. Acompañada de Boyce, un misterioso cazador, Gray Alys comienza un viaje hacia las inhóspitas tierras perdidas, un lugar desolado y lleno de secretos donde espera conseguir lo necesario para cumplir el encargo de Lady Melange, y también el de Jerais.

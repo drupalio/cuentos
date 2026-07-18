@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/algernon-blackwood-la-transferencia/13498/
 
+
+**Imagen:** 0117-la-transferencia.jpg
 ---
 
 Sinopsis: «La transferencia«, cuento deAlgernon Blackwoodpublicado en 1911, relata la historia de una gobernanta con capacidades perceptivas excepcionales, que trabaja en una casa de familia acomodada. La mujer establece una conexión especial con Jamie, uno de los niños que habita el hogar, quien se muestra especialmente perturbado debido a la visita del hermano mayor de su padre. Jamie parece sentir temor hacia su tío, un sentimiento que nadie más en la casa logra entender, excepto la gobernanta. Ella sospecha conocer la razón del temor del niño y su posible vínculo con una parte desolada del jardín, donde curiosamente, la vegetación se niega a crecer.

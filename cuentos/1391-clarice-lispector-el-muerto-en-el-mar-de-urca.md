@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/clarice-lispector-el-muerto-en-el-mar-de-urca/2476/
 
+
+**Imagen:** 1391-clarice-lispector-el-muerto-en-el-mar-de-urca.jpg
 ---
 
 Yo estaba en el apartamento de doña Lourdes, costurera, probándome mi vestido pintado por Olly, y doña Lourdes dijo: murió un hombre en el mar, mire a los bomberos. Miré y solo vi el mar que debía estar muy salado, mar azul, casas blancas. ¿Y el muerto?

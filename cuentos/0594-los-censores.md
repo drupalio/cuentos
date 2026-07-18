@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/luisa-valenzuela-los-censores/75/
 
+
+**Imagen:** 0594-los-censores.jpg
 ---
 
 Sinopsis:«Los censores» es un cuento de ciencia ficción Luisa Valenzuela, publicado en 1983 en la colecciónDonde viven las águilas. Ambientado en una sociedad distópica donde el Estado ejerce un estricto control sobre la correspondencia, la historia sigue a Juan, quien escribe una carta a una mujer en París y luego cae presa de la inquietud ante las posibles consecuencias que la censura podría traer para ambos. Decidido a protegerla, se infiltra en el Departamento de Censura, donde hará todo lo posible para interceptar su propio envío antes de que sea sometido a revisión.

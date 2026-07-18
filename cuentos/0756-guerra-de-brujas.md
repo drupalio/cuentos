@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/richard-matheson-guerra-de-brujas/24341/
 
+
+**Imagen:** 0756-guerra-de-brujas.webp
 ---
 
 Sinopsis: «Guerra de brujas» (Witch War) es un cuento de Richard Matheson, publicado en julio de 1951 en la revistaStartling Stories. Mientras un ejército de hombres desesperados y exhaustos se abre paso entre la lluvia y el barro hacia la batalla, en un centro de mando cercano siete muchachas jóvenes y hermosas, aparentemente ajenas al peligro, se entretienen con conversaciones triviales, riendo y compartiendo confidencias como si estuvieran en un juego inocente. Sin embargo, bajo esa fachada apacible late un poder extraño y decisivo, capaz de convertir la guerra en un espectáculo siniestro y aterrador.

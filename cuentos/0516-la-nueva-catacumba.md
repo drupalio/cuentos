@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-conan-doyle-la-nueva-catacumba/25780/
 
+
+**Imagen:** 0516-la-nueva-catacumba.webp
 ---
 
 Sinopsis:«La nueva catacumba» (The New Catacomb) es un cuento de Arthur Conan Doyle, publicado en 1898 en The Sunlight Year-Book. En la Roma de finales del siglo XIX, Burger y Kennedy son dos jóvenes y prestigiosos arqueólogos unidos por una relación de rivalidad intelectual y mutua admiración. Durante una conversación en la casa de Kennedy, Burger le confía un descubrimiento extraordinario: ha hallado una catacumba cristiana de época romana, intacta y desconocida hasta entonces. Fascinado, Kennedy insiste en conocer el lugar y acceder a sus secretos. Tras mostrar ciertas reticencias, Burger acepta guiarlo en una exploración nocturna, pero impone antes una peculiar condición.

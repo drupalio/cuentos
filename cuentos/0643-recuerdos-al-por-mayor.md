@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-recuerdos-al-por-mayor/15272/
 
+
+**Imagen:** 0643-recuerdos-al-por-mayor.webp
 ---
 
 Sinopsis:En «Recuerdos al por mayor» (We Can Remember It For You Wholesale), cuento publicado en 1966, Philip K. Dick explora los límites de la realidad y la identidad a través de la historia de Douglas Quail, un hombre común que anhela una vida extraordinaria. Cansado de su existencia monótona, Quail decide comprar recuerdos implantados de un viaje a Marte. Sin embargo, cuando los recuerdos comienzan a emerger, Quail descubre que su vida puede no ser tan ordinaria como pensaba. Este cuento, que inspiró la películaTotal Recall, plantea preguntas profundas sobre la memoria, la percepción y la naturaleza de la realidad.

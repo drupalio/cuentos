@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-el-esqueleto/12664/
 
+
+**Imagen:** 0729-el-esqueleto.jpg
 ---
 
 Sinopsis: «Esqueleto» (Skeleton) es un cuento de Ray Bradbury publicado en septiembre de 1945 en la revista Weird Tales. Narra la historia de Mr. Harris, un hombre algo hipocondríaco que, convencido de tener problemas de salud, decide buscar la ayuda de un especialista en medicina alternativa llamado M. Munigant. Este le ofrece una explicación psicológica de sus dolencias, relacionándolas con una aparente desconexión con su propio esqueleto. A medida que avanza la trama, Harris se ve envuelto en una obsesión creciente con su estructura ósea, lo que lo lleva a experimentar una serie de eventos surrealistas y perturbadores que lo sumergen en una espiral de miedo y paranoia.

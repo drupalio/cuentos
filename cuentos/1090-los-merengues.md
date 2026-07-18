@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-los-merengues/12146/
 
+
+**Imagen:** 1090-los-merengues.jpg
 ---
 
 Sinopsis: «Los merengues» es un cuento de Julio Ramón Ribeyro, publicado en 1958 en el libroCuentos de circunstancias. Relata la aventura de Perico, un niño de barrio que, tras descubrir el escondite donde su madre guarda dinero, decide gastarlo todo en cumplir su mayor deseo: comprar una gran cantidad de merengues. La historia sigue su recorrido por las calles de Lima y su llegada triunfal a la pastelería, donde espera finalmente cumplir su sueño.

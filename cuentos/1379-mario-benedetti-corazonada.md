@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-corazonada/2801/
 
+
+**Imagen:** 1379-mario-benedetti-corazonada.jpg
 ---
 
 Apreté dos veces el timbre y en seguida supe que me iba a quedar. Heredé de mi padre, que en paz descanse, estas corazonadas. La puerta tenía un gran barrote de bronce y pensé que iba a ser bravo sacarle lustre. Después abrieron y me atendió la ex, la que se iba. Tenía cara de caballo y cofia y delantal. «Vengo por el aviso», dije. «Ya lo sé», gruñó ella y me dejó en el zaguán, mirando las baldosas. Estudié las paredes y los zócalos, la araña de ocho bombitas y una especie de cancel.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/george-saunders-la-cascada/2396/
 
+
+**Imagen:** 1387-george-saunders-la-cascada.jpg
 ---
 
 A Morse lo sacaba de quicio cruzar los jardines Saint Jude recién acabadas las clases, porque le parecía que si sonreía a los uniformados niños católicos podían pensar que era un chiflado o un pervertido y si no sonreía podían pensar que era un viejo cascarrabias al que el mundo había convertido en un amargado, cosa que, sentía, estaba convencido de ser según ciertos criterios. A veces no estaba del todo seguro de no ser alguna clase de zumbado, aunque estaba seguro de no ser un pervertido. De eso estaba seguro. O relativamente seguro. Estar demasiado seguro, estaba relativamente convencido, era lo que al final te convertía en un chiflado. Así que lo fundamental era la humildad, hacer que su rostro adoptara lo que pensaba que podía pasar por la expresión de un hombre que piensa con cariño en su juventud, una cara desprovista de chifladura o perversión; lo fundamental era la humildad.

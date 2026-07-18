@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-requiem-con-tostadas/24034/
 
+
+**Imagen:** 0784-réquiem-con-tostadas.webp
 ---
 
 Sinopsis: «Réquiem con tostadas» es un cuento de Mario Benedetti, publicado en 1968 en el libroLa muerte y otras sorpresas. En un café de Montevideo, un adolescente inicia una conversación con un hombre para hablarle de su madre. A través de su voz se reconstruye una vida familiar marcada por el miedo, impuesto por un padre alcohólico y violento. Con un tono íntimo y melancólico, el joven evoca escenas que oscilan entre la ternura y el dolor, mientras desvela la historia de una mujer que, junto a sus hijos, resistió con dignidad y entereza una existencia atravesada por el sufrimiento.

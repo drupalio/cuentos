@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-tan-amigos/6456/
 
+
+**Imagen:** 1283-tan-amigos.jpg
 ---
 
 —Bruto calor —dijo el mozo.

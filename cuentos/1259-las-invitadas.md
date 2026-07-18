@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/silvina-ocampo-las-invitadas/6846/
 
+
+**Imagen:** 1259-las-invitadas.jpg
 ---
 
 Para las vacaciones de invierno, los padres de Lucio habían planeado un viaje al Brasil. Querían mostrar a Lucio el Corcovado, el Pan de Azúcar, Tiyuca y admirar de nuevo los paisajes a través de los ojos del niño.

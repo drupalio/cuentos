@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-idilio/5434/
 
+
+**Imagen:** 1111-idilio.png
 ---
 
 Sinopsis:Idilioes un cuento de Guy de Maupassant publicado enGil Blasel 12 de febrero de 1884. Relata el fortuito encuentro entre una robusta campesina piamontesa y un joven campesino en un tren que viaja de Génova a Marsella. Los dos son italianos y, tras descubrir que son de pueblos cercanos, entablan una conversación amistosa. La mujer es nodriza y viaja a Marsella para ocupar un puesto de trabajo, mientras que el joven busca empleo en Francia. Durante el viaje, la nodriza experimenta una incomodidad física debido a su necesidad de amamantar, lo que genera entre ambos una curiosa e inesperada interacción.

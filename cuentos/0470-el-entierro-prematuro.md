@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-el-entierro-prematuro/18760/
 
+
+**Imagen:** 0470-el-entierro-prematuro.webp
 ---
 
 Sinopsis:«El entierro prematuro» (The Premature Burial) es un relato de Edgar Allan Poe, publicado el 31 de julio de 1844 en elDollar Newspaper. Con un estilo que está a medio camino entre la ficción y el relato periodístico, narra la historia de un hombre obsesionado con la posibilidad de ser enterrado vivo. Mediante casos documentados de inhumaciones prematuras en diversos lugares, establece que estos sucesos ocurren con inquietante frecuencia. Él, propenso a sufrir ataques de catalepsia y abrumado por el temor, toma una serie de precauciones para evitar ser víctima de ese horrendo destino.

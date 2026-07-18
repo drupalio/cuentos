@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-profunda-siesta-de-remi/3633/
 
+
+**Imagen:** 1093-profunda-siesta-de-remi.webp
 ---
 
 Sinopsis: «Profunda siesta de Remi» es un cuento de Julio Cortázar escrito en 1939 e incluido en su volumenCuentos completos, publicado en 1994. La historia comienza con una escena en la que un hombre se encuentra en una cárcel, pronto a ser ejecutado. El protagonista, Remi, parece aceptar su destino con lúcida resignación. Sin embargo, lo que sigue es una exploración de su mundo interior, cargado de recuerdos y fantasías heroicas, donde los límites entre sueño y realidad, imaginación y memoria, se desdibujan.

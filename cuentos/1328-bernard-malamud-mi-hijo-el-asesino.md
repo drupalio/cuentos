@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bernard-malamud-mi-hijo-el-asesino/5364/
 
+
+**Imagen:** 1328-bernard-malamud-mi-hijo-el-asesino.jpg
 ---
 
 Se despierta sintiendo que su padre está en el pasillo, escuchando. Le escucha cuando duerme y sueña. Le escucha cuando se levanta y busca a tientas los pantalones. Cuando no se pone los zapatos. Cuando no va a la cocina para comer algo. Cuando se mira al espejo con los ojos cerrados. Cuando está sentado una hora en el retrete. Cuando hojea las páginas de un libro que no puede leer. Escucha su angustia, su soledad. El padre se queda plantado en el pasillo. El hijo oye que está escuchando.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/voltaire-cosi-sancta/1137/
 
+
+**Imagen:** 1424-voltaire-cosi-sancta.jpg
 ---
 
 Un pequeño mal por un gran bien

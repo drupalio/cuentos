@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermanos-grimm-los-musicos-de-bremen/14308/
 
+
+**Imagen:** 1208-los-músicos-de-bremen.jpg
 ---
 
 En el cuentoLos músicos de Bremende losHermanos Grimm, un asno, un perro, un gato y un gallo, todos ellos de edad avanzada y despreciados por sus antiguos amos, se encuentran por casualidad en el camino. Unidos por su desdicha deciden ir a la ciudad de Bremen para convertirse en músicos. Durante su viaje, descubren una cabaña ocupada por ladrones y urden un plan ingenioso para asustarlos y reclamar la casa como propia. La historia es una encantadora fábula sobre la amistad, la astucia y el valor de seguir los sueños a pesar de la avanzada edad.

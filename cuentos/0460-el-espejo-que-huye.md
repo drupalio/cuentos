@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/giovanni-papini-el-espejo-que-huye/26049/
 
+
+**Imagen:** 0460-el-espejo-que-huye.webp
 ---
 
 Sinopsis:«El espejo que huye» (Lo specchio che fugge) es un relato de Giovanni Papini, publicado en 1906 en la colecciónIl tragico quotidiano. En una estación de trenes, el encuentro entre dos hombres da lugar a un diálogo sobre el sentido de la vida y la fe en el progreso. Mientras uno de ellos celebra el progreso y la capacidad humana de vivir orientada al futuro, el otro propone una inquietante hipótesis: qué ocurriría si esos hombres, siempre volcados al mañana, quedaran de pronto inmóviles, atrapados en un presente perpetuo. La idea pone en cuestión el valor real de una existencia vivida únicamente en función de lo que aún no llega.

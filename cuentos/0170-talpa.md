@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-rulfo-talpa/2334/
 
+
+**Imagen:** 0170-talpa.jpg
 ---
 
 Sinopsis: «Talpa», es un cuento del escritor mexicano Juan Rulfo publicado en 1953 en el libroEl llano en llamas. Narra la historia de Tanilo, un hombre aquejado de una extraña enfermedad. Junto a su hermano y su mujer, Natalia, Tanilo inicia una sombría peregrinación desde Zenzontla hasta la ciudad de Talpa, motivada por la creencia de que una visita a la Virgen de Talpa podría obrar un milagro y curarlo. Sin embargo, es posible que los tres viajeros no compartan los mismos propósitos.

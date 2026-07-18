@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/adolfo-bioy-casares-en-memoria-de-paulina/2791/
 
+
+**Imagen:** 0698-en-memoria-de-paulina.webp
 ---
 
 Sinopsis: «En memoria de Paulina», cuento de Adolfo Bioy Casares publicado enLa trama celeste(1948), narra la historia de un hombre que recuerda su amor por Paulina, una mujer con la que compartió su infancia y juventud. Desde la niñez, la conexión entre ambos parecía profunda e inquebrantable, llena de afinidades y sueños compartidos. La vida transcurre entre la espera de un futuro juntos y la certeza de un amor mutuo. Sin embargo, la llegada de Julio Montero, un escritor mediocre y ambicioso, amenaza con alterar todo el panorama.

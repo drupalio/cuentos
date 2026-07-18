@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stephen-king-hay-que-aguantar-a-los-ninos/17254/
 
+
+**Imagen:** 0710-hay-que-aguantar-a-los-niños.webp
 ---
 
 Sinopsis:«Hay que aguantar a los niños» (Suffer the Little Children) es un cuento corto de Stephen King publicado en la revistaCavalieren febrero de 1972. Narra la historia de la señorita Sidley, una estricta maestra que controla a sus alumnos con una precisión casi sobrenatural. Experta en detectar cualquier travesura, su implacable disciplina la ha convertido en una figura respetada y temida en la escuela. Un día, mientras enseña ortografía, un alumno llamado Robert le lanza una inquietante advertencia. Pronto, la señorita Sidley percibe un extraño cambio en él y en otros niños: miradas y sonrisas que sugieren secretos oscuros, inexplicables.

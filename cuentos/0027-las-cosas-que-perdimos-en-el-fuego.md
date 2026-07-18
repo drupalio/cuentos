@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mariana-enriquez-las-cosas-que-perdimos-en-el-fuego/28400/
 
+
+**Imagen:** 0027-las-cosas-que-perdimos-en-el-fuego.webp
 ---
 
 Sinopsis:«Las cosas que perdimos en el fuego» es un cuento de la escritora argentina Mariana Enríquez, publicado en 2016 en el libro del mismo título. En el subte de Buenos Aires, una joven recorre los vagones con el rostro desfigurado por el brutal ataque de su marido. Como ella, otras mujeres comienzan a aparecer en las noticias, mientras el fuego se convierte en el principal instrumento de la violencia ejercida por sus parejas. Cuando las víctimas son una madre y su hija, un grupo de mujeres decide organizarse y enfrentar la pasividad general tomando el control de sus propios cuerpos.

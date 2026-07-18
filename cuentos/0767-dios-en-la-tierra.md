@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-revueltas-dios-en-la-tierra/24193/
 
+
+**Imagen:** 0767-dios-en-la-tierra.webp
 ---
 
 Sinopsis: «Dios en la tierra» es un cuento del escritor mexicano José Revueltas, publicado en 1944. La historia tiene lugar durante la Guerra Cristera y describe un paisaje asfixiante: un pueblo de puertas y ventanas selladas, donde el odio y la fe religiosa se han vuelto implacables, como si Dios mismo hubiera encerrado a sus habitantes en su propia dureza, apartándolos de toda compasión. En medio de esa atmósfera hostil, un grupo de soldados federales, urgidos por la sed, llega al lugar y se enfrenta al mutismo, al temor y al peso de la fe convertida en instrumento de violencia. Cada casa cerrada es un grito; cada sombra, una acusación.

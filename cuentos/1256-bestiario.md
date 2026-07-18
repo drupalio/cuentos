@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-bestiario/6885/
 
+
+**Imagen:** 1256-bestiario.jpg
 ---
 
 Entre la última cucharada de arroz con leche —poca canela, una lástima— y los besos antes de subir a acostarse, llamó la campanilla en la pieza del teléfono e Isabel se quedó remoloneando hasta que Inés vino de atender y dijo algo al oído de su madre. Se miraron entre ellas y después las dos a Isabel, que pensó en la jaula rota y las cuentas de dividir y un poco en la rabia de misia Lucera por tocarle el timbre a la vuelta de la escuela. No estaba tan inquieta, su madre e Inés miraban como más allá de ella, casi tomándola por pretexto; pero la miraban.

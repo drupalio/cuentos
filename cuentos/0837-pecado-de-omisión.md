@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ana-maria-matute-pecado-de-omision/15568/
 
+
+**Imagen:** 0837-pecado-de-omisión.webp
 ---
 
 Sinopsis: «Pecado de omisión» es un relato conmovedor de Ana María Matute, incluido en la colecciónHistorias de la Artámila(1961). La narración sigue a Lope, un joven huérfano que, tras la muerte de su madre, es acogido por Emeterio Ruiz, primo de su padre. Aunque Emeterio goza de una buena posición económica, decide no apoyar los estudios de Lope y lo envía al monte a trabajar como pastor. Años después, Lope regresa al pueblo convertido en un hombre endurecido por la vida. El reencuentro con sus antiguos compañeros de infancia tiene un efecto profundo e inesperado en él.

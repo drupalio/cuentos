@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fredric-brown-los-ondulantes/24128/
 
+
+**Imagen:** 0313-los-ondulantes.webp
 ---
 
 Sinopsis: «Los ondulantes» (The Waveries) es un cuento del escritor estadounidense Fredric Brown, publicado en enero de 1945 en la revistaAstounding Science Fiction. El redactor publicitario George Bailey escucha la radio para estudiar a la competencia cuando detecta un extraño patrón que se cuela en la señal. Lo que en un principio parece un simple error de transmisión, acaba revelándose como un inquietante fenómeno que se repite en todas las emisoras. A medida que la interferencia se intensifica, George y su amigo Pete Mulvaney empiezan a sospechar que están presenciando el inicio de un acontecimiento mucho mayor de lo que nadie imagina.

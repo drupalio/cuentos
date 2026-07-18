@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-impostor/3543/
 
+
+**Imagen:** 0766-impostor.webp
 ---
 
 Sinopsis: «Impostor» (Impostor) es un relato de Philip K. Dick publicado en 1953 en la revistaAstounding Science Fiction. Ambientado en un futuro indeterminado, presenta una Tierra en guerra con una raza alienígena. Spence Olham, un ingeniero comprometido con un proyecto vital para la seguridad del planeta, es acusado inesperadamente de ser un androide enviado por los extraterrestres para infiltrarse y destruir la valiosa iniciativa de defensa. Detenido y en peligro, Olham se ve obligado a emprender una desesperada y vertiginosa carrera para demostrar que es un ser humano y no una máquina.

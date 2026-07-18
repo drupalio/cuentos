@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/margaret-atwood-primeros-auxilios/17478/
 
+
+**Imagen:** 0585-primeros-auxilios.webp
 ---
 
 Sinopsis:«Primeros auxilios»(First Aid) es un cuento de Margaret Atwood publicado en 2023 en la colecciónOld Babes in the Wood. La historia inicia con una escena llena de tensión: Nell regresa a casa y encuentra la puerta abierta, manchas de sangre en la cocina y su familia desaparecida. A través de este inquietante punto de partida, la narración se despliega hacia reflexiones sobre cómo enfrentamos las emergencias y nuestra capacidad (o falta de ella) para actuar en momentos críticos. La aparente simplicidad del incidente inicial contrasta con la complejidad de las emociones y pensamientos de Nell, mientras descubre lo sucedido y recuerda otras situaciones en las que el peligro y la improvisación marcaron sus vidas.

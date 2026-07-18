@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fritz-leiber-los-suenos-de-albert-moreland/24463/
 
+
+**Imagen:** 0727-los-sueños-de-albert-moreland.webp
 ---
 
 Sinopsis: «Los sueños de Albert Moreland» (The Dreams of Albert Moreland) es un cuento de Fritz Leiber, publicado en 1945 en la revistaThe Acolyte. Albert Moreland es un ajedrecista solitario y talentoso que se gana la vida jugando partidas por unos centavos en un salón recreativo de Manhattan. Una noche confiesa a su compañero de pensión que cada día sueña con una misma partida interminable, disputada en un tablero gigantesco y desconocido, con piezas extrañas y reglas incomprensibles. Ese juego onírico, que parece desarrollarse fuera del tiempo y del espacio, pronto se convierte en una obsesión inquietante que lo consume por completo.

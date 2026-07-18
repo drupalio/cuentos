@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/haruki-murakami-tony-takitani/27227/
 
+
+**Imagen:** 0242-tony-takitani.webp
 ---
 
 Sinopsis:«Tony Takitani» (トニー滝谷) es un cuento de Haruki Murakami, publicado en junio de 1990 en la revista Bungeishunjū. Hijo de un talentoso pero distante trombonista de jazz, Tony es un hombre que crece acostumbrado a la soledad. Huérfano de madre y con su padre en frecuentes giras, se cría en el Japón de la posguerra y se convierte en un exitoso ilustrador técnico. Su vida transcurre sin vínculos profundos hasta que una joven empleada de una editorial llega a su estudio a recoger un encargo, y algo en ella altera de forma decisiva su apacible aislamiento.

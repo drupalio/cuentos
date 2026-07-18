@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alice-munro-radicales-libres/2255/
 
+
+**Imagen:** 0092-radicales-libres.webp
 ---
 
 Sinopsis: «Radicales libres» (Free Radicals) es un cuento de la escritora canadiense Alice Munro, publicado el 11 de febrero de 2008 enThe New Yorker. Nita es una mujer viuda y enferma de cáncer, que intenta sobrellevar la soledad en su casa de campo tras la muerte repentina de su esposo. Un día caluroso, un hombre desconocido llama a su puerta con la excusa de revisar la caja de fusibles. Lo que comienza como una visita trivial deriva en un tenso diálogo, donde ambos personajes comparten oscuros secretos.

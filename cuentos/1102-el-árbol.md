@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-el-arbol/12754/
 
+
+**Imagen:** 1102-el-árbol.jpg
 ---
 
 Sinopsis:«El Árbol» es un cuento de Howard Phillips Lovecraft, publicado en octubre de 1921 en la revistaThe Tryout. Ambientado en las colinas de Arcadia, narra la historia de Calos y Musides, dos escultores cuya amistad y talento artístico son admirados en toda Grecia. Ambos aceptan un encargo del tirano de Siracusa para crear una estatua monumental, y mientras Musides busca inspiración en la vida social de Tegea, Calos se retira al olivar, donde parece comunicarse con presencias invisibles. Con el tiempo, en los alrededores del olivar crece un árbol de figura inquietante, cuya silueta retorcida parece ocultar un antiguo secreto.

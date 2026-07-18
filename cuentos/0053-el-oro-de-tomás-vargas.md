@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isabel-allende-el-oro-de-tomas-vargas/20312/
 
+
+**Imagen:** 0053-el-oro-de-tomás-vargas.webp
 ---
 
 Sinopsis:«El oro de Tomás Vargas» es un cuento de Isabel Allende, publicado en 1989 en el libroCuentos de Eva Luna. Relata la vida de Tomás Vargas, un hombre avaro, pendenciero y mujeriego que es despreciado por el pueblo de Agua Santa. Su mezquindad y egoísmo lo llevan a acumular un tesoro en monedas de oro, mientras su esposa, Antonia Sierra, y sus hijos viven en la miseria. Cuando una joven embarazada llega reclamando su protección, Vargas la instala en su hogar, desatando un conflicto que cambia la dinámica familiar. Su destino se entrelaza con el juego, la codicia y las tensiones de un pueblo que lo tolera, pero no lo respeta.

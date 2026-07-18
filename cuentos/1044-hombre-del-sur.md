@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roald-dahl-hombre-del-sur/2293/
 
+
+**Imagen:** 1044-hombre-del-sur.jpg
 ---
 
 Sinopsis: «Hombre del Sur» (Man from the South), es un cuento de Roald Dahl publicado en 1948 en la revistaCollier’s. Relata una insólita apuesta que tiene lugar en un hotel de Jamaica. La historia comienza cuando un hombre disfruta del ambiente del hotel y entabla conversación con un peculiar anciano. Pronto se suman al grupo un cadete naval estadounidense y una joven inglesa. Durante la charla, el cadete presume de que su encendedor nunca falla. Ante tal afirmación, el anciano le propone un desafío: si el encendedor funciona diez veces seguidas, ganará un Cadillac; si falla una sola vez, el cadete deberá entregarle el dedo meñique de su mano izquierda.

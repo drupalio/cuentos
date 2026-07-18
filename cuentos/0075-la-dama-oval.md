@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/leonora-carrington-la-dama-oval/28201/
 
+
+**Imagen:** 0075-la-dama-oval.webp
 ---
 
 Sinopsis:«La dama oval» (La Dame ovale) es un cuento de Leonora Carrington, publicado en Francia en 1939. En una tarde fría, una joven alta y delgada, de rostro pálido y triste, permanece inmóvil junto a la ventana de una mansión, mientras desde la calle la observa una mujer que pasa por allí. La muchacha de la ventana se llama Lucrecia y habita un hogar de proporciones extrañas, muebles elegantes y una atmósfera aristocrática casi irreal. Encerrada en ese mundo, vive enfrentada a su padre, quien no tolera la importancia que ella concede a Tártaro, un viejo caballo de madera que ocupa un lugar especial en su vida.

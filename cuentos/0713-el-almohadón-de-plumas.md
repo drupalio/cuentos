@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-almohadon-de-plumas/2457/
 
+
+**Imagen:** 0713-el-almohadón-de-plumas.webp
 ---
 
 Sinopsis:«El almohadón de plumas» es un cuento de Horacio Quiroga, publicado el 13 de julio de 1907 en la revistaCaras y Caretasy más tarde incluido enCuentos de amor de locura y de muerte(1917). Narra la historia de Alicia y Jordán, una pareja recién casada que vive en una casa imponente y silenciosa. Poco después de instalarse, Alicia comienza a sufrir una extraña dolencia que la debilita sin causa aparente. Mientras los médicos fracasan en sus diagnósticos, Jordán asiste en silencio a la lenta agonía de su esposa, en medio de un ambiente que se torna cada vez más sombrío e inquietante.

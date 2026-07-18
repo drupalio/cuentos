@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ambrose-bierce-la-ventana-tapiada/15464/
 
+
+**Imagen:** 0802-la-ventana-tapiada.webp
 ---
 
 Sinopsis: En «La ventana tapiada» (The Boarded Window), cuento publicado en 1891, Ambrose Bierce nos transporta a los vastos y solitarios bosques cercanos a Cincinnati en 1830, donde la naturaleza salvaje sirve de telón de fondo para un relato inquietante. La historia sigue a Murlock, un hombre viudo y huraño que vive en una cabaña aislada, apartado de toda compañía. Antaño un pionero lleno de vida, Murlock ha envejecido prematuramente tras la muerte de su esposa, un suceso envuelto en circunstancias misteriosas y aterradoras, que alteró su vida para siempre.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/leonora-carrington-vuela-paloma/26458/
 
+
+**Imagen:** 0396-vuela-paloma.webp
 ---
 
 Sinopsis:«¡Vuela, paloma!» (Pigeon, vole) es un cuento de Leonora Carrington, escrito entre 1937 y 1940 y publicado en 1986 en la colecciónPigeon vole : contes retrouvés. Una pintora recibe una misteriosa invitación de un aristócrata llamado Célestin des Airlines-Drues para acudir a su remota propiedad. Un enigmático emisario la conduce a caballo a través del bosque hasta una sombría mansión donde se le encomienda retratar el cadáver de la esposa del anfitrión. Rodeada de personajes extraños y una atmósfera cargada de simbolismo surrealista, la artista inicia una obra que pronto comienza a reflejar una realidad inquietante y personal.

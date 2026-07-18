@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/octavia-e-butler-hija-de-sangre/4366/
 
+
+**Imagen:** 0660-hija-de-sangre.webp
 ---
 
 Sinopsis: «Hija de sangre» (Bloodchild) es un cuento de Octavia E. Butler, publicado en junio de 1984 enAsimov’s Science Fiction Magazine. La historia sigue a Gan, un joven terrano que vive en una reserva gobernada por los tlic, una especie alienígena cuyo bienestar depende de los humanos. Gan ha crecido protegido por T’Gatoi, una influyente líder tlic vinculada a su familia desde su nacimiento. Sin embargo, bajo esta convivencia se esconde un pacto inquietante que pondrá a prueba las creencias y la voluntad de Gan.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-las-prepersonas/23809/
 
+
+**Imagen:** 0810-las-prepersonas.webp
 ---
 
 Sinopsis:«Las prepersonas» (The Pre-Persons) es un polémico cuento de Philip K. Dick, publicado en octubre de 1974 enThe Magazine of Fantasy and Science Fiction. En un futuro distópico en el que el aborto es legal hasta los doce años, un niño huye al ver acercarse el camión que recoge a los menores no deseados para llevarlos a una institución estatal, donde una prueba de álgebra determina si tienen o no «alma». Aunque su madre intenta calmarlo con argumentos legales, el miedo persiste. En el relato, Dick plantea una premisa perturbadora donde el derecho a la vida y la dignidad humana quedan sujetos a criterios burocráticos y arbitrarios.

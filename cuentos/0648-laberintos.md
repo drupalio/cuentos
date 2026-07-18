@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ursula-k-le-guin-laberintos/25001/
 
+
+**Imagen:** 0648-laberintos.webp
 ---
 
 Sinopsis:«Laberintos» (Mazes) es un cuento de Ursula K. Le Guin, publicado en 1975 enEpoch. Presenta el testimonio de una criatura encerrada por una inteligencia desconocida que la somete a meticulosos y crueles experimentos. Obligada a recorrer laberintos como parte de un incomprensible sistema de observación, la narradora intenta preservar su lucidez y encontrarle sentido a la conducta de su captor. En medio del hambre, la debilidad y el desconcierto, busca una forma de comunicarse con aquella mente ajena, mientras el encierro se convierte en una lucha por conservar la dignidad y la esperanza.

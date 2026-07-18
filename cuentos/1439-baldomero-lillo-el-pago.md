@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/baldomero-lillo-pago/655/
 
+
+**Imagen:** 1439-baldomero-lillo-el-pago.jpg
 ---
 
 Pedro María, con las piernas encogidas, acostado sobre el lado derecho, trazaba a golpes de piqueta un corte en la parte baja de la vena. Aquella incisión que los barreteros llaman circa alcanzaba ya a treinta centímetros de profundidad, pero el agua que se filtraba del techo y corría por el bloque llenaba el surco cada cinco minutos, obligando al minero a soltar la herramienta para extraer con ayuda de su gorra de cuero aquel sucio y negro líquido que, escurriéndose por debajo de su cuerpo, iba a formar grandes charcas en el fondo de la galería.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/washington-irving-la-leyenda-de-sleepy-hollow/22949/
 
+
+**Imagen:** 0954-la-leyenda-de-sleepy-hollow.webp
 ---
 
 Sinopsis:«La leyenda de Sleepy Hollow»(The Legend of Sleepy Hollow) es un cuento del escritor estadounidense Washington Irving, publicado en 1820 dentro de la colecciónThe Sketch Book of Geoffrey Crayon, Gent.Ambientado en un apacible y supersticioso valle del estado de Nueva York, el relato narra la historia de Ichabod Crane, un excéntrico maestro rural fascinado por lo sobrenatural. Su llegada a Sleepy Hollow lo pone en contacto con un mundo poblado de leyendas, en especial la del Jinete sin Cabeza, el espectro de un soldado hessiano que ronda la región. Mientras Ichabod intenta conquistar a la bella Katrina Van Tassel, fuerzas misteriosas comienzan a acecharlo.

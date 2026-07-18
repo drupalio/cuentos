@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jhumpa-lahiri-el-tercer-y-ultimo-continente/2662/
 
+
+**Imagen:** 1376-jhumpa-lahiri-el-tercer-y-último-continente.jpg
 ---
 
 Salí de la India en 1964, con una titulación en comercio y sin más dinero que el equivalente, en aquellos días, a diez dólares. Durante tres semanas navegué a bordo delSS Roma, un mercante italiano, en un camarote de tercera clase situado junto al motor del navío, a través del mar de Arabia, el mar Rojo y el Mediterráneo hasta que por fin llegué a Inglaterra. Viví en Finsbury Park, en el norte de Londres, en una casa íntegramente habitada por solteros bengalíes sin un penique, justo lo que yo era, todos ansiosos de estudiar y labrarnos una posición en el extranjero.

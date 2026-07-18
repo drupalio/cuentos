@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/china-mieville-noche-de-paz/17822/
 
+
+**Imagen:** 1178-noche-de-paz.webp
 ---
 
 «Noche de paz»(‘Tis the Season) es un satírico cuento de Navidad del escritor británico China Miéville, publicado enSocialist Reviewen diciembre de 2004. Ambientado en un mundo donde las festividades han sido privatizadas, el narrador, un padre divorciado, busca ofrecerle a su hija Annie una auténtica experiencia navideña, a pesar de las estrictas restricciones comerciales. Sin licencia para celebrar la Navidad® de manera oficial, se las ingenia con creatividad para recrear una celebración lo más fiel posible a las viejas tradiciones. La suerte parece sonreírle cuando gana un pase para una exclusiva fiesta navideña organizada en Londres por la poderosa corporación Natividad S.A. Lo que comienza como una prometedora oportunidad pronto toma un giro inesperado que llevará a padre e hija a vivir una Navidad® más agitada de lo que esperaban.

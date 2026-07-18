@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-la-madre-de-los-monstruos/14718/
 
+
+**Imagen:** 0927-la-madre-de-los-monstruos.jpg
 ---
 
 Sinopsis: En «La madre de los monstruos» (La Mère aux monstres), cuento de Guy de Maupassant, publicado el 12 de junio de 1883 enGil Blas, un hombre evoca una espeluznante historia mientras pasea por la playa, donde avista a una elegante y enigmática mujer. Años atrás, durante una visita a un sector rural, su amigo lo llevó a conocer a una robusta y siniestra campesina que habitaba una idílica casa campestre. Apodada «Diabla», esta mujer era infame en la región por una terrorífica razón: todos sus hijos nacían con monstruosas deformidades. Con un aura de misterio y horror, el relato desentraña el macabro secreto de la «madre de los monstruos».

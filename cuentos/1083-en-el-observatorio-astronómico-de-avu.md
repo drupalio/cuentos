@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-g-wells-en-el-observatorio-astronomico-de-avu/21407/
 
+
+**Imagen:** 1083-en-el-observatorio-astronómico-de-avu.webp
 ---
 
 Sinopsis:«En el observatorio astronómico de Avu» (In the Avu Observatory) es un cuento de H. G. Wells, publicado el 9 de agosto de 1894 en la revistaPall Mall Budget. Ambientado en una remota estación astronómica en las selvas de Borneo, narra la inquietante experiencia de Woodhouse, un joven ayudante que se queda solo en el observatorio mientras realiza observaciones estelares. La tranquilidad de la noche tropical, con sus sonidos lejanos y la vasta oscuridad del bosque, se transforma en una atmósfera cargada de tensión e incertidumbre cuando una presencia desconocida irrumpe en el recinto.

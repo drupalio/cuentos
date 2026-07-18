@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-emilio-pacheco-tenga-para-que-se-entretenga/13268/
 
+
+**Imagen:** 0500-tenga-para-que-se-entretenga.jpg
 ---
 
 Sinopsis:«Tenga para que se entretenga», es un cuento de José Emilio Pacheco, publicado en julio de 1972 en la revistaPluraly luego incluido en la colecciónEl principio del placer(1972). Una madre y su hijo pasean por el Bosque de Chapultepec cuando un extraño hombre emerge desde un pasadizo secreto y, tras un breve intercambio de palabras, desaparece con el niño. La familia tiene vínculos poderosos, por lo que se despliegan amplios recursos para encontrarlo, sin embargo, aunque se elaboran múltiples teorías, ninguna de ellas parece dar explicación suficiente a lo que pasó con el niño.

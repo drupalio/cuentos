@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ana-maria-matute-el-incendio/6318/
 
+
+**Imagen:** 1299-el-incendio.jpg
 ---
 
 Cuando apenas contaba cinco años destinaron a su padre a Pedrerías, y allí continuaba aún. Pedrerías era una aldea de piedra rojiza, en las estribaciones de la sierra, más allá de los pinares: al pie de las grandes rocas horadadas por cuevas de grajos y cuervos, con extraños gritos repitiéndose en las horas calmas de la siesta; como aplastada por un cielo espeso, apenas sin nubes, de un azul cegador. Pedrerías era una tierra alejada, distinta, bajo los roquedales que por la tarde cobraban un tono amedrentado, bañados de oro y luces que huían. En la lejanía del camino había unos chopos delgados y altos, que, a aquella hora, le hacían soñar. Pero su sueño era un sueño sobresaltado, como el lejano galope de los caballos o como el fragor del río en el deshielo, amanecida la primavera. Pedrerías aparecía entonces a sus ojos como una tierra sorda, sembrada de muelas. Y le venían los sueños como un dolor incontenible: hiriendo, levantándole terrones de carne con su arado brutal.

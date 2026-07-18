@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/neil-gaiman-el-precio/16187/
 
+
+**Imagen:** 0321-el-precio.webp
 ---
 
 Sinopsis: En «El precio» (The Price), cuento corto de Neil Gaiman publicado en 1997, un hombre relata cómo la llegada de un misterioso gato negro altera la vida de su familia. Aunque al principio parece uno más de los muchos gatos que han acogido, pronto nota que el felino aparece cada noche con heridas inexplicables y cada vez más graves. Intrigado y preocupado, decide averiguar la causa de estos ataques, y una noche, armado con unos prismáticos de visión nocturna, se queda vigilando. La verdad que descubre será tan sorprendente como aterradora.

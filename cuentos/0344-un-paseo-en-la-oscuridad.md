@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-c-clarke-un-paseo-en-la-oscuridad/24028/
 
+
+**Imagen:** 0344-un-paseo-en-la-oscuridad.webp
 ---
 
 Sinopsis: «Un paseo en la oscuridad» (A Walk in the Dark) es un cuento de Arthur C. Clarke, publicado en agosto de 1950 en la revistaThrilling Wonder Storiese incluido luego en la antologíaReach for Tomorrow(1956). La historia sigue a Robert Armstrong, un técnico espacial que, debido a la avería de su vehículo, debe recorrer a pie varios kilómetros por un planeta remoto e inhóspito. La ruta, envuelta en una oscuridad absoluta, se convierte en una experiencia angustiante cuando el recuerdo de una leyenda local sobre una criatura que acecha en la noche comienza a infiltrarse en sus pensamientos, haciendo que la lógica ceda ante la sugestión.

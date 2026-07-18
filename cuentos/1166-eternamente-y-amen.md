@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-eternamente-y-amen/19050/
 
+
+**Imagen:** 1166-eternamente-y-amen.webp
 ---
 
 Sinopsis: «Eternamente y amén»es un cuento de ciencia ficción escrito por Robert Bloch y publicado en 1972 en la colecciónAnd Walk Now Gently Through the Fire and Other Science Fiction Stories. La historia sigue a Seward Skinner, el hombre más rico de la galaxia, quien, enfrentando una muerte inminente, financia un experimento radical dirigido por el doctor Togol. Su objetivo es alcanzar la inmortalidad mediante la clonación, creando un mundo poblado únicamente por versiones de sí mismo. En su nueva existencia, Skinner controla cada aspecto de su entorno, pero la perfección de su utopía oculta un destino inevitable.

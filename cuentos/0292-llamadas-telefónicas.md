@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roberto-bolano-llamadas-telefonicas/2460/
 
+
+**Imagen:** 0292-llamadas-telefónicas.webp
 ---
 
 Sinopsis: «Llamadas telefónicas», cuento del escritor chileno Roberto Bolaño, publicado en la colección homónima de 1997, narra la historia de B, un hombre que años atrás vivió un amor desdichado con X, una mujer que dejó una profunda huella en su vida. Tras un largo periodo sin contacto, una noche B decide llamar a X, reavivando una relación que creía terminada. Ambos, ya no tan jóvenes y cargando con las cicatrices de divorcios y frustraciones, deciden reencontrarse. Este encuentro los sumerge en una relación intensa y problemática, donde B lucha por comprender sus propios sentimientos mientras intenta apoyar a X en sus batallas emocionales.

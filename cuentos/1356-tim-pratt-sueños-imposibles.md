@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/tim-pratt-suenos-imposibles/4198/
 
+
+**Imagen:** 1356-tim-pratt-sueños-imposibles.jpg
 ---
 
 Pete volvía a casa caminando desde la filmoteca, donde había asistido a una sesión de tarde deTener y no tener, cuando vio por primera vez el videoclub.

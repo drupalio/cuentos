@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ruben-dario-el-perro-del-ciego/15222/
 
+
+**Imagen:** 0875-el-perro-del-ciego.webp
 ---
 
 Sinopsis: «El perro del ciego«, cuento del escritor nicaragüense Rubén Darío publicado en agosto de 1888, es un conmovedor relato para niños que nos transporta a los días de escuela. La historia gira en torno a Paco, un niño problemático y cruel que suele agredir a sus compañeros y maltratar a los animales. Nadie escapa al salvajismo de Paco, ni siquiera un anciano ciego y su perro lazarillo.

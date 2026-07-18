@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alfred-bester-adan-sin-eva/26025/
 
+
+**Imagen:** 0465-adán-sin-eva.webp
 ---
 
 Sinopsis:«Adán sin Eva» (Adam and No Eve) es un cuento de Alfred Bester, publicado en septiembre de 1941 en la revistaAstounding Science-Fiction. En un planeta devastado, reducido a un desierto de cenizas, Steven Krane avanza arrastrándose, herido y exhausto, convencido de ser el último ser vivo de la Tierra. Mientras intenta comprender qué ocurrió y cuál fue su papel en la catástrofe, lo asedian visiones y recuerdos fragmentarios del pasado. En su mente confundida parece persistir una única certeza: debe llegar al mar.

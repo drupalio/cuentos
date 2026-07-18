@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/f-scott-fitzgerald-el-deseo-de-navidad-de-pat-hobby/6491/
 
+
+**Imagen:** 0556-el-deseo-de-navidad-de-pat-hobby.webp
 ---
 
 Sinopsis:«El deseo de Navidad de Pat Hobby» (Pat Hobby’s Christmas Wish) es un cuento de Francis Scott Fitzgerald, publicado enEsquireen enero de 1940. La historia sigue a Pat Hobby, un guionista mediocre y en decadencia, atrapado en la rutina de los estudios de Hollywood y obligado a trabajar en vísperas de Navidad. Su amarga existencia da un giro inesperado con la llegada de Helen Kagle, su nueva secretaria, quien, apenas instalada, rompe en llanto, dejando a Pat desconcertado. Al intentar consolarla, Pat descubre que Helen guarda un secreto relacionado con un alto ejecutivo del estudio y una carta que podría cambiar, quizás para siempre, la fortuna de ambos.

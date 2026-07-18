@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-caceria-del-hombre-por-las-hormigas/7567/
 
+
+**Imagen:** 0839-cacería-del-hombre-por-las-hormigas.webp
 ---
 
 Sinopsis: «Cacería del hombre por las hormigas», es un relato deHoracio Quirogapublicado enBillikenen 1924, que sumerge al lector en una aterradora noche en la selva. El protagonista, un cazador, enfrenta una amenaza insólita: hordas de hormigas carnívoras que devoran todo a su paso. Con su característico estilo directo y envolvente, Quiroga narra la desesperada lucha por la supervivencia, subrayando la fragilidad humana ante la implacable fuerza de la naturaleza.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-el-escarabajo-de-oro/15853/
 
+
+**Imagen:** 0820-el-escarabajo-de-oro.webp
 ---
 
 Sinopsis: «El escarabajo de oro» (The Gold-Bug) es un cautivador relato de Edgar Allan Poe que combina misterio, aventura y criptografía. Publicado en 1843, narra la historia de William Legrand, un hombre que, tras hallar un misterioso escarabajo dorado en la isla de Sullivan (Carolina del Sur), se ve inmerso en una serie de enigmas que pondrán a prueba su ingenio. Acompañado por su fiel sirviente, Júpiter, y un amigo, Legrand intentará resolver un acertijo que cambiará sus vidas. El cuento destaca por su ingeniosa trama y la brillante habilidad de Poe para crear una narrativa envolvente y llena de suspense.

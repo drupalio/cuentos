@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/honore-de-balzac-el-elixir-de-larga-vida/2095/
 
+
+**Imagen:** 1412-honoré-de-balzac-el-elixir-de-larga-vida.jpg
 ---
 
 En un suntuoso palacio de Ferrara, cierta noche de invierno, don Juan Belvidero obsequiaba a un príncipe de la casa de Este[1]. En esa época, una fiesta era un espectáculo maravilloso que sólo podían procurarse las riquezas reales o el poder de un señor. Sentadas en torno a una mesa iluminada por velas aromáticas, siete alegres mujeres intercambiaban dulces palabras en medio de admirables obras maestras cuyos mármoles blancos destacaban sobre paredes de estuco rojo y que contrastaban con ricas alfombras de Turquía. Vestidas de raso, resplandecientes de oro y cargadas de pedrerías que brillaban menos que sus ojos, todas ellas contaban pasiones llenas de vigor, pero diversas como lo eran sus bellezas. No se distinguían ni por las palabras ni por las ideas; el aire, una mirada, algunos gestos o el acento servían a sus palabras de comentarios libertinos, lascivos, melancólicos o burlones.

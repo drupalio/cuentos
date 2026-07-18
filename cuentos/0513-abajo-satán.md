@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/clive-barker-abajo-satan/18308/
 
+
+**Imagen:** 0513-abajo-satán.webp
 ---
 
 Sinopsis:«¡Abajo, Satán!» (Down, Satan!) es un cuento breve del autor británico Clive Barker, publicado enBooks of Blood: Volume IV(1985). La historia sigue a Gregorius, un hombre extraordinariamente rico pero espiritualmente vacío, que se enfrenta a una crisis existencial al sentir que ha sido abandonado por Dios. Desesperado por recuperar la fe o atraer la atención divina, idea un plan audaz y macabro: construir en la Tierra un Infierno tan grotesco que el mismo Satán no pueda resistirse a habitarlo.

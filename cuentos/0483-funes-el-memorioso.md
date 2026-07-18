@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-funes-memorioso/889/
 
+
+**Imagen:** 0483-funes-el-memorioso.webp
 ---
 
 Sinopsis: «Funes el memorioso» es un cuento de Jorge Luis Borges, publicado en junio de 1942 en el diarioLa Nacióny luego incluido en el libroFicciones(1944). Narra la historia de Ireneo Funes, un joven que, tras un accidente, adquiere una memoria prodigiosa: puede recordar cada detalle de su vida y su entorno con precisión absoluta. El narrador, un alter ego de Borges, reflexiona sobre las implicancias de esa capacidad. Lejos de convertirlo en un sabio, su memoria perfecta lo vuelve incapaz de abstraer o generalizar, encerrándolo en un mundo de detalles inabarcables. Borges plantea así una reflexión profunda sobre los límites del conocimiento y la memoria, y sugiere que olvidar, en cierta medida, es necesario para pensar y vivir.

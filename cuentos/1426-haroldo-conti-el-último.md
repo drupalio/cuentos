@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/haroldo-conti-ultimo/1099/
 
+
+**Imagen:** 1426-haroldo-conti-el-último.jpg
 ---
 
 Un buen día me hice un vago. Así como lo oyen. No sé cuándo empezó pero aquí me tienen, tumbado a un costado del camino esperando que pase un camión y me lleve a cualquier parte. Ustedes deben haber visto un tipo de esos desde la ventanilla de un ómnibus o del tren. Pues yo soy uno de esos exactamente y puedo asegurarles que me siento muy a gusto. Cualquiera de ustedes diría que solamente al último de los hombres se le puede ocurrir tal cosa. Soy el último de los hombres. También eso. Lo que posiblemente a nadie se le pase por la cabeza es que alguien pueda ser feliz justamente siendo el último de los hombres. Ni siquiera a mí mismo se me hubiera ocurrido hace un tiempo, cuando, dentro de mis alcances, luchaba con todas mis fuerzas para estar entre los primeros. Pero no es eso lo que quiero decir, al menos por ahora.

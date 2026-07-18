@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/dan-simmons-el-rio-estigia-fluye-corriente-arriba/18177/
 
+
+**Imagen:** 0518-el-río-estigia-fluye-corriente-arriba.webp
 ---
 
 Sinopsis:«El río Estigia fluye corriente arriba» (The River Styx Runs Upstream), es cuento de Dan Simmons publicado en abril de 1982 enThe Twilight Zone Magazine. Narra cómo una familia se enfrenta al desconcertante regreso de una madre gracias a un polémico procedimiento tecnológico de resurrección. Contado desde la perspectiva de un niño de ocho años, el cuento describe la perturbadora situación que se genera en el seno de la familia tras este milagro antinatural. Aunque la madre vuelve con su esposo y sus hijos, algo esencial parece haberse perdido en ella, lo que crea una atmósfera de intriga y misterio.

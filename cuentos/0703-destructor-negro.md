@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/a-e-van-vogt-destructor-negro/16895/
 
+
+**Imagen:** 0703-destructor-negro.webp
 ---
 
 Sinopsis:«Destructor negro«(Black Destroyer) es un influyente relato de ciencia ficción de A. E. van Vogt, publicado en la revistaAstounding Science-Fictionen julio de 1939. La historia sigue a Coeurl, una criatura alienígena inteligente y feroz, que vaga por un planeta desolado en busca de alimento. Cuando una nave de exploradores humanos aterriza, Coeurl detecta una sustancia vital que despierta su insaciable hambre y activa sus instintos asesinos. A medida que observa a los humanos con astucia, se prepara para aprovechar cualquier oportunidad. La historia, considerada el inicio de la Edad de Oro de la ciencia ficción, es reconocida también por haber inspirado la películaAliende Ridley Scott.

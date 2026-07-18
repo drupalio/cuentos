@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/shirley-jackson-la-loteria/2359/
 
+
+**Imagen:** 1130-la-lotería.webp
 ---
 
 Sinopsis: En «La Lotería» (The Lottery), cuento de Shirley Jackson publicado enThe New Yorkerel 26 de junio de 1948, los residentes de un pequeño pueblo participan en una lotería anual, un evento que a primera vista parece ser una tradición comunitaria inocente. Sin embargo, a medida que se desarrolla la narrativa, se desvela una perturbadora realidad detrás de esta práctica arraigada. El cuento profundiza en la conformidad social, la aversión al cambio y la siniestra naturaleza que puede yacer en las tradiciones de una comunidad. Un relato inquietante, polémico en su tiempo, que se ha convertido en una de las historias cortas más relevantes en la historia de la narrativa estadounidense.

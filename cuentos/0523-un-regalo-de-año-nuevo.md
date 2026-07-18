@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-un-regalo-de-ano-nuevo/25697/
 
+
+**Imagen:** 0523-un-regalo-de-año-nuevo.webp
 ---
 
 Sinopsis:«Un regalo de Año Nuevo» (Etrennes) es un cuento de Guy de Maupassant, publicado el 7 de enero de 1887 enGil Blas. En la víspera de Año Nuevo, Jacques de Randal se encuentra solo en casa, escribiendo cartas y reflexionando sobre su vida. Desde hace diez meses es amante de Irène, una mujer casada a la que ama con un afecto sereno y maduro. La tranquilidad de la noche se rompe cuando Irène aparece inesperadamente en su puerta, pálida y angustiada, revelando un conflicto que pondrá a prueba la naturaleza de su relación y las convicciones de Jacques sobre el amor y el compromiso.

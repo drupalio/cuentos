@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-la-pradera/5482/
 
+
+**Imagen:** 0624-la-pradera.webp
 ---
 
 Sinopsis:«La pradera» (The Veldt) es un cuento de Ray Bradbury, publicado en septiembre de 1950 enThe Saturday Evening Posty luego incluido en la colecciónThe Illustrated Man(1951). Ambientado en un futuro donde el progreso técnico domina la vida cotidiana, narra la historia de los Hadley, una familia acomodada que vive en una casa automatizada, diseñada para satisfacer todas sus necesidades. Su mayor innovación es una sala de juegos de realidad virtual capaz de materializar cualquier entorno imaginado. A medida que la obsesión de los niños por este adelanto crece, los Hadley comienzan a cuestionar el impacto del exceso de tecnología en su familia.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/boris-vian-el-peligro-de-los-clasicos/5255/
 
+
+**Imagen:** 1326-boris-vian-el-peligro-de-los-clásicos.jpg
 ---
 
 El reloj electrónico de pared dio dos campanadas y me sobresalté, arrancándome con esfuerzo del torbellino de imágenes que se agolpaban en mi mente. Constaté además con cierta sorpresa que el corazón me empezaba a latir de manera un poco más rápida. Me sonrojé y cerré el libro apresuradamente. Se trataba deTú y yo, un antiguo y polvoriento libraco de antes de las otras dos guerras, cuya lectura me había resistido a abordar hasta entonces porque conocía la audacia realista del tema. Sólo en ese momento me di cuenta de que mi turbación procedía tanto de la hora y del día en que estábamos, como del libro mismo. Era el viernes 27 de abril de 1982 y, como de costumbre, esperaba la llegada de la alumna Florence Lorre que hacía prácticas conmigo.

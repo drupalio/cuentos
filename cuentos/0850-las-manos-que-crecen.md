@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-las-manos-crecen/755/
 
+
+**Imagen:** 0850-las-manos-que-crecen.webp
 ---
 
 Sinopsis: «Las manos que crecen» es un cuento temprano deJulio Cortázar, escrito en 1937 pero que se mantuvo inédito hasta 1994. La historia sigue a Plack, un hombre que, tras ser insultado por Cary con comentarios despectivos sobre su obra literaria, se deja llevar por la ira y se enzarza en una violenta pelea. Mientras Plack golpea a su adversario, experimenta una extraña sensación: sus manos parecen crecer desmesuradamente y volverse cada vez más pesadas, hasta que pierde todo control sobre ellas. A medida que la historia avanza, Plack se ve atrapado en una situación surrealista y angustiante que lo sume en la desesperación.

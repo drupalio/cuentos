@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-el-nino-feo/5901/
 
+
+**Imagen:** 1126-el-niño-feo.webp
 ---
 
 Sinopsis: «El niño feo» (The Ugly Little Boy) es un emotivo relato de ciencia ficción de Isaac Asimov, publicado por primera vez en la revistaGalaxy Science Fictionen 1958 y más tarde incluido en la colecciónNine Tomorrows(1959). La historia sigue a Edith Fellowes, una enfermera contratada para participar en el proyecto Estasis, un experimento que pretende superar las barreras del espacio-tiempo. La tarea de la señorita Fellowes es cuidar a Timmie, un niño neandertal traído del pasado, quien se convierte en el objeto de múltiples estudios científicos. A medida que Edith desarrolla un fuerte vínculo afectivo con Timmie, hará todo lo posible por mejorar su situación y protegerlo del trágico destino que le espera.

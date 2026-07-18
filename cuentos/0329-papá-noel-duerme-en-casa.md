@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/samanta-schweblin-papa-noel-duerme-en-casa/25403/
 
+
+**Imagen:** 0329-papá-noel-duerme-en-casa.webp
 ---
 
 Sinopsis:«Papá Noel duerme en casa» es un cuento de Samanta Schweblin, publicado en 2008 en la antologíaLa furia de las pestes. En medio de una familia en crisis, un niño espera ansiosamente su regalo de Navidad: un auto a control remoto. Con un padre desempleado y una madre sumida en la depresión, que pasa los días frente al televisor, el niño intenta comprender un mundo que, en su inocencia, se le escapa. A pesar de lo difícil del panorama, el padre se esfuerza por mantener cierta apariencia de normalidad: compra un árbol, envía la carta a Papá Noel y, con ayuda de una vecina, organiza la cena navideña. Una inesperada visita en medio de la noche vendrá a alterar todos los planes.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-soledad/21949/
 
+
+**Imagen:** 0089-soledad.webp
 ---
 
 Sinopsis:«Soledad» (Solitude) es un cuento de Guy de Maupassant, publicado el 31 de marzo de 1884 en el periódicoLe Gaulois. Ambientado durante un paseo nocturno por los Campos Elíseos, el relato reproduce el diálogo íntimo entre dos viejos amigos que caminan bajo el cielo estrellado de París. En medio del silencio y la penumbra, uno de ellos expresa la angustia existencial que le provoca la convicción de que todos los seres humanos estamos irremediablemente solos. A través de una conversación intensa y melancólica, se despliega una visión sombría sobre la incomunicabilidad y el deseo imposible de verdadera conexión.

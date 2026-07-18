@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-embustero/23908/
 
+
+**Imagen:** 0317-embustero.webp
 ---
 
 Sinopsis: «¡Embustero!» (Liar!) es un cuento de Isaac Asimov publicado en mayo de 1941 en la revistaAstounding Science-Fictione incluido más tarde en el libroI, Robot(1950). La historia presenta al robot RB-34, apodado Herbie, que de manera imprevista desarrolla la capacidad de leer la mente humana. Este hecho desconcierta a los ingenieros de U.S. Robots, especialmente a la robopsicóloga Susan Calvin, quienes deciden investigar el alcance y las posibles consecuencias de esta facultad. Mientras el equipo examina el caso, Herbie se convierte en un desafío inédito para la ciencia robótica y plantea preguntas sobre la intimidad y los efectos que tal poder podría tener en las personas.

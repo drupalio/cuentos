@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/j-m-coetzee-una-historia/3421/
 
+
+**Imagen:** 1370-j-m-coetzee-una-historia.jpg
 ---
 
 No siente culpa. Eso es lo que la sorprende. Ninguna culpa.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/carlos-fuentes-las-dos-elenas/849/
 
+
+**Imagen:** 0529-las-dos-elenas.webp
 ---
 
 Sinopsis:«Las dos Elenas», es un cuento de Carlos Fuentes publicado en 1964 en la colecciónCantar de ciegos. Narra la historia de Elena y Víctor, una joven pareja de clase alta. Elena es una artista de ideas liberales y actitud provocativa, que habitualmente choca con el estilo conservador de sus padres. Por su parte, Víctor es un marido complaciente que suele consentir en todo a su esposa. Influenciada por el cine de Truffaut, Elena se obsesiona con la posibilidad de mantener una relación con dos hombres, lo que genera molestia en su padre y comprensión en Víctor. Sin embargo, tras las apariencias, a veces se esconde una realidad imprevista.

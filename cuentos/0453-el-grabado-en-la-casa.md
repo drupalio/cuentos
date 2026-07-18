@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-el-grabado-en-la-casa/19120/
 
+
+**Imagen:** 0453-el-grabado-en-la-casa.webp
 ---
 
 Sinopsis:«El grabado en la casa» (The Picture in the House) es un cuento de H. P. Lovecraft, publicado en julio de 1921 enThe National Amateur. La historia sigue a un viajero que, sorprendido por una tormenta en los bosques de Nueva Inglaterra, busca refugio en una vieja casa aislada. Allí conoce a un extraño anciano que lo recibe con una hospitalidad perturbadora. Mientras conversan, la atención se dirige a un antiguo libro ilustrado con escenas macabras que despierta en el anfitrión una fascinación siniestra. A medida que la tormenta arrecia, el ambiente de la casa se vuelve cada vez más opresivo y sombrío.

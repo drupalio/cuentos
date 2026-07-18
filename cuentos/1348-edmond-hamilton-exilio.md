@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edmond-hamilton-exilio/2401/
 
+
+**Imagen:** 1348-edmond-hamilton-exilio.jpg
 ---
 
 ¡Lo que daría por no haber hablado de Ciencia Ficción aquella noche! Si no lo hubiéramos hecho, en estos momentos no estaría obsesionado con esa bizarra e imposible historia que nunca podría ser comprobada ni refutada.

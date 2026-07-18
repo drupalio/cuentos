@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-la-culpable/5997/
 
+
+**Imagen:** 1218-la-culpable.jpg
 ---
 
 «La culpable», cuento deEmilia Pardo Bazán, narra la trágica vida de Elisa, quien, pese a esforzarse por ser una esposa y madre ejemplar, no logra escapar de la sombra de un error pasado: huir con su prometido antes del matrimonio. La historia explora el peso del escándalo en una familia de alta sociedad y el impacto devastador del juicio social y el arrepentimiento en la vida de Elisa, culminando en un emotivo final que pone de relieve la complejidad de la culpa y el perdón.

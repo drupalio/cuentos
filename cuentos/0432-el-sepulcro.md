@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-el-sepulcro/5516/
 
+
+**Imagen:** 0432-el-sepulcro.webp
 ---
 
 Sinopsis: «El sepulcro» (The Tomb), un relato de terror psicológico deH.P. Lovecraft, publicado en 1922, nos sumerge en la perturbadora historia de Jervas Dudley, un joven obsesionado con un antiguo mausoleo familiar. Narrado en primera persona, el cuento ofrece un viaje inquietante por la mente alterada de Dudley, quien asegura haber establecido una conexión sobrenatural con los antiguos ocupantes del sepulcro. A medida que la historia avanza, la línea entre los delirios del protagonista y los sucesos sobrenaturales se desdibuja, dejando al lector en un estado de incertidumbre sobre la veracidad de los acontecimientos narrados.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/baldomero-lillo-el-rapto-del-sol/6186/
 
+
+**Imagen:** 1307-el-rapto-del-sol.jpg
 ---
 
 Hubo una vez un rey tan poderoso que se enseñoreó de toda la tierra. Fue el señor del mundo. A un gesto suyo millones de hombres se alzaban dispuestos a derribar las montañas, a torcer el curso de los ríos o a exterminar una nación. Desde lo alto de su trono de marfil y oro, la humanidad le pareció tan mezquina que se hizo adorar como un dios y estatuyó su capricho como única y suprema ley. En su inconmensurable soberbia creía que todo en el universo estábale subordinado, y el férreo yugo con que sujetó a los pueblos y naciones, superó a todas las tiranías de que se guardaba recuerdo en los fastos de la historia.

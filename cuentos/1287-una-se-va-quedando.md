@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hebe-uhart-una-se-va-quedando/6334/
 
+
+**Imagen:** 1287-una-se-va-quedando.jpg
 ---
 
 Justo a mí me tenía que tocar, porque me pasan todas. Volvía de una reunión en el pueblo donde remueven los perendengues de abajo para arriba, que las actas volantes, que el registro anual de matrícula… Si yo tengo veinte alumnos y los veo venir desde una legua. Y después ellas me miran desde los pies hasta el turbante, no soy turca ni hice voto de llevarlo: mi pelo es de paja y no pude calentar agua para lavarlo porque el Negro se olvidó de bombear. Y Cucú se me había ido no sé dónde: cuando se va, no vuelve hasta que anochece. Quise ir igual a la reunión del pueblo; yo sabía que no estaba en las mejores condiciones, pero necesito ir al pueblo de vez en cuando: en el campo una se va quedando. También quería llevar al médico a Chinchín, pero el médico no estaba.

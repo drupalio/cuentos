@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/leopoldo-alas-clarin-la-imperfecta-casada/5807/
 
+
+**Imagen:** 1226-la-imperfecta-casada.jpg
 ---
 
 «La imperfecta casada», cuento de Leopoldo Alas (Clarín), publicado en 1893, narra la historia de Mariquita Varela, una mujer casada y madre que se encuentra en una etapa de cambio personal. Con sus hijos mayores y más independientes, Mariquita descubre tiempo para sí misma, que decide invertir en la lectura, buscando entender más sobre la vida y sobre sí misma. A través de sus lecturas, especialmente de textos cristianos y morales, Mariquita se enfrenta a una introspección profunda. Empieza a cuestionar su propia virtud y el significado de ser una buena esposa y madre. Con el tiempo, la lectura se convierte en un espejo que refleja sus insatisfacciones y las realidades de su vida conyugal y espiritual. Mariquita lucha con la sensación de no alcanzar las expectativas de perfección y virtud que descubre en los textos, lo que la sumerge en un estado de soledad emocional y desencanto.

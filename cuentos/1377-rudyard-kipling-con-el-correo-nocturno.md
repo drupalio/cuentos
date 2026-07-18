@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/rudyard-kipling-con-el-correo-nocturno/2863/
 
+
+**Imagen:** 1377-rudyard-kipling-con-el-correo-nocturno.jpg
 ---
 
 A las nueve de una borrascosa noche de invierno me encontraba en las plataformas inferiores de una de las torres postales de la G.P.O. Mi propósito era un viaje a Quebec en la «Nave Postal 162 u otra cualquiera disponible»; y el propio Director General de Correos había refrendado la orden. Este talismán abría todas las puertas, incluso las del centro de expediciones, situado al pie de la torre, donde estaban distribuyendo el clasificado correo Continental. Las sacas estaban apiladas como arenques en los largos cajones grises que nuestra G.P.O. continúa llamando «vagones». Cinco de tales vagones fueron llenados mientras yo esperaba, y fueron disparados hacia arriba a lo largo de las guías, para ser cargados en las naves que esperaban trescientos pies más cerca de las estrellas.

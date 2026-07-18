@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-el-inmortal/4038/
 
+
+**Imagen:** 0610-el-inmortal.webp
 ---
 
 Sinopsis:«El inmortal», cuento deJorge Luis Borgesperteneciente a la colección de relatosEl Aleph(1949), narra la intensa odisea de un soldado romano, Marco Flaminio Rufo, por encontrar un mítico río que concede la inmortalidad. En su búsqueda, el protagonista emprende una expedición llena de peligros y descubrimientos extraordinarios, donde pondrá a prueba su valor y entereza. Un cuento donde Borges mezcla la aventura con agudas reflexiones filosóficas, tejiendo una narrativa rica en simbolismos, que es una meditación profunda sobre la búsqueda humana del significado y la trascendencia.

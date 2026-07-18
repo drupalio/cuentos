@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/manuel-rojas-el-colocolo/5947/
 
+
+**Imagen:** 0869-el-colocolo.webp
 ---
 
 Sinopsis:«El colocolo»es un cuento del escritor chilenoManuel Rojas, publicado el 19 de septiembre de 1926 en el diarioLa Nación. En una choza campesina del sur de Chile, tres hombres se reúnen en torno a un brasero. A medida que el vino corre y la noche avanza, surgen leyendas sobre apariciones y seres misteriosos. En ese ambiente, uno de ellos relata la inquietante historia de su padre, víctima del colocolo, una criatura del folclore capaz de absorber la vida de las personas mientras duermen.

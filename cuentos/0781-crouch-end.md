@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stephen-king-crouch-end/15892/
 
+
+**Imagen:** 0781-crouch-end.webp
 ---
 
 Sinopsis: «Crouch End» es un relato corto deStephen King, publicado en 1980 como parte de la antologíaNew Tales of the Cthulhu Mythos. La historia sigue a una joven pareja estadounidense, Lonnie y Doris Freeman, durante sus vacaciones en Londres. Lo que comienza como un simple viaje para cenar en casa de un colega de Lonnie se convierte en una pesadilla lovecraftiana cuando la pareja se pierde en el siniestro suburbio de Crouch End. King magistralmente entreteje elementos de horror cósmico con su característico estilo de terror psicológico, transformando un escenario cotidiano en un portal hacia dimensiones de horror inimaginable.

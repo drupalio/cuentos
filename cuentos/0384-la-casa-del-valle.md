@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/august-derleth-la-casa-del-valle/20689/
 
+
+**Imagen:** 0384-la-casa-del-valle.webp
 ---
 
 Sinopsis:«La casa del valle» (The House in the Valley) es un cuento de August Derleth, publicado en julio de 1953 en la revistaWeird Tales. Jefferson Bates, un pintor que busca aislamiento para dedicarse a su obra, alquila una antigua mansión en un remoto valle de Massachusetts, en la vecindad de las antiguas fortalezas de Arkham y Dunwich. La casa, marcada por un pasado oscuro ligado a la familia Bishop, pronto despierta en el protagonista una inquietante sensación de presencia invisible. A medida que se instala, percibe indicios sutiles de un misterio oculto bajo la aparente calma del lugar, sumergiéndose lentamente en un ambiente cada vez más perturbador.

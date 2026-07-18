@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-pieza-de-coleccion/27320/
 
+
+**Imagen:** 0236-pieza-de-colección.webp
 ---
 
 Sinopsis:«Pieza de colección» (Exhibit Piece) es un cuento del escritor estadounidense Philip K. Dick, publicado en agosto de 1954 en la revistaIf. En una sociedad del futuro, George Miller es un historiador consagrado al estudio del siglo XX. Obsesionado con su trabajo, que consiste en supervisar una detallada exposición dedicada a esa época, adopta su forma de hablar, de vestir e incluso el uso de sus objetos cotidianos. Enfrentado a la hostilidad de sus superiores por su exceso de celo, un día todo cambia cuando, en el interior de una de las casas del complejo que supervisa, escucha unas voces que no deberían estar ahí.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/truman-capote-una-navidad/18016/
 
+
+**Imagen:** 0547-una-navidad.webp
 ---
 
 Sinopsis:«Una Navidad» (One Christmas) es un emotivo relato autobiográfico de Truman Capote, publicado en la revistaLadies’ Home Journalen diciembre de 1982. La historia sigue a Buddy, un niño criado en un entorno rural de Alabama bajo el cuidado de familiares, lejos de sus padres divorciados. Cuando se le obliga a pasar la Navidad con su distante y casi desconocido padre, Buddy enfrenta el dolor de abandonar la calidez de su hogar y adentrarse en un mundo ajeno, lleno de diferencias culturales y emocionales. Con una prosa delicada y evocadora, el relato retrata con ternura la inocencia infantil y las primeras desilusiones.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-la-abeja-haragana/5349/
 
+
+**Imagen:** 0794-la-abeja-haragana.jpg
 ---
 
 Sinopsis: «La abeja haragana» es un cuento de Horacio Quiroga, publicado el 30 de noviembre de 1918 en la revistaCaras y caretas, y recopilado ese mismo año en la colecciónCuentos de la selva. Narra la historia de una abeja particularmente perezosa que, a diferencia de sus diligentes compañeras, pasa los días disfrutando del clima y la belleza de su entorno sin contribuir al trabajo colectivo. Ante su falta de compromiso, las abejas guardias de la colmena la reprenden una y otra vez, instándola a trabajar. Sin embargo, su indolencia persiste hasta que, finalmente, un día debe afrontar las severas consecuencias de su negligencia.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-el-encaje-roto/4109/
 
+
+**Imagen:** 0258-el-encaje-roto.jpg
 ---
 
 Sinopsis:«El encaje roto» es un cuento de Emilia Pardo Bazán, publicado enEl Liberalel 19 de septiembre de 1897. Relata el desconcertante episodio ocurrido durante la boda de Micaelita Aránguiz, una joven de alta sociedad que, en el momento decisivo de la ceremonia, pronuncia un inesperado “no” ante la pregunta del obispo, dejando atónitos a los invitados y suspendiendo el matrimonio. El gesto, sorpresivo y rotundo, desencadena un revuelo social y da lugar a toda clase de conjeturas. Después de tres años Micaelita revela sus razones, las que son sencillas pero contundentes.

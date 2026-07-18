@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stephen-king-superviviente/14728/
 
+
+**Imagen:** 0932-superviviente.jpg
 ---
 
 Sinopsis: «Superviviente» (Survivor Type) es un perturbador cuento de Stephen King publicado en 1982 en la antologíaTerrors. Narra la lucha desesperada por la supervivencia de Richard Pine, un médico sin escrúpulos que queda varado en una diminuta isla tras el naufragio de su barco. Rodeado de agua, sin comida y con nada más que heroína, Pine comienza a escribir un diario en el que relata su vida y su caída en el infierno de la drogadicción y la corrupción. A medida que el hambre y la desesperación aumentan, Pine toma medidas extremas para sobrevivir, enfrentándose a los límites de su resistencia física y mental. La historia es una angustiosa exploración de la voluntad de vivir en las condiciones más extremas.

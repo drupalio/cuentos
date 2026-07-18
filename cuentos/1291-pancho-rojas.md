@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/manuel-rojas-pancho-rojas/4454/
 
+
+**Imagen:** 1291-pancho-rojas.jpg
 ---
 
 Para Enrique Espinoza

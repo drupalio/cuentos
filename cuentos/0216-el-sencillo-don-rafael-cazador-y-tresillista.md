@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/miguel-de-unamuno-el-sencillo-don-rafael-cazador-y-tresillista/4076/
 
+
+**Imagen:** 0216-el-sencillo-don-rafael-cazador-y-tresillista.jpg
 ---
 
 Sinopsis: «El sencillo don Rafael, cazador y tresillista», cuento de Miguel de Unamuno publicado en 1912, narra la vida de don Rafael, un solterón que lleva una existencia apacible dedicada a la caza y al tresillo, sin mayores ambiciones ni preocupaciones. Un día, su rutina da un vuelco inesperado cuando al salir de su casa, descubre un bebé abandonado en la puerta. Decidido a criarlo, y con la ayuda de una joven nodriza llamada Emilia, don Rafael comienza a experimentar una nueva vitalidad en su hogar.

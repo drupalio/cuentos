@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-una-visita-medica/23275/
 
+
+**Imagen:** 0888-una-visita-médica-o-un-caso-profesional.webp
 ---
 
 Sinopsis:«Una visita médica» (Sluchai iz praktiki) es un cuento de Antón Chéjov, publicado en diciembre de 1898 en la revistaRusskaya Mysl. Narra el viaje del doctor Koroliov a una fábrica en el campo ruso, donde debe atender a Liza, la hija de la propietaria. Durante su estancia, Koroliov reflexiona sobre el mundo fabril, la condición obrera y la falta de sentido de la vida acomodada. En medio de una atmósfera opresiva y melancólica, el relato plantea sutiles interrogantes existenciales sobre el sufrimiento, la soledad y el lugar del individuo en una sociedad fragmentada.

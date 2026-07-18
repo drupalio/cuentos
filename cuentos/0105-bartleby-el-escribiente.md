@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/herman-melville-bartleby-el-escribiente/28063/
 
+
+**Imagen:** 0105-bartleby-el-escribiente.webp
 ---
 
 Sinopsis:«Bartleby, el escribiente» (Bartleby, the Scrivener) es un cuento de Herman Melville, publicado entre noviembre y diciembre de 1853 enPutnam’s Magazinee incluido luego enThe Piazza Tales(1856). Un abogado de Wall Street, acostumbrado a una vida metódica y sin sobresaltos, contrata como copista a Bartleby, un joven pálido y silencioso que al principio demuestra una extraordinaria dedicación al trabajo. Todo cambia cuando, al pedirle que coteje unos documentos, el escribiente responde con una fórmula desconcertante: «Preferiría no hacerlo». Desde entonces, cada nuevo requerimiento tropieza con la serena negativa de Bartleby, que comienza a desestabilizar la rutina de la oficina y la tranquilidad de su jefe.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-la-novia-fiel/3864/
 
+
+**Imagen:** 1046-la-novia-fiel.jpg
 ---
 
 Sinopsis: «La novia fiel» es un cuento de Emilia Pardo Bazán, publicado el 11 de febrero de 1894 en el diarioEl Liberal. Narra la larga relación de noviazgo entre Amelia Sirvián y Germán Riaza, una pareja de la ciudad gallega de Marineda que, tras diez años de compromiso, sorprende a todos al romper de forma repentina. La historia se centra en la vida interior de Amelia, una joven devota y enamorada, cuya salud y ánimo se van alterando mientras espera, con creciente ansiedad, que su prometido encuentre la estabilidad necesaria para casarse. Una revelación íntima cambiará el rumbo de su decisión.

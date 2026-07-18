@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-agravante/6727/
 
+
+**Imagen:** 0481-agravante.webp
 ---
 
 Sinopsis:«Agravante» es un cuento de Emilia Pardo Bazán, publicado el 30 de agosto de 1892 enEl Liberal. Ambientada en el mítico Celeste Imperio, la historia relata las vicisitudes de Pan-Siao, una viuda cuya devoción por su difunto esposo Li-Kuan parece inquebrantable. Su comportamiento ejemplar es alabado por todos, hasta que las acciones del joven discípulo Ta-Hio y una prueba inesperada ideada por el propio Li-Kuan desvelan los verdaderos motivos de su aparente fidelidad. Con un tono irónico y una trama cargada de simbolismo, la autora explora las contradicciones humanas y la delgada línea entre virtud e hipocresía.

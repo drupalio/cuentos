@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-la-noche-boca/610/
 
+
+**Imagen:** 0349-la-noche-boca-arriba.webp
 ---
 
 Sinopsis: «La noche boca arriba» es un cuento del escritor argentino Julio Cortázar, publicado en 1956 en el libro Final del juego. Un hombre sufre un accidente de motocicleta y es trasladado a un hospital. Al mismo tiempo, en un mundo antiguo, un guerrero huye entre selvas y ciénagas durante una cacería ritual. Alternando entre ambas realidades, Cortázar crea una tensión sutil entre lo contemporáneo y lo ancestral, en un relato que desorienta al lector y lo arrastra a un territorio incierto donde nada es completamente seguro ni familiar.

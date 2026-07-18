@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-la-cabellera/24786/
 
+
+**Imagen:** 0687-la-cabellera.webp
 ---
 
 Sinopsis:«La cabellera» (La Chevelure) es un cuento de Guy de Maupassant, publicado el 13 de mayo de 1884 en el periódicoGil Blas. En un manicomio, un médico muestra a un visitante el caso de un hombre consumido por una obsesión delirante. Para comprender su locura, le entrega un cuaderno donde el paciente narra los hechos que lo condujeron a ese estado. A través de esas páginas se revela cómo una extraña fascinación por un objeto antiguo fue apoderándose lentamente de su mente, transformando su deseo de belleza en una pasión perturbadora y desmedida.

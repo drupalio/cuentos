@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/evelyn-waugh-la-fiesta-que-dio-bella-fleace/4767/
 
+
+**Imagen:** 1278-la-fiesta-que-dio-bella-fleace.jpg
 ---
 
 Ballingar está a cuatro horas y media de Dublín si uno toma el primer tren desde la estación de Broadstone, y a cinco y cuarto si uno espera hasta la tarde. Es ciudad de mercado, la principal población de un distrito grande relativamente populoso. En un lado de la plaza, hay una bonita iglesia protestante de estilo neogótico —data de 1820—, y una enorme catedral católica —inacabada— justo enfrente, ejemplo de esa irresponsable mezcolanza de órdenes arquitectónicos tan querida a los pietistas transmontanos. Letras de inspiración vagamente celta empiezan a reemplazar las del alfabeto latino en las fachadas de los comercios que completan la plaza. Del primero al último venden todos idénticas mercancías en diversos grados de deterioro; la tienda de Mulligan, la tienda de Flannigan, la tienda de Riley, en cada una de ellas el cliente encontrará gruesas botas negras, colgadas en atados, jabonoso queso de las colonias, artículos de mercería y ferretería, aceite y guarniciones, y todas tienen permiso para expender cerveza rubia o negra para su consumo tanto dentro como fuera del establecimiento. El cuartel se mantiene en pie, con las ventanas sin paño y el interior renegrido, a guisa de monumento a la emancipación. En el buzón de color verde alguien ha escrito con brea: «El papa es un traidor». La típica ciudad irlandesa.

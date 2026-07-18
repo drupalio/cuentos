@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-el-dios-sin-cara/15868/
 
+
+**Imagen:** 0817-el-dios-sin-cara.webp
 ---
 
 Sinopsis: «El dios sin cara» (The Faceless God) es un inquietante relato deRobert Bloch, parte del ciclo de los Mitos de Cthulhu, publicado enWeird Talesen 1936. La historia sigue al doctor Carnoti, un inescrupuloso aventurero en busca de riquezas en el desierto egipcio. Tras escuchar rumores sobre una misteriosa estatua enterrada, decide apropiarse de ella, ignorando las advertencias de los nativos sobre Nyarlathotep, el temido dios sin rostro. A medida que se adentra más en el misterio, Carnoti desata una serie de eventos que presagian un destino aterrador.

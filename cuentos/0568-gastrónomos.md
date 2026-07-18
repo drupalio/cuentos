@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roald-dahl-gastronomos/4084/
 
+
+**Imagen:** 0568-gastrónomos.webp
 ---
 
 Sinopsis:«Gastrónomos» (Taste) es un ingenioso y sorprendente relato de Roald Dahl, publicado enThe New Yorkeren 1951. La historia transcurre durante una elegante cena en la casa de Mike Schofield, un adinerado agente de bolsa, quien ha invitado a Richard Pratt, un célebre gourmet y presidente de una exclusiva sociedad gastronómica. Como es costumbre en sus reuniones, Schofield desafía a Pratt a identificar un raro vino, convencido de que su invitado no logrará acertar la viña de origen. Sin embargo, lo que empieza como una apuesta trivial pronto se convierte en un juego peligroso cuando Pratt sugiere apostar algo más valioso que el dinero: la mano de Louise, la hija de Schofield.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elena-garro-zapaterito-guanajuato/1169/
 
+
+**Imagen:** 0252-el-zapaterito-de-guanajuato.jpg
 ---
 
 Sinopsis: «El zapaterito de Guanajuato» es un cuento de Elena Garro, publicado en 1963 en el libroLa semana de colores. Relata la historia de don Loreto, un zapatero de ochenta y dos años, y su nieto Faustino, quienes llegan a la Ciudad de México desde Guanajuato en busca de alivio frente a la pobreza. Perdidos, hambrientos y sin recursos, son acogidos por Blanquita, una mujer carismática y compasiva que, a pesar de enfrentar sus propios conflictos, les ofrece refugio en su hogar.

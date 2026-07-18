@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-almuerzo-y-dudas/6007/
 
+
+**Imagen:** 0013-almuerzo-y-dudas.webp
 ---
 
 Sinopsis:«Almuerzo y dudas» es un cuento del escritor uruguayo Mario Benedetti, publicado en 1959 en el libroMontevideanos. Durante una pausa en su jornada, un hombre casado se encuentra con una mujer y la invita a almorzar. En el restaurante, comienza a hablar con inesperada franqueza sobre sus nueve años de matrimonio y el desgaste que la rutina ha producido en su vida conyugal. Mientras intenta explicar la fuerza de la costumbre y la atracción que despierta lo nuevo, sus reflexiones revelan el conflicto entre el afecto que todavía siente por su esposa y el deseo de recuperar, junto a otra mujer, la emoción perdida.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/kurt-vonnegut-harrison-bergeron/2278/
 
+
+**Imagen:** 0637-harrison-bergeron.jpg
 ---
 
 Sinopsis:«Harrison Bergeron», es un cuento distópico de Kurt Vonnegut, publicado en 1961 enThe Magazine of Fantasy and Science Fiction. En el año 2081, gracias a las Enmiendas 211, 212 y 213 de la Constitución, el gobierno de Estados Unidos ha impuesto la igualdad total de las personas a través del uso de dispositivos que limitan las habilidades físicas e intelectuales de los sujetos. En este mundo, cualquiera que destaque por ser más inteligente, atractivo o talentoso que los demás, debe usar aparatos que lo vuelvan mediocre. Sin embargo, no todos están de acuerdo con estas políticas. Uno de ellos, Harrison Bergeron, un joven extraordinariamente talentoso y fuerte, se rebela contra estas restricciones.

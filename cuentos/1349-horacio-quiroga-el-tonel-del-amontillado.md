@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-tonel-del-amontillado/4752/
 
+
+**Imagen:** 1349-horacio-quiroga-el-tonel-del-amontillado.jpg
 ---
 
 Poe dice que, habiendo soportado del mejor modo posible las mil injusticias de Fortunato, juró vengarse cuando éste llegó al terreno de los insultos. Y nos cuenta cómo en una noche de carnaval le emparedó vivo, a pesar del ruido que hacía Fortunato con sus cascabeles.

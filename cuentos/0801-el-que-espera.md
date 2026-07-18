@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-el-que-espera/6269/
 
+
+**Imagen:** 0801-el-que-espera.webp
 ---
 
 Sinopsis: «El que espera» (The One Who Waits), es un inquietante relato de ciencia ficción escrito por Ray Bradbury, publicado enThe Arkham Sampleren 1949. La historia está narrada desde la perspectiva de una misteriosa entidad extraterrestre que habita en un antiguo pozo del planeta rojo, donde ha permanecido durante siglos, esperando. Cuando los humanos comienzan a llegar al planeta, la criatura los observa desde las profundidades, aguardando con paciencia que se acerquen, ignorantes del peligro que los acecha.

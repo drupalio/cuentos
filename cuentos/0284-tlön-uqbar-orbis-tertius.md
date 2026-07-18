@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-tlon-uqbar-orbis-tertius/806/
 
+
+**Imagen:** 0284-tlön-uqbar-orbis-tertius.webp
 ---
 
 Sinopsis:«Tlön, Uqbar, Orbis Tertius» es un cuento de Jorge Luis Borges, publicado en 1940 en la revistaSure incorporado luego en el libro Ficciones (1944). Narra el descubrimiento de un enigmático artículo sobre Uqbar, un país desconocido que aparece en un volumen alterado de una enciclopedia. A partir de ese hallazgo, el narrador se ve envuelto en una investigación que lo conduce a Tlön, un mundo ficticio creado por una sociedad secreta. Con lenguajes imposibles, sistemas filosóficos insólitos y una lógica que desafía la realidad, la historia explora cómo la invención puede infiltrarse en lo real y transformarlo.

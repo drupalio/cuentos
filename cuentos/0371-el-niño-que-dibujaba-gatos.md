@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/lafcadio-hearn-el-nino-que-dibujaba-gatos/25488/
 
+
+**Imagen:** 0371-el-niño-que-dibujaba-gatos.webp
 ---
 
 Sinopsis:«El niño que dibujaba gatos» (The Boy Who Drew Cats) es un cuento de Lafcadio Hearn, publicado en 1898 como el número 23 de laJapanese Fairy Tale Seriesde Hasegawa Takejirō. Narra la historia de un niño japonés, el menor de una familia campesina, que es enviado a un templo para formarse como sacerdote. A pesar de su inteligencia, posee una obsesión irresistible: dibujar gatos en todas partes. Su maestro lo expulsa del templo con una enigmática advertencia: «Evita los espacios grandes de noche; quédate en los pequeños». Sin comprender del todo estas palabras, el niño emprende un viaje hacia otro templo en busca de una nueva oportunidad.

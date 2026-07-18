@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/cristina-peri-rossi-quiero/1121/
 
+
+**Imagen:** 1425-cristina-peri-rossi-sí-quiero.jpg
 ---
 
 —¿Dónde está mi pene? —grité angustiadamente a las diez de la mañana de un grisáceo día primaveral. Había amanecido soleado. Eran las ocho.

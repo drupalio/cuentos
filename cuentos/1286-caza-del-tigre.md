@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-caza-del-tigre/6475/
 
+
+**Imagen:** 1286-caza-del-tigre.jpg
 ---
 
 Chiquitos míos:

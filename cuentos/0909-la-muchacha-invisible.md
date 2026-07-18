@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mary-shelley-la-muchacha-invisible/8055/
 
+
+**Imagen:** 0909-la-muchacha-invisible.jpg
 ---
 
 Sinopsis: «La muchacha invisible» (The Invisible Girl) es un cuento de Mary Shelley publicado en 1833 enThe Keepsake. Relata la aventura de un viajero que, desorientado durante una tormenta, halla refugio en una torre que parece abandonada y en ruinas. En su interior, se topa con un ambiente sorprendentemente acogedor y un enigmático retrato de una joven, denominado «La muchacha invisible». Fascinado por el lugar, el hombre pregunta a una lugareña por más información sobre él. La mujer le descubre una historia de amor, dolor y misterio que conecta a una serie de personajes y explica el porqué de tan peculiar construcción. La muchacha invisible es una obra en la que la autora de Frankenstein mezcla lo gótico con lo romántico para contar una historia trágica y conmovedora.

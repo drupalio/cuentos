@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-hombre-artificial/25771/
 
+
+**Imagen:** 0505-el-hombre-artificial.webp
 ---
 
 Sinopsis:«El hombre artificial» es un cuento deHoracio Quiroga, publicado entre el 8 de enero y el 12 de febrero de 1910 en la revistaCaras y Caretas. La historia presenta a tres científicos excepcionales —Nicolás Donissoff, Luigi Sivel y Ricardo Ortiz— que trabajan en un laboratorio de Buenos Aires intentando crear vida artificial. Tras tres años de experimentos, logran animar una rata mediante complejas operaciones químicas y biológicas. Movidos por su éxito inicial y su ambición científica, deciden emprender un proyecto aún más audaz: fabricar un ser humano completo, capaz de pensar y sentir.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edogawa-rampo-la-oruga/22752/
 
+
+**Imagen:** 0948-la-oruga.webp
 ---
 
 Sinopsis: «La oruga» (Imomushi) es un perturbador cuento del escritor japonés Edogawa Rampo, publicado en enero de 1929 en la revistaShin Seinen. Narra la inquietante convivencia de Tokiko con su esposo, el teniente Sunaga, un excombatiente japonés gravemente herido en la guerra que ha quedado reducido a un cuerpo sin extremidades ni voz. En una casa apartada, ella lo cuida, atrapada entre la compasión y el hastío. Con el paso de los días, en una atmósfera cada vez más opresiva y siniestra, Tokiko experimenta un marcado deterioro psíquico debido a la culpa, la sensación de encierro y los deseos más oscuros.

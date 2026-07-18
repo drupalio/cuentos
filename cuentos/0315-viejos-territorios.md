@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/richard-matheson-viejos-territorios/20662/
 
+
+**Imagen:** 0315-viejos-territorios.webp
 ---
 
 Sinopsis:«Viejos territorios» (Old Haunts) es un cuento de Richard Matheson, publicado en octubre de 1957 enThe Magazine of Fantasy and Science Fiction. Un hombre de mediana edad  regresa a la ciudad donde vivió sus años universitarios, impulsado por la nostalgia y el deseo de reconectarse con su pasado. Recorre antiguos lugares, revive recuerdos y se hospeda en su antigua habitación, buscando consuelo en lo familiar. Pero a medida que el viaje avanza, la atmósfera se vuelve inquietante, y el pasado, lejos de ofrecer refugio, empieza a revelarse como un territorio más perturbador de lo que imaginaba.

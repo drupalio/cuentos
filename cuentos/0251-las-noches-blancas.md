@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fiodor-dostoyevski-las-noches-blancas/20954/
 
+
+**Imagen:** 0251-las-noches-blancas.webp
 ---
 
 Sinopsis: «Las noches blancas» (Belyye nochi) es un relato intenso y conmovedor de Fiódor Dostoyevski, publicado en 1849 en la revistaOtéchestvennye Zapiski. Ambientado en las largas y luminosas noches estivales de San Petersburgo, narra la historia de un joven solitario y soñador que deambula por la ciudad, perdido entre la nostalgia y la fantasía. En una de sus caminatas, conoce a Nástenka, una misteriosa joven que llora en un muelle. Tras defenderla del acoso de un hombre ebrio, entablan conversación, y entre ambos comienza a tejerse una íntima amistad en la que comparten sus sueños, anhelos y soledades.

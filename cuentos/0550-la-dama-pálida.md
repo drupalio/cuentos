@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alexandre-dumas-la-dama-palida/14218/
 
+
+**Imagen:** 0550-la-dama-pálida.jpg
 ---
 
 Sinopsis: «La dama pálida» (Histoire de la Dame pâle) es un relato corto de Alexandre Dumas que fue publicado en 1849 como parte del libroMille et un fantômes. Ambientado en los Montes Cárpatos durante la insurrección polaca de 1825, narra la historia de Hedwigia, una joven noble a la que su padre envía en busca de refugio a un remoto monasterio. Durante su viaje es atacada por bandidos moldavos liderados por Kostaki, un enigmático joven que pretende apoderarse de ella. Su salvación llega de la mano de Gregoriska, hermanastro de Kostaki, quien la acoge en el castillo familiar. Pronto, la rivalidad entre ambos hermanos desata un conflicto marcado por el amor, el honor y oscuros secretos ancestrales.

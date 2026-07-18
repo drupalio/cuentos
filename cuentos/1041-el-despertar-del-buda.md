@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/vicente-blasco-ibanez-el-despertar-del-buda/21767/
 
+
+**Imagen:** 1041-el-despertar-del-buda.webp
 ---
 
 Sinopsis: «El despertar del Buda» es un cuento de Vicente Blasco Ibáñez, publicado originalmente en el períodicoEl Puebloentre el 4 y el 10 de febrero de 1897 y recopilado luego enCuentos grises(1899). Narra la infancia y juventud del príncipe Sidarta, heredero del trono de Kapila, quien crece rodeado de riquezas, amor y placer, protegido por su padre de cualquier visión de dolor o miseria. Sin embargo, un día Sidarta se enfrenta por primera vez a la vejez, la enfermedad y la muerte, experiencias que le provocan una profunda crisis interior y lo llevan a cuestionar todo cuanto conoce.

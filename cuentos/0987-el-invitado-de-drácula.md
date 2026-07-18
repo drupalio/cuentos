@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bram-stoker-el-invitado-de-dracula/8294/
 
+
+**Imagen:** 0987-el-invitado-de-drácula.webp
 ---
 
 Sinopsis:«El invitado de Drácula» (Dracula’s Guest) es un cuento de Bram Stoker, publicado en 1914 en la colecciónDracula’s Guest and Other Weird Stories. Originalmente concebido como el primer capítulo de la novelaDrácula, fue descartado por el autor y publicado de forma independiente tras su muerte. Ambientado en los alrededores de Múnich, la narración sigue a un joven inglés que, desoyendo las advertencias de su cochero, se adentra en un paraje desolado durante la noche de Walpurgis. Mientras cae la nieve y el entorno se vuelve cada vez más amenazante, el viajero encuentra un mausoleo olvidado y comienza a percibir presencias extrañas que anuncian la cercanía de un poder oscuro.

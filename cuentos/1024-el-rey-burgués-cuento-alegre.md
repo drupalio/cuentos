@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ruben-dario-rey-burgues-cuento-alegre/1057/
 
+
+**Imagen:** 1024-el-rey-burgués-cuento-alegre.webp
 ---
 
 Sinopsis:«El rey burgués»(Cuento alegre) es un relato de Rubén Darío, publicado el 4 de noviembre de 1887 en el diarioLa Época, y recogido luego en el libroAzul…(1888). Narra la historia de un monarca opulento y superficial, que presume de su gusto por el arte y el lujo, rodeado de palacios y objetos exóticos. Su mundo gira en torno a la apariencia, el protocolo y el confort. Un día, un poeta hambriento es llevado ante él. Fascinado por la rareza del personaje, el rey le permite quedarse a condición de que desempeñe una particular tarea.

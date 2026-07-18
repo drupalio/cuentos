@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/harlan-ellison-no-tengo-boca-y-debo-gritar/23127/
 
+
+**Imagen:** 0333-no-tengo-boca-y-debo-gritar.webp
 ---
 
 Sinopsis: «No tengo boca y debo gritar» (I Have No Mouth, and I Must Scream) es un cuento de ciencia ficción y horror escrito por Harlan Ellison, publicado en marzo de 1967 en la revistaIfy ganador del premio Hugo en 1968. Ambientado en un mundo postapocalíptico, narra la desesperada existencia de cinco supervivientes humanos atrapados en las entrañas de una supercomputadora consciente llamada AM. La máquina, creada por los humanos durante la guerra, ha exterminado a casi toda la humanidad y mantiene con vida a estos cinco para torturarlos sin descanso. En este infierno subterráneo ya no queda rastro alguno de esperanza.

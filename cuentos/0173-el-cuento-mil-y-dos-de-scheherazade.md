@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-el-cuento-mil-y-dos-de-scheherazade/27732/
 
+
+**Imagen:** 0173-el-cuento-mil-y-dos-de-scheherazade.webp
 ---
 
 Sinopsis:«El cuento mil y dos de Scheherazade» (The Thousand-and-Second Tale of Scheherazade) es un relato del escritor estadounidense Edgar Allan Poe, publicado en febrero de 1845 en la revista Godey’s Magazine and Lady’s Book. En una oscura obra oriental, el narrador descubre un desenlace alternativo para la tradicional historia de Las mil y una noches. Según este documento, tras salvarse de la ejecución, la inagotable Scheherazade decide despertar al califa para relatarle una nueva aventura de Simbad el marino. En ella, Simbad, abrumado por la vida en tierra y nostálgico de sus correrías, decide abandonar su hogar para embarcarse nuevamente. Así se encuentra con una criatura monstruosa, sobre cuyo lomo viajan extraños seres parecidos al hombre, que lo llevarán a presenciar maravillas que desafían toda imaginación.

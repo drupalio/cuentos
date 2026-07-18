@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/amparo-davila-moises-y-gaspar/28433/
 
+
+**Imagen:** 0017-moisés-y-gaspar.webp
 ---
 
 Sinopsis:«Moisés y Gaspar» es un cuento de la escritora mexicana Amparo Dávila, publicado en julio-agosto de 1957 en laRevista Mexicana de Literaturae incluido después enTiempo destrozado(1959). En una fría mañana de noviembre, José Kraus llega al departamento de su hermano Leónidas, fallecido pocos días antes. Allí encuentra a Moisés y Gaspar, a quienes el difunto cuidaba con una dedicación que José nunca pudo comprender. Leónidas ha dispuesto que queden bajo su tutela, de modo que debe llevarlos consigo. Unidos por la pérdida, los tres inician una convivencia que pronto perturba profundamente la solitaria existencia del protagonista.

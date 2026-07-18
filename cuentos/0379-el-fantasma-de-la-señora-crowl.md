@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/sheridan-le-fanu-el-fantasma-de-la-senora-crowl/20934/
 
+
+**Imagen:** 0379-el-fantasma-de-la-señora-crowl.webp
 ---
 
 Sinopsis: «El fantasma de la señora Crowl» (Madam Crowl’s Ghost) es un cuento del escritor irlandés Sheridan Le Fanu, publicado el 31 de diciembre de 1870 en la revistaAll the Year Round. Narrado en primera persona por una anciana que rememora su juventud, relata la inquietante experiencia vivida cuando, siendo apenas una niña, fue enviada a trabajar a la misteriosa Applewale House. En ese lugar sombrío y decadente, habitado por sirvientes silenciosos y dominado por la figura inquietante de la señora Crowl, la joven protagonista empieza a percibir una atmósfera opresiva, rumores inquietantes y señales de un oscuro secreto que envuelve a la vieja mansión.

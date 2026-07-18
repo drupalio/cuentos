@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/haruki-murakami-sauce-ciego-mujer-dormida/664/
 
+
+**Imagen:** 0239-sauce-ciego-mujer-dormida.webp
 ---
 
 Sinopsis:«Sauce ciego, mujer dormida» (Mekurayanagi to nemuru onna) es un cuento de Haruki Murakami, publicado en 1983 en la revistaBungakukai. La historia sigue a un joven que acompaña a su primo adolescente a una consulta médica, debido a un extraño problema auditivo. Durante el viaje, el protagonista intenta reconfortar a su primo mientras se deja llevar por recuerdos del pasado, evocando momentos que creía olvidados. A través de escenas mínimas y diálogos sutiles, Murakami construye una atmósfera introspectiva y nostálgica, en la que lo real y lo onírico se entrelazan con delicadeza.

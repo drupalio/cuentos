@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-eleonora/18401/
 
+
+**Imagen:** 0503-eleonora.webp
 ---
 
 Sinopsis:«Eleonora» es un cuento gótico de Edgar Allan Poe, publicado en octubre de 1841 enThe Gift for 1842. Narra la vida de un joven que habita un valle paradisíaco junto a su prima Eleonora. En este refugio de belleza y aislamiento, ambos comparten una existencia de amor puro y sencilla armonía, rodeados de paisajes de ensueño y el silencioso fluir de un río mágico. Sin embargo, una sombra amenaza con romper su idílica vida, forzándolos a confrontar la fragilidad de la felicidad y la fuerza de los lazos que los unen.

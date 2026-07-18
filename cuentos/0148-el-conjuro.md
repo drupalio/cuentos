@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-el-conjuro/27864/
 
+
+**Imagen:** 0148-el-conjuro.webp
 ---
 
 Sinopsis:«El conjuro» es un cuento de la escritora española Emilia Pardo Bazán, publicado en 1909 en elAlmanaque de La Ilustración Española y Americana. En la última noche del año, un hombre decide practicar un antiguo rito de brujería en su estudio. Armado con una espada marcada por antiguas batallas, traza un círculo mágico frente a la chimenea y pronuncia fórmulas cabalísticas para invocar a uno de los príncipes del Abismo. Una figura alta, sombría y sin rostro surge entre el humo del fuego. Encerrado dentro del pantáculo, el pensador intenta descubrir qué fuerza misteriosa ha respondido a su llamado y qué poder puede ejercer sobre ella.

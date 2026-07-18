@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fiodor-dostoyevski-novela-en-nueve-cartas/27332/
 
+
+**Imagen:** 0248-novela-en-nueve-cartas.webp
 ---
 
 Sinopsis:«Novela en nueve cartas» (Роман в девяти письмах) es un cuento de Fiódor Dostoyevski, publicado en 1847 en la revistaSovreménnik(El Contemporáneo). En San Petersburgo, Piotr Ivánich e Iván Petróvich inician un intenso intercambio epistolar, motivado por un confuso asunto entre ambos y por la imposibilidad de reunirse. En sus cartas relatan una serie de desencuentros que los obligan a recorrer en vano distintos lugares de la ciudad, sin lograr encontrarse nunca. A medida que avanza la correspondencia, la cordialidad inicial va cediendo paso a los reproches, dejando entrever que bajo la fachada de una afectuosa amistad se ocultan intereses no del todo claros.

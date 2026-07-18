@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-aire-frio/6796/
 
+
+**Imagen:** 0324-aire-frío.webp
 ---
 
 Sinopsis:«Aire frío» (Cool Air) es un relato de H. P. Lovecraft publicado en 1928 en la revistaTales of Magic and Mystery. Narra la experiencia de un hombre que se muda a una casa de huéspedes en Nueva York, donde conoce al doctor Muñoz, residente del piso superior. El doctor es culto y refinado, pero padece una misteriosa enfermedad que le obliga a mantener su habitación a muy baja temperatura. Con el tiempo, la relación entre ambos se estrecha, lo que permite al hombre descubrir cuál es el misterio que se oculta tras la extraña conducta del doctor.

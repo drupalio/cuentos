@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/lorrie-moore-como-hacerse-escritora/2764/
 
+
+**Imagen:** 1380-lorrie-moore-cómo-hacerse-escritora.jpg
 ---
 
 En primer lugar, intenta ser alguna otra cosa, lo que sea. Estrella de cine-astronauta. Estrella de cine-misionera. Estrella de cine-maestra de jardín de infancia. Presidenta del mundo. Fracasa estrepitosamente. Lo mejor es que fracases a edad temprana, a los catorce años, digamos. La desilusión temprana, grave, es necesaria para que a los quince años puedas escribir largas secuencias de hai-kus sobre el deseo frustrado. Es un estanque, una flor de cerezo, un viento que roza el ala de la alondra que vuela hacia la montaña. Cuenta las sílabas. Enséñaselo a tu madre. Ella es dura y práctica. Tiene un hijo en Vietnam y un marido que quizá tenga una aventura con otra. Es partidaria de vestir de marrón porque disimula las manchas de la piel. Echará una ojeada a lo que has escrito y después te volverá a mirar con cara tan inexpresiva como una rosquilla. Te dirá: «¿Y si vacías el lavaplatos?». Aparta la vista. Echa los tenedores al cajón de los tenedores. Rompe sin querer un vaso de los que regalan en las gasolineras. Ese es el dolor y el sufrimiento que se requiere. Y eso es sólo el comienzo.

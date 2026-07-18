@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/charlotte-bronte-napoleon-y-el-espectro/12047/
 
+
+**Imagen:** 0423-napoleón-y-el-espectro.jpg
 ---
 
 Sinopsis:«Napoleón y el espectro» (Napoleon and the Spectre) es un relato gótico de Charlotte Brontë, escrito en 1833 y publicado en 1925 en la colecciónThe Twelve Adventurers and Other Stories. El emperador Napoleón se encuentra en su dormitorio intentando descansar cuando una serie de sucesos extraños comienzan a manifestarse: crujidos, gemidos y una sombra que oscurece las velas. Mientras procura convencerse de que todo es una ilusión, una voz misteriosa lo interpela y un espectro de aspecto inquietante se le aparece, instándolo a abandonar su lecho. Bajo una fuerza irresistible, Napoleón lo sigue hacia la noche de París, donde una experiencia perturbadora lo aguarda.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ben-bova-una-pequena-amabilidad/3098/
 
+
+**Imagen:** 0283-una-pequeña-amabilidad.webp
 ---
 
 Sinopsis:«Una pequeña amabilidad» (A Small Kindness) es un cuento del escritor estadounidense Ben Bova, publicado en abril de 1983 en la revistaAnalog Science Fiction/Science Fact. Jeremy Keating es un agente diplomático de Estados Unidos enviado a Atenas con la misión de asesinar a Kabete Rungawa, un venerable líder africano conocido como «El Santo Negro del Tercer Mundo», figura clave del recién creado Gobierno Mundial. Dispuesto a cumplir su misión, en una noche lluviosa, sigue a su objetivo por las calles de la ciudad hasta los vestigios de la antigua Acrópolis. Sin embargo, lo que parece una ejecución política de rutina pronto se transforma en un encuentro que sacudirá las certezas de Keating sobre el mundo, sus enemigos y sus propias razones para matar.

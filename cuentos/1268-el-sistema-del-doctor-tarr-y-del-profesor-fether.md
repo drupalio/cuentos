@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-el-sistema-del-doctor-tarr-y-del-profesor-fether/6777/
 
+
+**Imagen:** 1268-el-sistema-del-doctor-tarr-y-del-profesor-fether.jpg
 ---
 
 En el otoño de 18…, mientras viajaba por las provincias meridionales de Francia, mi camino me condujo a pocas millas de ciertaMaison de Santé, o manicomio privado, del cual mucho había oído hablar a mis amigos médicos en París. Dado que jamás había visitado un establecimiento de esa clase, me pareció que no debía perder tan excelente oportunidad, y propuse a mi compañero de viaje (caballero con el cual me había relacionado casualmente pocos días antes) que nos desviáramos de la ruta por una o dos horas, a fin de visitar el hospicio. Mi amigo se opuso, arguyendo en primer término estar deprisa, y luego un comprensible horror a la vista de un lunático. Me rogó, empero, que la cortesía no impidiera la satisfacción de mi curiosidad, agregando que cabalgaría despacio a fin de darme ocasión de alcanzarlo ese mismo día o, a más tardar, al siguiente.

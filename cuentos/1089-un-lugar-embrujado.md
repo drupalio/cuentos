@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/nikolai-gogol-un-lugar-embrujado/2058/
 
+
+**Imagen:** 1089-un-lugar-embrujado.webp
 ---
 
 Sinopsis:«Un lugar embrujado» es un cuento de Nikolái Gógol, publicado en 1832 dentro del libroLas veladas de Dikanka. Narra una historia contada por un sacristán sobre una extraña experiencia vivida por su abuelo muchos años atrás. Todo comienza cuando la familia se traslada a cuidar un melonar en el campo, donde reciben la visita de unos carreteros. Durante una fiesta improvisada, el abuelo se anima a bailar, pero al intentar una pirueta, sus pies quedan pegados al suelo. De pronto, el paisaje a su alrededor cambia sin explicación, y el viejo se encuentra solo en un sitio desconocido, marcado por señales inquietantes que lo arrastran a una experiencia fantástica difícil de comprender.

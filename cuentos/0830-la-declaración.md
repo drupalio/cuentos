@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-la-declaracion/6439/
 
+
+**Imagen:** 0830-la-declaración.webp
 ---
 
 Sinopsis:«La declaración»(L’Aveu) es un cuento del célebre escritor francés Guy de Maupassant, publicado el 22 de julio de 1884 en el periódicoGil Blas. Ambientado en el campo normando, la historia sigue a dos mujeres, madre e hija, mientras realizan las tareas diarias de ordeño. La trama se centra en Celeste, la joven hija, quien revela a su madre un perturbador secreto: está embarazada. Con su característico estilo, Maupassant entrelaza drama y humor negro para explorar las dinámicas sociales y familiares del campo francés del siglo XIX, ofreciendo un retrato crudo y mordaz de la vida rural.

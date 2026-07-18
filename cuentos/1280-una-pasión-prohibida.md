@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/cristina-peri-rossi-una-pasion-prohibida/6429/
 
+
+**Imagen:** 1280-una-pasión-prohibida.jpg
 ---
 
 Lo mandaron a Europa porque estaba enamorado. El padre —que no entendía de amores— pensó que las ciudades, los monumentos, los museos y los puentes lo distraerían. Pero las ciudades siempre tenían una letra, un campanario, una plaza, un ruido de agua que la evocaban, en los museos halló cada vez un torso o un perfil similar al suyo, en los puentes la encontraba y la perdía —arco de Locarno, pila de Avignon—, los trenes lo desplazaban sólo de una memoria de vidrios —Rímini— en que se reflejaba, a una memoria de agua —Amstel— donde volvía a verla. Viajó como en un sueño. Los nombres de las ciudades eran palimpsestos: al repetirlos, al darlos vuelta, lentamente aparecía el de la mujer que amaba; Barcelona y Brujas se perdían en la bruma, Siena era ocre como su pelo y las sirenas de Oslo —de piedra o bronce— inclinaban la cintura de la misma manera. Años después diría que viajó dormido. Vislumbrarla al fondo de una vitrina en una galería de la melancólica Berlín —el guía los conducía implacablemente a todas las exposiciones— y al día siguiente, descubrirla en una cafetería de Viena tenía la oscura lógica de los sueños, cuyas raras certezas son indiscutibles. En Milán, lo contrataron en un equipo de basket juvenil a punto de emprender una gira. Sus quince años y el metro ochenta lo favorecían, pero aceptó porque había comprendido que la finalidad del viaje era inútil y quiso recompensar el sacrificio de su padre con dinero, ya que no podía con olvido.

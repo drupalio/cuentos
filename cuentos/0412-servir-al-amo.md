@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-servir-al-amo/26332/
 
+
+**Imagen:** 0412-servir-al-amo.webp
 ---
 
 Sinopsis:«Servir al amo» (To Serve the Master) es un relato de ciencia ficción del escritor estadounidense Philip K. Dick, publicado en febrero de 1956 en la revistaImagination. En un futuro distópico donde la humanidad vive recluida en refugios subterráneos tras una guerra devastadora, el cartero de cuarta categoría Applequist hace un descubrimiento asombroso: un robot oxidado y semidestruido, pero aún funcional, que ha sobrevivido cerca de un siglo entre los escombros. Fascinado y hambriento de respuestas sobre un pasado que le ha sido sistemáticamente ocultado, Applequist decide acercarse y escuchar lo que la máquina tiene para contarle.

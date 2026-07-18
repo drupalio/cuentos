@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/carlos-fuentes-chac-mool/9256/
 
+
+**Imagen:** 0780-chac-mool.webp
 ---
 
 Sinopsis: «Chac Mool» es un cuento del escritor mexicano Carlos Fuentes, publicado en 1954 en el libroLos días enmascarados. Narra la historia de Filiberto, un hombre fascinado por la cultura prehispánica. Tras su inesperada muerte en Acapulco, se descubre un cuaderno de notas que revela su obsesión por la escultura de una antigua figura mitológica maya. Instalado en su vieja casa, el ídolo empieza a transformarse en una presencia inquietante que altera por completo la rutina del protagonista.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-c-clarke-marque-f-de-frankenstein/20679/
 
+
+**Imagen:** 0908-marque-f-de-frankenstein.webp
 ---
 
 Sinopsis:«Marque F de Frankenstein» (Dial «F» for Frankenstein) es un cuento de Arthur C. Clarke, publicado en enero de 1965 en la revistaPlayboy. La historia se inicia con un misterioso suceso global: durante la madrugada, todos los teléfonos del mundo suenan al unísono, emitiendo un sonido enigmático que nadie logra comprender del todo. En medio de la confusión, un grupo de ingenieros y científicos comienza a intercambiar teorías mientras reflexionan sobre las implicancias de la nueva red de comunicaciones vía satélite. Lo que al principio parece un simple fallo técnico, pronto da lugar a inquietantes preguntas sobre el exceso de tecnología y sus posibles consecuencias.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ines-arredondo-la-sunamita/13373/
 
+
+**Imagen:** 1038-la-sunamita.jpg
 ---
 
 Sinopsis: «La sunamita» es un cuento de Inés Arredondo publicado en 1965 enLa señal. Narra la historia de Luisa, una joven que, al recibir la noticia de que su tío Apolonio está moribundo, regresa al pueblo donde pasó su infancia. Aunque parece una visita rutinaria para despedirse de un ser querido, la situación se va complicando progresivamente hasta tomar un giro oscuro e inesperado. Durante su estancia, Luisa se ve obligada a enfrentarse a su pasado, las expectativas de los demás y las manipulaciones de su tío, quien hace un último y controvertido pedido antes de morir. La incapacidad de Luisa para negarse a las peticiones de un moribundo tendrá un profundo efecto en su vida.

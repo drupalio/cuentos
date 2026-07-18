@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-suerte-macabra/5137/
 
+
+**Imagen:** 1197-suerte-macabra.webp
 ---
 
 «Suerte macabra» es un cuento de Emilia Pardo Bazán publicado en laRevista Modernaen 1898. Cuenta la historia de don Donato, un droguero español rutinario y optimista que vive obsesionado con ganar la lotería. Aunque es cauto, está seguro de que la suerte lo recompensará algún día. Cuando finalmente le toca el premio gordo de Navidad, no cabe en sí de felicidad y emprende un viaje para recuperar el billete que su agente ha comprado en otra ciudad. Sin embargo, al llegar se encuentra con una desagradable sorpresa a través de la cual la fortuna, que parecía al fin sonreírle, le muestra su cara más irónica y cruel.

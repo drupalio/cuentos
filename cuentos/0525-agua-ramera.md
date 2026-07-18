@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-agua-ramera/6705/
 
+
+**Imagen:** 0525-agua-ramera.jpg
 ---
 
 Sinopsis:«Agua Ramera», cuento deJulio Ramón Ribeyropublicado en 1972 en la colecciónLos cautivos, narra el diálogo entre dos amigos que caminan bajo la lluvia en una tarde de otoño, en París. Uno de ellos, declama poemas improvisados mientras relata algunas anécdotas a su compañero de paseo. Sin embargo, bajo esta conducta aparentemente bohemia, parece hallarse una realidad mucho menos romántica y esperanzadora.

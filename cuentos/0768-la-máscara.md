@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-la-mascara/4680/
 
+
+**Imagen:** 0768-la-máscara.webp
 ---
 
 Sinopsis: «La máscara»(Le Masque) es un cuento de Guy de Maupassant, publicado enL’Écho de Parisen 1889. La historia se desarrolla en un animado baile de disfraces, donde un hombre mayor intenta, con torpeza y frenesí, seguir el ritmo de los jóvenes. En medio de la danza, colapsa y un médico acude en su ayuda. Al quitarle la sofisticada máscara que lleva, el médico revela la desgarradora verdad: un anciano que, aferrado a una juventud perdida, se oculta tras el disfraz. La esposa del hombre narra al médico una historia de vanidad y resignación, ofreciendo una profunda reflexión sobre el envejecimiento y las ilusiones que muchos construyen para evitar afrontar el paso del tiempo.

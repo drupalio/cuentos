@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/adela-fernandez-vago-espinazo-de-la-noche/24488/
 
+
+**Imagen:** 0725-vago-espinazo-de-la-noche.webp
 ---
 
 Sinopsis: «Vago espinazo de la noche» es un cuento de Adela Fernández, publicado en 1996 en la colección del mismo nombre. Ambientado en un orfanato, narra la historia de un grupo de niños que, tras sufrir un castigo humillante, planean vengarse mediante una ceremonia secreta liderada por Ignacio, el mayor de ellos, quien asegura poseer conocimientos arcanos y ancestrales. Fascinados por la idea de una estructura cósmica llamada el «espinazo de la noche», imaginan un ascenso hacia lo divino que pronto se convierte en una experiencia inquietante y trascendental.

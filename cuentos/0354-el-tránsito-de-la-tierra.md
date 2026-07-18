@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-c-clarke-el-transito-de-la-tierra/26604/
 
+
+**Imagen:** 0354-el-tránsito-de-la-tierra.webp
 ---
 
 Sinopsis:«El tránsito de la Tierra» (Transit of Earth) es un cuento de ciencia ficción de Arthur C. Clarke, publicado en enero de 1971 en la revistaPlayboy.Evans es un astronauta varado en Marte, que sabe que le quedan menos de veinticuatro horas de oxígeno. Mientras espera para registrar un fenómeno astronómico que solo ocurre cada cien años —el paso de la Tierra frente al disco del Sol visto desde Marte—, reflexiona sobre su vida, sus miedos y los recuerdos que lo persiguen. Con la serenidad de quien ya ha aceptado su destino, Evans se prepara para cumplir la misión por la que sus compañeros sacrificaron sus propias vidas.

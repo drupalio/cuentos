@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/augusto-monterroso-el-eclipse/10882/
 
+
+**Imagen:** 0515-el-eclipse.jpg
 ---
 
 Sinopsis:«El eclipse», es un cuento corto de Augusto Monterroso publicado en la colecciónObras completas y otros cuentos(1959). Narra la historia de fray Bartolomé Arrazola, un religioso español perdido en la selva guatemalteca. Consciente de su inminente muerte a manos de los indígenas, intenta usar su conocimiento de un próximo eclipse solar para intimidarlos y salvarse. Sin embargo, su plan toma un giro inesperado, revelando una sorprendente ironía en el desenlace.

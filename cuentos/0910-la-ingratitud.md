@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/max-aub-la-ingratitud/23114/
 
+
+**Imagen:** 0910-la-ingratitud.webp
 ---
 
 Sinopsis: «La ingratitud» es un cuento de Max Aub, publicado en 1955 dentro del libroCiertos cuentos. Narra la historia de una mujer que cría sola a su hija en una casa humilde junto a la carretera. Durante años, dedica su vida al cuidado de la joven, mientras trabaja como bordadora para sobrevivir. La muchacha crece dócil y cariñosa, hasta que un día se marcha con un hombre, dejando atrás a su madre. Sola y envejecida, la mujer se aferra a cada noticia que llega de su hija, mientras el entorno se vuelve cada vez más silencioso y desolado.

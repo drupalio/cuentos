@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-el-viajero/2647/
 
+
+**Imagen:** 1383-emilia-pardo-bazán-el-viajero.jpg
 ---
 
 Fría, glacial era la noche. El viento silbaba medroso y airado, la lluvia caía tenaz, ya en ráfagas, ya en fuertes chaparrones; y las dos o tres veces que Marta se había atrevido a acercarse a su ventana por ver si aplacaba la tempestad, la deslumbró la cárdena luz de un relámpago y la horrorizó el rimbombar del trueno, tan encima de su cabeza, que parecía echar abajo la casa.

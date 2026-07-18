@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/theophile-gautier-la-muerta-enamorada/13394/
 
+
+**Imagen:** 0115-la-muerta-enamorada.jpg
 ---
 
 Sinopsis: «La muerta enamorada» (La morte amoureuse), es un cuento de Théophile Gautier publicado en 1836 enChronique de Paris. Relata la trágica historia de Romualdo, un joven sacerdote cuya alma se ve amenazada por la encantadora Clarimonda. Desde su infancia, Romualdo entregó su vida a Dios, rechazando las tentaciones terrenales. No obstante, en el día de su ordenación, su destino cambia al encontrarse con Clarimonda. Esta mujer, de cabellera rubia y ojos verdes, posee una belleza diabólica que lo cautiva al instante. A pesar de las severas advertencias de su mentor, el padre Serapion, Romualdo cae en un amor profundo y obsesivo hacia Clarimonda, un sentimiento que amenaza con arrastrarlo hacia la condenación eterna.

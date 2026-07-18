@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mariana-enriquez-fin-de-curso/4122/
 
+
+**Imagen:** 0055-fin-de-curso.jpg
 ---
 
 Sinopsis:«Fin de curso» es un cuento de la escritora argentina Mariana Enríquez, publicado en 2016 en el libroLas cosas que perdimos en el fuego. Marcela es una estudiante introvertida, retraída y sin amigos, cuya tendencia a hacerse daño despierta una mezcla de fascinación y horror entre sus compañeras. A medida que su conducta se intensifica, la comunidad escolar se ve envuelta en un ambiente de inquietud y desconcierto, mientras intentan comprender la naturaleza de su tormento interno.

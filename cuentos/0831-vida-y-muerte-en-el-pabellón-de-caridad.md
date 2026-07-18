@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/charles-bukowski-vida-muerte-pabellon-caridad/516/
 
+
+**Imagen:** 0831-vida-y-muerte-en-el-pabellón-de-caridad.webp
 ---
 
 Sinopsis:«Vida y muerte en el pabellón de caridad» (Life and Death in the Charity Ward) es un cuento autobiográfico de Charles Bukowski, publicado en 1972 en el libroErections, Ejaculations, Exhibitions and General Tales of Ordinary Madness. Narra la experiencia de un hombre que, tras sufrir un grave colapso, es trasladado al hospital del condado junto a otros pacientes sin recursos. Desde su ingreso, observa con brutal lucidez y humor corrosivo las escenas absurdas, miserables o delirantes que lo rodean. En ese ambiente de abandono y resignación, intenta conservar cierta dignidad mientras la muerte avanza lentamente entre la decadencia y la autodestrucción.

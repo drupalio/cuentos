@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-mi-suicidio/2867/
 
+
+**Imagen:** 1374-emilia-pardo-bazán-mi-suicidio.jpg
 ---
 
 A Campoamor

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/clark-ashton-smith-la-muerte-de-malygris/20240/
 
+
+**Imagen:** 0360-la-muerte-de-malygris.webp
 ---
 
 Sinopsis:«La muerte de Malygris» (The Death of Malygris), es un cuento de Clark Ashton Smith, publicado en abril de 1934 en la revistaWeird Tales. Ambientado en la mítica Poseidonis, explora el misterio que rodea el destino del temible hechicero Malygris. El rey Gadeiron convoca a los magos más poderosos de Susran para confirmar si el brujo ha muerto, pues aunque nadie lo ha visto moverse ni hablar en mucho tiempo, su presencia sigue imponiendo terror. Mediante artes prohibidas, y conociendo los peligros a que se exponen, los conjuradores intentan desentrañar el enigma que rodea al hechicero.

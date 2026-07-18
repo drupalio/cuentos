@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roald-dahl-el-hombre-del-paraguas/6284/
 
+
+**Imagen:** 1304-el-hombre-del-paraguas.jpg
 ---
 
 Voy a contarles una cosa muy divertida que nos pasó a mi madre y a mí ayer por la tarde. Tengo doce años y soy una chica. Mi madre tiene treinta y cuatro, pero yo ya soy casi tan alta como ella.

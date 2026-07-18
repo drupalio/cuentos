@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bertolt-brecht-la-anciana-indigna/23690/
 
+
+**Imagen:** 0430-la-anciana-indigna.webp
 ---
 
 Sinopsis: «La anciana indigna» (Die unwürdige Greisin) es un cuento de Bertolt Brecht, escrito en 1939 y publicado por primera vez en la colecciónKalendergeschichten(1949). Relata la vida de una mujer que, tras la muerte de su esposo, se enfrenta a la disyuntiva de depender de sus hijos o valerse por sí misma. Contra todo pronóstico, rechaza la tutela familiar y decide vivir sola, aceptando solo una modesta ayuda económica. A partir de entonces, comienza a trazar su propio camino con pequeños gestos de independencia que desconciertan a sus hijos y despiertan la curiosidad del pueblo.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/charles-dickens-el-guardavias/2206/
 
+
+**Imagen:** 1173-el-guardavías.jpg
 ---
 
 Sinopsis: «El guardavías» (The Signal-Man) es un cuento de Charles Dickens, publicado en 1866 en la revistaAll the Year Round. Cuenta la historia de un hombre que se encuentra con un solitario guardavías que trabaja en un lúgubre puesto ferroviario. A través de una inquietante conversación, el visitante descubre que el guardavías es acosado por extrañas apariciones junto a una luz roja cercana al túnel, que parecen advertir de un peligro inminente. En este relato, Dickens mezcla lo sobrenatural con el aislamiento psicológico, creando una atmósfera sombría e inquietante que envuelve a ambos personajes desde el primer contacto.

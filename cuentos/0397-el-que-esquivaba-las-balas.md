@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-el-que-esquivaba-las-balas/21037/
 
+
+**Imagen:** 0397-el-que-esquivaba-las-balas.webp
 ---
 
 Sinopsis: «El que esquivaba las balas» (The Ducker) es un cuento de Ray Bradbury, publicado en noviembre de 1943 en la revistaWeird Tales. La historia sigue a Johnny Choir, un joven soldado que parte rumbo a la guerra con el entusiasmo ingenuo de quien aún vive en el recuerdo de los juegos infantiles. Mientras el barco zarpa desde Nueva York, Johnny revive sus años de infancia entre pistolas de juguete y discusiones sobre quién había “muerto” primero. Su visión de la guerra se entrelaza con aquella lógica lúdica, desdibujando los límites entre la ficción del juego y la crudeza del combate real.

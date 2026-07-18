@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/abelardo-castillo-fermin/627/
 
+
+**Imagen:** 0191-fermín.webp
 ---
 
 Sinopsis: «Fermín» es un cuento deAbelardo Castillo, publicado en 1961 en la colecciónLas otras puertas, que retrata la vida de un hombre violento y pendenciero en una zona rural marginada de Argentina. El protagonista, Fermín, es conocido por su brutalidad, especialmente hacia su mujer, Paula, y su hijo. Sin embargo, la historia revela matices en su carácter, ya que, aunque su comportamiento es destructivo y agresivo, Fermín comienza a experimentar momentos de introspección que sugieren una posible transformación en su conducta.

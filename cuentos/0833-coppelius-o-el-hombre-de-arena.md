@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/e-t-a-hoffmann-coppelius-o-el-hombre-de-arena/15713/
 
+
+**Imagen:** 0833-coppelius-o-el-hombre-de-arena.webp
 ---
 
 Sinopsis: «Coppelius o El hombre de arena» (Der Sandmann) es uno de los relatos más inquietantes de E.T.A. Hoffmann, maestro del Romanticismo alemán. Publicado en 1817 dentro de la colecciónNachtstücke, este cuento explora los límites entre la realidad y la imaginación a través de la historia de Nataniel, un joven estudiante acosado por la presencia del enigmático Coppelius, una figura que traumatizó su infancia. Con una narrativa cargada de atmósferas oscuras y elementos sobrenaturales, Hoffmann nos adentra en un mundo donde los miedos infantiles cobran vida poniendo a prueba la fortaleza de la mente humana.

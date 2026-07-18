@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-medidas-preventivas/5817/
 
+
+**Imagen:** 1313-medidas-preventivas.jpg
 ---
 
 Trátase de una pequeña capital de distrito, que, según la expresión del celador de la cárcel, no se encuentra ni con telescopio en los mapas. Todo está silencioso y tranquilo bajo el sol ardiente del mediodía.

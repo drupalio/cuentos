@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-rulfo-anacleto-morones/26626/
 
+
+**Imagen:** 0211-anacleto-morones.webp
 ---
 
 Sinopsis:«Anacleto Morones» es un cuento del escritor mexicano Juan Rulfo, publicado en 1953 en el libroEl llano en llamas. Lucas Lucatero se encuentra en su rancho cuando, en medio del calor y el polvo, ve llegar a un grupo de mujeres devotas venidas de Amula. Las inoportunas visitantes llegan con el propósito de convencerlo de que regrese con ellas al pueblo para dar testimonio sobre la vida y obra de Anacleto Morones, a quien consideran un santo capaz de obrar milagros. Sin embargo, chocan con la reticencia de Lucatero, que tiene una opinión muy distinta de quien fue su suegro.

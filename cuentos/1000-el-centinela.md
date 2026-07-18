@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-c-clarke-el-centinela/2671/
 
+
+**Imagen:** 1000-el-centinela.jpg
 ---
 
 Sinopsis: «El Centinela» (The Sentinel) es un cuento de ciencia ficción de Arthur C. Clarke publicado en 1951 en la revistaTen Story Fantasy, que sirvió de inspiración para la película2001: Una odisea del espacio. Relata la historia de un grupo de exploradores lunares liderados por un geólogo que descubren una misteriosa estructura con forma de pirámide en la meseta de una montaña del Mare Crisium. La expedición, inicialmente centrada en la recolección de minerales y el estudio del terreno, se ve interrumpida por este hallazgo inesperado. La pirámide, que refleja la luz del sol con un brillo metálico, sugiere que no es una formación natural, lo que despierta la curiosidad y el sentido de aventura del equipo.

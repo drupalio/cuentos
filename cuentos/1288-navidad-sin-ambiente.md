@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/miguel-delibes-navidad-sin-ambiente/4601/
 
+
+**Imagen:** 1288-navidad-sin-ambiente.jpg
 ---
 
 —Ella nunca ponía el Niño de esa manera —dijo Chelo al sentarse a la mesa.

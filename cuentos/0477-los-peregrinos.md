@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mary-shelley-los-peregrinos/25971/
 
+
+**Imagen:** 0477-los-peregrinos.webp
 ---
 
 Sinopsis:«Los peregrinos» (The Pilgrims) es un cuento de Mary Shelley, publicado en 1837 enThe Keepsakey recogido luego en la colecciónTales and Stories(1891). Burkhardt de Unspunnen, un solitario y anciano caballero, vive atormentado por dolorosos recuerdos. Una noche, dos jóvenes peregrinos llegan a su castillo buscando refugio, y él los acoge con generosidad. Los desconocidos, conmovidos por la evidente aflicción de su anfitrión, le ruegan que comparta el motivo de sus penas. Burkhardt relata entonces la historia de una pérdida irreparable y un arrepentimiento devastador, que consume su existencia.

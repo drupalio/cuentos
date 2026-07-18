@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-louis-stevenson-creer-creer-a-medias-y-no-creer-en-nada/11705/
 
+
+**Imagen:** 1205-creer-creer-a-medias-y-no-creer-en-nada.jpg
 ---
 
 Creer, creer a medias y no creer en nada (Faith, Half-faith and No Faith At All) es una fábula de Robert Louis Stevenson que narra el viaje de tres hombres: un sacerdote, un hombre virtuoso y un trotamundos, quienes discuten sobre la fe y la verdad en su peregrinación. A lo largo del camino, se encuentran con situaciones que desafían sus creencias, lo cual los lleva a debates sobre la naturaleza de la fe, la verdad y la virtud, con un final cuya moraleja nos hace pensar acerca de la resistencia ante la adversidad y la lealtad a las creencias.

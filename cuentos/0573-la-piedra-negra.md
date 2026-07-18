@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-e-howard-la-piedra-negra/14940/
 
+
+**Imagen:** 0573-la-piedra-negra.jpg
 ---
 
 Sinopsis:«La piedra negra» (The Black Stone), es un relato de terror cósmico de Robert E. Howard publicado enWeird Talesen noviembre de 1931. La narración sigue a un investigador fascinado por un misterioso monolito ubicado en las montañas de Hungría. Intrigado por referencias en libros esotéricos y leyendas locales, viaja al remoto pueblo de Stregoicavar para examinar el antiguo monumento. Allí, descubre inquietantes historias sobre rituales paganos y sacrificios humanos realizados en el pasado. Sus investigaciones lo llevan a explorar la historia oculta del lugar y los oscuros secretos que rodean a la Piedra Negra. A medida que profundiza en el misterio, el protagonista se enfrenta a revelaciones perturbadoras que desafían su comprensión de la realidad.

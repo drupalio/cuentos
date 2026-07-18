@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-el-informe-de-la-minoria/26514/
 
+
+**Imagen:** 0383-el-informe-de-la-minoría.webp
 ---
 
 Sinopsis:«El informe de la minoría»(The Minority Report)es un relato del escritor estadounidense Philip K. Dick, publicado en enero de 1956 en la revistaFantastic Universe. John A. Anderton es el comisionado de policía fundador de Precrimen, una agencia que detiene a los criminales antes de que cometan sus delitos gracias a las visiones de tres mutantes precognitivos, capaces de ver líneas alternativas de tiempo. Cuando Ed Witwer, un joven ambicioso, llega para ser su asistente y eventualmente reemplazarlo, Anderton empieza a sentirse desplazado y vulnerable. La rutina se quiebra cuando el sistema emite una tarjeta que lo señala a él mismo como un futuro asesino. Convencido de que su nuevo asistente le ha tendido una trampa para usurpar su puesto, Anderton huye para proteger su libertad y desentrañar una posible falla en las visiones de los precogs.

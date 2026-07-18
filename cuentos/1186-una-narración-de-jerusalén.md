@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-una-narracion-de-jerusalen/4749/
 
+
+**Imagen:** 1186-una-narración-de-jerusalén.jpg
 ---
 
 «Una narración de Jerusalén», cuento de Edgar Allan Poe, es un relato satírico ambientado en la Jerusalén de la antigüedad, durante un asedio romano. Los judíos han llegado a un acuerdo con el general Pompeyo, quien les ha prometido unos corderos para que puedan cumplir con los sacrificios rituales. Tres hombres del templo se dirigen a la muralla esperando que los romanos cumplan su compromiso, sin embargo, lo que reciben es algo muy distinto de lo que esperaban.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elena-garro-invitacion-al-campo/6720/
 
+
+**Imagen:** 0971-invitación-al-campo.webp
 ---
 
 Sinopsis:«Invitación al campo»es un cuento de Elena Garro, publicado en 1997 en la colecciónEl accidente y otros cuentos inéditos. La historia comienza con la visita inesperada de un ministro al hogar de Inés, una mujer que, sin comprender del todo el propósito del encuentro, acepta acompañarlo en una enigmática excursión campestre. Desde el primer momento, la figura del ministro impone un aura de poder y misterio que desconcierta a la protagonista. Lo que parece un simple paseo protocolar pronto adquiere un tono inquietante, transformándose en una travesía ambigua donde las fronteras entre lo real y lo fantástico se desdibujan.

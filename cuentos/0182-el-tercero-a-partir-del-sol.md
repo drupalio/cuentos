@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/richard-matheson-el-tercero-a-partir-del-sol/4196/
 
+
+**Imagen:** 0182-el-tercero-a-partir-del-sol.webp
 ---
 
 Sinopsis:«El tercero a partir del sol» (Third from the Sun) es un cuento del escritor estadounidense Richard Matheson, publicado en octubre de 1950 en la revistaGalaxy Science Fiction. En la madrugada, un hombre y su esposa se preparan en silencio para un viaje sin retorno. Junto a sus dos hijos pequeños y la familia vecina, abordarán la nave que él, piloto de pruebas, conoce a la perfección. La amenaza de una guerra inminente y la convicción de que su mundo está condenado los empujan a huir hacia otro sistema solar, mientras intentan despedirse de todo sin despertar sospechas.

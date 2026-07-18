@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/j-g-ballard-el-jardin-del-tiempo/13546/
 
+
+**Imagen:** 0340-el-jardín-del-tiempo.jpg
 ---
 
 Sinopsis: En «El jardín del tiempo«, cuento de J. G. Ballard publicado en febrero de 1962 enThe Magazine of Fantasy and Science Fiction, el conde Axel y su esposa residen en una villa remota. En este lugar, llevan una existencia idílica y opulenta, alejada de cualquier perturbación. No obstante, su paz se encuentra bajo amenaza constante por una multitud implacable de desposeídos que avanza hacia su propiedad. Su única protección son unas peculiares flores que crecen en su jardín, capaces de revertir el tiempo al ser destruidas. Aunque esta defensa les proporciona seguridad temporal, las flores son un recurso limitado.

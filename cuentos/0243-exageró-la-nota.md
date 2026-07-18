@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-exagero-la-nota/12948/
 
+
+**Imagen:** 0243-exageró-la-nota.jpg
 ---
 
 Sinopsis:«Exageró la nota» es un cuento deAntón Chéjov, publicado en 1885 en la revistaFragmentos. Narra el accidentado viaje del agrimensor Smirnov hacia una finca remota en la Rusia rural. Al no encontrar caballos de posta en la estación, contrata a un mujik taciturno y de aspecto sospechoso que lo conduce en una carreta desvencijada a través de un paraje desolado y helado. A medida que cae la noche, el agrimensor comienza a desconfiar de su acompañante y, dominado por el miedo, decide emplear una estrategia para protegerse y disuadirlo de cualquier posible ataque, sin imaginar las inesperadas consecuencias que esto traerá consigo.

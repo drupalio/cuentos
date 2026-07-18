@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/antonio-skarmeta-el-ciclista-del-san-cristobal/108/
 
+
+**Imagen:** 1191-el-ciclista-del-san-cristóbal.jpg
 ---
 
 El ciclista del San Cristóbales un conmovedor relato del escritor Antonio Skármeta publicado en la colecciónDesnudo en el tejado(1969). Cuenta la historia de un joven ciclista santiaguino que se prepara para una importante carrera en el Cerro San Cristóbal. En la víspera de la competición, su madre está gravemente enferma, y el ambiente en su hogar está marcado por la preocupación y la tensión. Mientras su padre lidia con la situación, el protagonista alterna entre sus deberes como atleta y el temor por la salud de su madre. La narrativa explora sus pensamientos más íntimos, la presión por la victoria y el peso de una noche interminable y cargada de emociones. El cuento fue llevado al cine con el títuloDer Radfahrer von San Cristobal, en una producción chileno-alemana dirigida por Peter Lilienthal estrenada en 1989.

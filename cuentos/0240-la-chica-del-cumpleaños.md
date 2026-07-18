@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/haruki-murakami-la-chica-del-cumpleanos/724/
 
+
+**Imagen:** 0240-la-chica-del-cumpleaños.webp
 ---
 
 Sinopsis: «La chica del cumpleaños» (Bāsudei gāru) es un cuento de Haruki Murakami, publicado en 2002 en la antologíaBāsudei sutōrīzu. Narra la experiencia de una joven camarera que, la noche de su vigésimo cumpleaños, debe cubrir el turno de una compañera enferma en un restaurante. Por una inesperada emergencia, le encargan llevar la cena al enigmático dueño del local, que vive recluido en una habitación del mismo edificio. Allí, en medio de una tarde lluviosa, el anciano le hace una inesperada proposición: un misterioso regalo que marcará su recuerdo de esa noche para siempre.

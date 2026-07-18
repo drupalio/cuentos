@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-carlos-onetti-el-infierno-tan-temido/23580/
 
+
+**Imagen:** 0838-el-infierno-tan-temido.webp
 ---
 
 Sinopsis: «El infierno tan temido» es uno de los cuentos más alabados de Juan Carlos Onetti. Publicado en 1957 en la revistaFiccióny recogido más tarde en el libroEl infierno tan temido y otros cuentos(1962), narra la turbulenta relación entre Risso, un periodista viudo, y Gracia César, una joven actriz veinte años menor que él. El vínculo, marcado por la pasión y el desencuentro, no tarda en mostrar grietas. Una noche, en la redacción del diario donde trabaja, Risso recibe un sobre con una perturbadora fotografía. Ese primer hallazgo da inicio a un ritual perverso que se convertirá en un mecanismo implacable de venganza y humillación.

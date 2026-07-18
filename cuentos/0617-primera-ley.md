@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-primera-ley/5108/
 
+
+**Imagen:** 0617-primera-ley.webp
 ---
 
 Sinopsis: «Primera ley» (First Law) es un cuento de Isaac Asimov publicado en octubre de 1956 en la revistaFantastic Universe. La historia sigue a Mike Donovan, un veterano en robótica, quien relata una insólita situación ocurrida en Titán, una de las lunas de Saturno. Allí, durante una misión minera, un modelo experimental de robot de la serie MA muestra un comportamiento inesperado que parece contradecir la Primera Ley de la robótica: «Un robot no puede dañar a un ser humano ni permitir, por inacción, que un ser humano sufra daño». La historia plantea una situación intrigante que desafía los principios fundamentales de la inteligencia artificial.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/brian-aldiss-los-superjuguetes-duran-todo-el-verano/5353/
 
+
+**Imagen:** 0377-los-superjuguetes-duran-todo-el-verano.webp
 ---
 
 Sinopsis:«Los superjuguetes duran todo el verano» (Super-Toys Last All Summer Long) es un cuento del escritor británico Brian Aldiss, publicado en diciembre de 1969 en la revistaHarper’s Bazaar. En un mundo superpoblado y altamente tecnificado, Mónica Swinton vive en una lujosa casa que mantiene a su familia aislada de las miserias del exterior. Pese a las comodidades de que disfruta, Mónica es una mujer solitaria e insatisfecha. Mientras su esposo dirige una gran compañía, ella pasa los días en el hogar con la única compañía de su hijo David y de Teddy, un oso de peluche mecanizado. Aunque David intenta acercarse a su madre, la soledad de Mónica parece necesitar algo más que al niño para llenarse.

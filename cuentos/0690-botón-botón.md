@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/richard-matheson-boton-boton/16874/
 
+
+**Imagen:** 0690-botón-botón.webp
 ---
 
 Sinopsis: «Botón, botón» (Button, Button) es un inquietante relato de Richard Matheson, publicado en la revistaPlayboyen junio de 1970. La historia sigue a Norma y Arthur Lewis, quienes reciben un extraño paquete en su apartamento de Nueva York. Dentro encuentran un dispositivo con un botón protegido por una cúpula de vidrio y una nota que anuncia la visita del señor Steward. Cuando este llega, les hace una perturbadora propuesta: si presionan el botón, una persona que no conocen morirá, y ellos recibirán cincuenta mil dólares. Este dilema pone a prueba la ética y las ambiciones más profundas de la pareja.

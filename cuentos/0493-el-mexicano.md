@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jack-london-el-mexicano/18469/
 
+
+**Imagen:** 0493-el-mexicano.webp
 ---
 
 Sinopsis:«El mexicano» (The Mexican), es un cuento de Jack London, publicado el 19 de agosto de 1911 enThe Saturday Evening Post. Narra la llegada de Felipe Rivera a una célula revolucionaria que lucha contra la dictadura de Porfirio Díaz en México. En un principio, Rivera, un joven enigmático, reservado y de mirada implacable, genera desconfianza entre los veteranos, quienes lo relegan a las tareas más humildes y degradantes. Sin embargo, su inquebrantable dedicación a la causa pronto queda en evidencia. Rivera, marcado por un pasado misterioso, parece dispuesto a cualquier sacrificio para contribuir al sueño revolucionario.

@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/harlan-ellison-jeffty-tiene-cinco-anos/8152/
 
+
+**Imagen:** 0338-jeffty-tiene-cinco-años.webp
 ---
 
 Sinopsis: «Jeffty tiene cinco años» (Jeffty Is Five) es uno de los relatos más premiados de Harlan Ellison, publicado en julio de 1977 enThe Magazine of Fantasy and Science Fiction. La narración sigue a un hombre que recuerda a su amigo de la infancia, Jeffty, un niño que parece anclado en el tiempo. Mientras los años pasan y el mundo se transforma, Jeffty permanece inmutable, con la mirada limpia y las preguntas ingenuas de los cinco años. Esta extraña condición convierte a Jeffty en un enigma viviente, un ser único y fascinante que desafía las leyes de la física y la lógica.

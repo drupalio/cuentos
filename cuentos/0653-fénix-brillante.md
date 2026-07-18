@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-fenix-brillante/18058/
 
+
+**Imagen:** 0653-fénix-brillante.png
 ---
 
 Sinopsis:«Fénix brillante» (Bright Phoenix) es un relato de Ray Bradbury, escrito en 1947 y publicado en 1963 enThe Magazine of Fantasy and Science Fiction. Este cuento es considerado el germen de la novela más célebre de Bradbury,Fahrenheit 451. Ambientada en Green Town, la historia comienza cuando la tranquila rutina de la biblioteca se ve interrumpida por Jonathan Barnes, el Jefe Censor, quien llega con la misión de confiscar y destruir libros bajo el pretexto de proteger a la sociedad. Tom, el bibliotecario, acompañado de un grupo de lectores habituales, responde con una resistencia silenciosa pero firme, transformando la biblioteca en un símbolo de lucha intelectual frente al autoritarismo.

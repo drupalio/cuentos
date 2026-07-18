@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alphonse-daudet-los-viejos/27262/
 
+
+**Imagen:** 0266-los-viejos.webp
 ---
 
 Sinopsis:«Los viejos» (Les vieux) es un cuento del escritor francés Alphonse Daudet, publicado enLe Figaroel 23 de octubre de 1868 y recogido luego en la colecciónLettres de mon moulin(1869). Un molinero de la Provenza recibe desde París una carta de un amigo en la que le hace una peculiar petición: que viaje hasta el pueblo de Eyguières para visitar a sus abuelos, a quienes no ve hace más de diez años. A regañadientes, el molinero emprende el viaje hasta una casa humilde contigua a un convento, donde encuentra a dos viejecitos que lo reciben con una emoción desbordante y una hospitalidad entrañable.

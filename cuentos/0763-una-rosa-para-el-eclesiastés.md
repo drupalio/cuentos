@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roger-zelazny-una-rosa-para-el-eclesiastes/24243/
 
+
+**Imagen:** 0763-una-rosa-para-el-eclesiastés.webp
 ---
 
 Sinopsis: «Una rosa para el Eclesiastés» (A Rose for Ecclesiastes) es un cuento de Roger Zelazny, publicado en noviembre de 1963 enThe Magazine of Fantasy and Science Fiction. Narra la historia de Gallinger, un brillante poeta y lingüista de la Tierra que viaja a Marte con el objetivo de estudiar la cultura de sus antiguos habitantes. Su extraordinario talento para las lenguas lo convierte en el primer humano en acceder a los registros sagrados de los marcianos, una sociedad matriarcal fundada en textos y tradiciones ancestrales cargadas de simbolismo y un trasfondo filosófico sombrío. Fascinado por este legado, Gallinger se adentra en un diálogo cultural que le revelará una antigua profecía.

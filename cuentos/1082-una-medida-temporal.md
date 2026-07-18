@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jhumpa-lahiri-una-medida-temporal/2642/
 
+
+**Imagen:** 1082-una-medida-temporal.webp
 ---
 
 Sinopsis:«Una medida temporal» (A Temporary Matter) es un cuento de Jhumpa Lahiri, publicado el 20 de abril de 1998 enThe New Yorker. Relata la historia de Shoba y Shukumar, un matrimonio indio-estadounidense que vive en Boston y cuya rutina se ve alterada por un corte de luz programado cada noche durante cinco días. En la penumbra de su casa, iluminados por velas y rodeados de vino y comida casera, inician un juego de confesiones íntimas que los obliga a enfrentarse a heridas latentes. A través de gestos cotidianos y silencios significativos, el relato revela las grietas emocionales causadas por una pérdida irreparable.

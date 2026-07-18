@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/manuel-rojas-el-vaso-de-leche/171/
 
+
+**Imagen:** 1172-el-vaso-de-leche.webp
 ---
 
 «El vaso de leche», cuento deManuel Rojas, narra la historia de un joven vagabundo en una ciudad portuaria a principios del siglo XX. Luchando contra la pobreza extrema y el hambre, el joven se enfrenta a su difícil realidad diaria, marcada por la soledad y la desesperación. En su búsqueda de sustento, experimenta momentos de orgullo y vulnerabilidad, reflejando la lucha humana por la dignidad en medio de la adversidad. Un encuentro casual en una lechería se convierte en un momento de intensa emoción, que revela la complejidad de las interacciones humanas en un mundo a menudo indiferente.

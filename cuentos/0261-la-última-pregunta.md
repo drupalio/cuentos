@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-la-ultima-pregunta/2411/
 
+
+**Imagen:** 0261-la-última-pregunta.jpg
 ---
 
 Sinopsis: «La última pregunta» (The Last Question) es un fascinante relato deIsaac Asimov, publicado en 1956 en la revistaScience Fiction Quarterly, que explora la evolución de la humanidad y la tecnología a lo largo de eones. La historia comienza en 2061, cuando dos técnicos de una avanzada computadora llamada Multivac discuten la posibilidad de que el ser humano pueda extraer energía del sol para siempre. Esta discusión lleva a la pregunta sobre cómo revertir la entropía del universo, una interrogante que se repite a lo largo de la narrativa a medida que la humanidad y la tecnología avanzan y se fusionan.

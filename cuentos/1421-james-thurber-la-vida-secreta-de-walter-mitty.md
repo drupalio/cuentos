@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/james-thurber-la-vida-secreta-walter-mitty/1243/
 
+
+**Imagen:** 1421-james-thurber-la-vida-secreta-de-walter-mitty.jpg
 ---
 
 «¡Vamos a pasar!» La voz del comandante sonó como una fina capa de hielo al resquebrajarse. El hombre vestía uniforme de gala, con la gorra blanca, llena de galones, calada con garbo sobre un ojo gris de fría mirada. «No lo conseguiremos, mi comandante. Si me permite, esto tiene aspecto de huracán». «No se lo permito, teniente Berg —dijo el comandante—. ¡Encended los reflectores! ¡Motores a ocho mil quinientas revoluciones! ¡Vamos a pasar!» El martilleo de los cilindros fue en aumento: ta tacatá tacatá tacatá tacatá tacatá. El comandante vio cristalizarse el hielo en la ventanilla del piloto. Se acercó al panel de mandos y giró una fila de intrincados diales. «¡Arrancad el auxiliar ocho!», aulló. «¡Arrancad el auxiliar ocho!», repitió el teniente Berg. «¡Dotación completa en la torreta tres! —aulló el comandante—. ¡Dotación completa en la torreta tres!»
