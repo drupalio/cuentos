@@ -14,6 +14,7 @@ tags:
 - [[0715-desde-más-allá|Desde más allá]]
 - [[0600-el-extraño|El extraño]]
 - [[0453-el-grabado-en-la-casa|El grabado en la casa]]
+- [[1525-el-modelo-de-pickman|El modelo de Pickman]]
 - [[0889-el-que-acecha-en-la-oscuridad|El que acecha en la oscuridad]]
 - [[0114-el-sabueso|El sabueso]]
 - [[0432-el-sepulcro|El sepulcro]]

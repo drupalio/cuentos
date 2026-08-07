@@ -1,0 +1,18 @@
+NEGATIVE PROMPT: cartoon, anime, bright colors, oversaturated, fun, childish, joyful, horror, dark, sad, messy, deformed, extra limbs, bad anatomy, watermark, text, heavy contrast, low detail, blurry, plastic look, AI artifacts, ugly, ugly face, weird eyes
+
+MAIN PROMPT:
+soft poetic medium shot, a young girl around 10 years old sitting in a sun-drenched garden under a blooming cherry blossom tree, she has a calm and intense expression — not sad, but deeply processing, her hands gently open catching falling pink petals, she wears a simple white dress slightly too big, barefoot on the grass, next to her on a weathered wooden garden table sits a ceramic tea set with two cups, steam rising from one, the other cup untouched, beside the table an older man is faintly suggested — almost transparent, rendered as if seen through water or memory, an outline of warmth and presence rather than a solid figure, he sits in an old wooden chair, his hands resting near the tea cups, his face obscured by dappled sunlight and gentle blur, like a ghost of love rather than loss, sunlight streams diagonally through the cherry tree branches, casting intricate lace-like shadows on the grass and the girl's dress, cherry blossom petals floating everywhere in soft focus, gentle warm golden hour
+
+STYLE: ethereal poetic watercolor-digital hybrid, reminiscent of James C. Christensen's magical realism combined with the softness of watercolor illustration, delicate brushstrokes visible, subtle paper texture overlay, soft glowing highlights, dreamy and tender atmosphere, highly detailed but soft, like a memory of a memory
+
+LIGHTING: late afternoon golden hour sunlight filtering through cherry blossoms, creating dappled light patterns (gobo effect), warm backlight creating golden rim light on the girl's hair and shoulders, soft fill light from the sky, the father figure lit slightly cooler and dimmer, as if illuminated by a different source
+
+COMPOSITION: rule of thirds with the girl in lower left third, the tea table in lower right third creating balance, the cherry tree dominating the upper two-thirds, the father figure in the upper right quadrant, framing created by overhanging branches, depth created by layered planes (petals foreground, girl midground, tree and father background)
+
+CAMERA: simulated 35mm full frame, aperture f/2.0, soft dreamy bokeh on background petals and the father figure, slight lens flare from the sun, subtle halation on highlights, warm filmic glow, very slight bloom, long lens compression creating intimate feel
+
+COLOR GRADING: warm pastel palette — soft pinks, cream whites, sage greens, warm golden beige, muted terracotta, father figure rendered in slightly desaturated cool-toned warmth to suggest memory, subtle sepia tone in shadows, filmic fade in highlights, gentle color harmony
+
+DETAILS: individual cherry blossom petals with visible veining, dappled light patterns on skin, tiny hairs catching light on the girl's arms, steam from tea visible in the warm light, a single petal resting on the untouched tea cup, subtle motion blur on falling petals, father's wedding ring faintly visible on his translucent hand
+
+--ar 2:3 --style raw --s 280 --v 6.1

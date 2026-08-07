@@ -2,6 +2,7 @@
 title: "La séptima víctima"
 author: "Robert Sheckley"
 source: 'https://lecturia.org/cuentos-y-relatos/robert-sheckley-la-septima-victima/28412/'
+image: "0025-la-séptima-víctima.webp"
 tags:
   - cuento
   - autor/robert-sheckley

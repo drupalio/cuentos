@@ -26,6 +26,7 @@ tags:
 - [[1194-el-hombre-muerto|El hombre muerto]]
 - [[0967-el-infierno-artificial|El infierno artificial]]
 - [[0131-el-llamado|El llamado]]
+- [[1531-el-lobisón|El lobisón]]
 - [[1235-el-loro-pelado|El loro pelado]]
 - [[0894-el-machito|El machito]]
 - [[0439-el-paso-del-yabebirí|El paso del Yabebirí]]

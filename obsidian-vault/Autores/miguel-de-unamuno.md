@@ -12,6 +12,7 @@ tags:
 - [[0226-abuelo-y-nieto|Abuelo y nieto]]
 - [[0003-al-correr-los-años|Al correr los años]]
 - [[0224-cruce-de-caminos|Cruce de caminos]]
+- [[1533-el-amor-que-asalta|El amor que asalta]]
 - [[0228-el-desquite|El desquite]]
 - [[0225-el-espejo-de-la-muerte|El espejo de la muerte]]
 - [[0081-el-que-se-enterró|El que se enterró]]

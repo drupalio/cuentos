@@ -9,6 +9,7 @@ tags:
 
 ## Cuentos
 
+- [[1532-clarisa|Clarisa]]
 - [[0328-dos-palabras|Dos palabras]]
 - [[0053-el-oro-de-tomás-vargas|El oro de Tomás Vargas]]
 - [[0325-la-gorda-de-porcelana|La gorda de porcelana]]

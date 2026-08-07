@@ -1,0 +1,18 @@
+NEGATIVE PROMPT: cartoon, anime, oversaturated, bright day, sunny, photorealistic people, horror, gore, explicit, deformed hands, bad anatomy, watermark, text overlay, low quality, blurry, distorted faces, heavy contrast HDR, fisheye, weird proportions
+
+MAIN PROMPT:
+cinematic wide shot, interior hallway of a vintage Buenos Aires apartment building at night, dim warm amber light spilling from under a slightly ajar wooden door, POV looking down the corridor, a single folded piece of paper on the floor tiles catching the light, faint translucent silhouette of a woman in a retro dress reflected on the wall as if made of dust motes and memory, jacaranda tree branches silhouetted against a rain-streaked window at the end of the hall, 35mm film grain, moody chiaroscuro lighting, deep shadows, shallow depth of field, earthy color palette of deep teal, oxidized copper, aged gold, and muted violet, decayed elegance, magical realism, emotional and melancholic atmosphere
+
+STYLE: magical realism digital painting, reminiscent of Remedios Varo meets Edward Hopper's nighttime interiors, heavy texture, oil paint on canvas simulation, soft diffuse glow around the light sources, subtle chromatic aberration, 8k resolution, high detail, rich atmospheric perspective
+
+LIGHTING: single warm point light from the door crack creating strong directional light, cool ambient moonlight from the window at the end creating color contrast, cinematic Rembrandt lighting on the floor details
+
+COMPOSITION: rule of thirds, leading lines from floor tiles and baseboards converging at the window, negative space emphasizing solitude, door slightly off-center right, paper as focal point in lower left third
+
+CAMERA: simulated 50mm full frame, aperture f/1.8, slight lens flare, subtle vignette, film ISO 800 grain texture
+
+COLOR GRADING: teal/orange complementary contrast, crushed blacks, lifted shadows in warm tones, desaturated midtones, slight split toning with warm highlights and cool shadows
+
+MOVEMENT: barely visible dust particles floating in the light beam, curtain moving slightly from a draft, all extremely subtle
+
+--ar 2:3 --style raw --s 250 --v 6.1

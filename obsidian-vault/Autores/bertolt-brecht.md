@@ -14,5 +14,6 @@ tags:
 - [[1466-bertolt-brecht-el-viaje-en-el-compartimiento|El viaje en el compartimiento]]
 - [[0430-la-anciana-indigna|La anciana indigna]]
 - [[0896-la-herida-de-sócrates|La herida de Sócrates]]
+- [[1522-la-madre-y-la-muerte|La madre y la muerte]]
 - [[1488-bertolt-brecht-los-dos-hijos|Los dos hijos]]
 - [[0803-si-los-tiburones-fueran-hombres|Si los tiburones fueran hombres]]

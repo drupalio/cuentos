@@ -16,6 +16,7 @@ tags:
 - [[1220-el-patito-feo|El patito feo]]
 - [[1182-el-soldadito-de-plomo|El soldadito de plomo]]
 - [[1232-el-traje-nuevo-del-emperador-o-el-rey-desnudo|El traje nuevo del emperador (o El rey desnudo)]]
+- [[1523-el-tullido|El tullido]]
 - [[0153-historia-de-una-madre|Historia de una madre]]
 - [[0577-la-niña-de-los-fósforos|La niña de los fósforos]]
 - [[1164-la-sirenita|La sirenita]]

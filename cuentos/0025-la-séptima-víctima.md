@@ -4,6 +4,8 @@
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-sheckley-la-septima-victima/28412/
 
+
+**Imagen:** 0025-la-séptima-víctima.webp
 ---
 
 Sinopsis:«La séptima víctima» (Seventh Victim) es un cuento del escritor estadounidense Robert Sheckley, publicado en abril de 1953 en la revistaGalaxy Science Fiction. En una sociedad futura que ha logrado acabar con las grandes guerras, el gobierno permite que los ciudadanos canalicen su violencia mediante asesinatos regulados por el Ministerio de Catarsis Emocional. Stanton Frelaine, un próspero sastre y Cazador experimentado, recibe la notificación para emprender su séptima cacería. Entusiasmado ante la posibilidad de acercarse al exclusivo Club de los Diez, viaja a Nueva York para localizar a la persona que le ha sido asignada. Sin embargo, al encontrarla, descubre que esta nueva misión no se parece a ninguna de las anteriores.

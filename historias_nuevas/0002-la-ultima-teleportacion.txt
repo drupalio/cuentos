@@ -1,0 +1,18 @@
+NEGATIVE PROMPT: cartoon, anime, cheesy sci-fi, 80s retro, neon cyberpunk, low detail, blurry, deformed anatomy, extra fingers, bad proportions, oversaturated, lens flare spam, chromatic aberration overload, cluttered composition, watermark, text
+
+MAIN PROMPT:
+intimate wide shot, a man and a woman sitting on a worn wooden windowsill in a small dim apartment at night, facing each other with foreheads touching, eyes closed, small metallic electrodes on their temples connected by faint glowing cyan threads, the window behind them reveals an impossible cosmic vista: a swirling nebula in deep magenta and teal, binary star system setting on the horizon of a ringed planet, floating crystalline dust particles catching starlight, the room itself is warm and mundane with cozy clutter — books, a teacup, a rug — creating stark contrast with the infinite universe outside, the woman's face has tear tracks catching the starlight, soft fabric textures on their clothes, hyperdetailed skin pores and eye lashes, shallow depth of field with the cosmic background slightly out of focus, volumetric light rays from the window illuminating dust motes
+
+STYLE: painterly sci-fi romance, blend of WLOP painterly style and Simon Stålenhag's muted retro-futurism, thick oil paint texture with digital sharpness, velvety softness on skin, highly detailed, emotional tender atmosphere
+
+LIGHTING: warm incandescent interior light from a bedside lamp (color temp 2700K) illuminating the faces from below and side, cool cosmic light from outside (color temp 6500K) creating rim light on their silhouettes, dramatic yet soft, Rembrandt triangle on the man's face
+
+COMPOSITION: symmetrical composition with the window as a frame-within-a-frame, couple centered in lower half, cosmic vista occupying upper two-thirds, their hands resting on each other's knees in the bottom third, intimate close framing
+
+CAMERA: simulated 85mm portrait lens, aperture f/1.4, creamy bokeh on the cosmic background, extremely shallow depth of field, slight dreamy soft bloom on highlights, anamorphic flare horizontal streaks on bright stars
+
+COLOR GRADING: complementary teal (cosmos) and warm amber (room), skin tones kept natural and warm, deep rich shadows with subtle blue tones, cinematic film emulation with slight halation around bright stars, subtle bloom on the nebula
+
+DETAILS: individual hair strands visible, fabric weave on clothes, tiny reflections of the cosmos in their eyes, one single tear mid-fall caught in starlight, the cyan thread glow casting subtle light on their cheekbones
+
+--ar 2:3 --style raw --s 300 --v 6.1
