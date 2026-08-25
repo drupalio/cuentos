@@ -11,6 +11,7 @@ tags:
 
 - [[0015-cómo-unos-niños-jugaron-a-la-matanza|Cómo unos niños jugaron a la matanza]]
 - [[0052-el-enebro|El enebro]]
+- [[1536-el-novio-bandido|El novio bandido]]
 - [[0028-el-pájaro-del-brujo|El pájaro del brujo]]
 - [[1217-hänsel-y-gretel-o-juanito-y-margarita|Hänsel y Gretel (o Juanito y Margarita)]]
 - [[1075-la-bella-durmiente|La bella durmiente]]
