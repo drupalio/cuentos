@@ -32,8 +32,6 @@ export default defineNuxtConfig({
     },
   },
 
-  // GitHub Pages: Cambia esto por el nombre de tu repositorio
-  // Ejemplo: '/cuentoschinguguanchones/'
-  // Si es una página de usuario (username.github.io), déjalo en '/'
-  // base: '/cuentoschinguguanchones/',
+  // GitHub Pages
+  base: '/cuentos/',
 })
