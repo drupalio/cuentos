@@ -10,4 +10,5 @@ tags:
 ## Cuentos
 
 - [[1070-la-estrella-sobre-el-bosque|La estrella sobre el bosque]]
+- [[1568-la-estrella-sobre-el-bosque|La estrella sobre el bosque]]
 - [[0773-sueños-olvidados|Sueños olvidados]]

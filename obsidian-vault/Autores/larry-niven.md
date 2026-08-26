@@ -10,3 +10,4 @@ tags:
 ## Cuentos
 
 - [[0501-luna-inconstante|Luna inconstante]]
+- [[1573-luna-inconstante|Luna inconstante]]

@@ -135,9 +135,35 @@ img {
   background: var(--white);
   border-radius: 12px;
   padding: 1.5rem;
+  padding-right: 3rem;
   width: 90%;
   max-width: 600px;
   box-shadow: 0 20px 60px rgba(0, 0, 0, 0.15);
+  position: relative;
+}
+
+.search-close {
+  position: absolute;
+  top: 1rem;
+  right: 1rem;
+  background: none;
+  border: none;
+  cursor: pointer;
+  color: var(--text-muted);
+  padding: 0.25rem;
+  display: flex;
+  border-radius: 50%;
+  transition: color 0.2s, background 0.2s;
+}
+
+.search-close:hover {
+  color: var(--text);
+  background: var(--border);
+}
+
+.search-close svg {
+  width: 1.25rem;
+  height: 1.25rem;
 }
 
 .search-box input {

@@ -10,4 +10,5 @@ tags:
 ## Cuentos
 
 - [[1372-william-faulkner-incendiar-establos|Incendiar establos]]
+- [[1570-william-faulkner-incendiar-establos|Incendiar establos]]
 - [[0472-una-rosa-para-emily|Una rosa para Emily]]

@@ -17,6 +17,7 @@ export const useCuentosStore = defineStore('cuentos', {
     loaded: false,
     searchQuery: '',
     selectedAuthor: '',
+    showSearch: false,
   }),
 
   getters: {
@@ -68,6 +69,14 @@ export const useCuentosStore = defineStore('cuentos', {
 
     setSearch(query: string) {
       this.searchQuery = query
+    },
+
+    toggleSearch() {
+      this.showSearch = !this.showSearch
+    },
+
+    closeSearch() {
+      this.showSearch = false
     },
 
     setAuthor(author: string) {

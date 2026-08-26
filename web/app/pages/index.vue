@@ -24,15 +24,18 @@
 
     <!-- Search overlay -->
     <Teleport to="body">
-      <div class="search-overlay" :class="{ active: showSearch }" @click.self="showSearch = false">
+      <div class="search-overlay" :class="{ active: showSearch }" @click.self="store.closeSearch()">
         <div class="search-box">
+          <button class="search-close" @click="store.closeSearch()" aria-label="Cerrar">
+            <svg xmlns="http://www.w3.org/2000/svg" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round"><line x1="18" y1="6" x2="6" y2="18"/><line x1="6" y1="6" x2="18" y2="18"/></svg>
+          </button>
           <input
             ref="searchInput"
             v-model="searchQuery"
             type="text"
             placeholder="Buscar..."
             @input="onSearch"
-            @keydown.escape="showSearch = false"
+            @keydown.escape="store.closeSearch()"
           />
         </div>
       </div>
@@ -47,10 +50,10 @@ const store = useCuentosStore()
 await store.fetchStories()
 
 const searchQuery = ref('')
-const showSearch = ref(false)
 const displayCount = ref(80)
 const searchInput = ref<HTMLInputElement>()
 
+const showSearch = computed(() => store.showSearch)
 const totalFiltered = computed(() => store.filteredStories.length)
 const displayedStories = computed(() => store.filteredStories.slice(0, displayCount.value))
 
@@ -63,10 +66,6 @@ function loadMore() {
   displayCount.value += 80
 }
 
-// Expose showSearch for parent
-defineExpose({ showSearch })
-
-// Watch for search toggle from layout
 watch(showSearch, (val) => {
   if (val) {
     nextTick(() => searchInput.value?.focus())

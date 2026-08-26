@@ -52,6 +52,7 @@ tags:
 - [[1023-primer-amor|Primer amor]]
 - [[1197-suerte-macabra|Suerte macabra]]
 - [[0350-un-destripador-de-antaño|Un destripador de antaño]]
+- [[1561-un-destripador-de-antaño|Un destripador de antaño]]
 - [[0120-vampiro|Vampiro]]
 - [[1079-viernes-santo|Viernes Santo]]
 - [[0921-voz-de-la-sangre|Voz de la sangre]]

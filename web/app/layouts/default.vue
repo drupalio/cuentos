@@ -7,7 +7,7 @@
           <NuxtLink to="/">Portada</NuxtLink>
           <NuxtLink to="/autores">Autores</NuxtLink>
           <a href="https://lecturia.org" target="_blank" rel="noopener">Lecturia.org</a>
-          <button class="search-toggle" @click="$emit('toggleSearch')" aria-label="Buscar">
+          <button class="search-toggle" @click="store.toggleSearch()" aria-label="Buscar">
             <svg xmlns="http://www.w3.org/2000/svg" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round"><circle cx="11" cy="11" r="8"/><line x1="21" y1="21" x2="16.65" y2="16.65"/></svg>
           </button>
         </nav>
@@ -41,7 +41,8 @@
 </template>
 
 <script setup lang="ts">
-defineEmits(['toggleSearch'])
+import { useCuentosStore } from '~/stores/cuentos'
+const store = useCuentosStore()
 const mobileOpen = ref(false)
 </script>
 
