@@ -1,2 +1,8 @@
 cuentos_lecturia.epub
 .obsidian/
+
+# Web
+web/node_modules/
+web/.nuxt/
+web/.output/
+web/.data/

@@ -3,6 +3,10 @@ set -e
 
 cd "$(dirname "$0")"
 
+# Load nvm
+export NVM_DIR="$HOME/.nvm"
+[ -s "$NVM_DIR/nvm.sh" ] && . "$NVM_DIR/nvm.sh"
+
 echo "=== 1. Descargando cuentos nuevos ==="
 python3 scraper.py
 
@@ -15,7 +19,15 @@ python3 to_obsidian.py
 echo -e "\n=== 4. Regenerando EPUB ==="
 python3 build_epub.py
 
-echo -e "\n=== 5. Commiteando cambios ==="
+echo -e "\n=== 5. Generando datos para la web ==="
+python3 generate_site_data.py
+
+echo -e "\n=== 6. Construyendo la web ==="
+cd web
+npm run generate
+cd ..
+
+echo -e "\n=== 7. Commiteando cambios ==="
 git add -A
 if git diff --cached --quiet; then
     echo "No hay cambios para commitear."
