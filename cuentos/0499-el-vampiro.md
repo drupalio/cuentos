@@ -1,6 +1,6 @@
 # El vampiro
 
-**Autor:** Juan Pablo Guevara
+**Autor:** John William Polidori
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/john-william-polidori-el-vampiro/18378/
 

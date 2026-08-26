@@ -1,6 +1,6 @@
 # Graham Greene: Deberes especiales
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Graham Greene
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/graham-greene-deberes-especiales/937/
 

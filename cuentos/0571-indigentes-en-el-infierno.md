@@ -1,6 +1,6 @@
 # Indigentes en el infierno
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Orson Scott Card
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/orson-scott-card-indigentes-en-el-infierno/25498/
 

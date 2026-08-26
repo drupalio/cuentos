@@ -1,6 +1,6 @@
 # Adán sin Eva
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Alfred Bester
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alfred-bester-adan-sin-eva/26025/
 

@@ -1,6 +1,6 @@
 # La compuerta número 12
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Baldomero Lillo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/baldomero-lillo-la-compuerta-numero-12/5126/
 

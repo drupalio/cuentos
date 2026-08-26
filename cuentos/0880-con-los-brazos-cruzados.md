@@ -1,6 +1,6 @@
 # Con los brazos cruzados
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Jack Williamson
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jack-williamson-con-los-brazos-cruzados/23428/
 

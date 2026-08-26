@@ -1,11 +1,11 @@
 ---
 title: "Una se va quedando"
-author: "Juan Pablo Guevara"
+author: 'Autor: Hebe UhartTítulo: Una se va quedandoPublicado en:Guiando la hiedra, 1997'
 source: 'https://lecturia.org/cuentos-y-relatos/hebe-uhart-una-se-va-quedando/6334/'
 image: "1287-una-se-va-quedando.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/autor-hebe-uharttítulo-una-se-va-quedandopublicado-enguiando
 ---
 
 # Una se va quedando

@@ -1,6 +1,6 @@
 # Marque F de Frankenstein
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Arthur C. Clarke
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-c-clarke-marque-f-de-frankenstein/20679/
 

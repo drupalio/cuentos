@@ -1,6 +1,6 @@
 # La salud de los enfermos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Cortázar
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-la-salud-de-los-enfermos/23892/
 

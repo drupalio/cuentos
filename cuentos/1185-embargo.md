@@ -1,6 +1,6 @@
 # Embargo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** José Saramago
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-saramago-embargo/5368/
 

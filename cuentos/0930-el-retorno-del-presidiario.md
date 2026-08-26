@@ -1,6 +1,6 @@
 # El retorno del presidiario
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Charles Dickens
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/charles-dickens-el-retorno-del-presidiario/14754/
 

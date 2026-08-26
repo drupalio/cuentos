@@ -1,6 +1,6 @@
 # La posibilidad del mal
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Shirley Jackson
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/shirley-jackson-la-posibilidad-del-mal/28229/
 

@@ -1,6 +1,6 @@
 # Los nueve mil millones de nombres de Dios
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Arthur C. Clarke
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-c-clarke-los-nueve-mil-millones-de-nombres-de-dios/2173/
 

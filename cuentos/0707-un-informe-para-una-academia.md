@@ -1,6 +1,6 @@
 # Un informe para una academia
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Franz Kafka
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/franz-kafka-un-informe-para-una-academia/24136/
 

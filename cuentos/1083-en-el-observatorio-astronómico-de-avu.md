@@ -1,6 +1,6 @@
 # En el observatorio astronómico de Avu
 
-**Autor:** Juan Pablo Guevara
+**Autor:** H. G. Wells
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-g-wells-en-el-observatorio-astronomico-de-avu/21407/
 

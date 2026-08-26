@@ -1,6 +1,6 @@
 # El sacerdote y su amor
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Yukio Mishima
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/yukio-mishima-sacerdote-amor/1041/
 

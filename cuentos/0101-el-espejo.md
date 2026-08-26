@@ -1,6 +1,6 @@
 # El espejo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Haruki Murakami
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/haruki-murakami-el-espejo/28072/
 

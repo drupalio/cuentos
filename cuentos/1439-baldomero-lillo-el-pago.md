@@ -1,6 +1,6 @@
 # Baldomero Lillo: El pago
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Baldomero Lillo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/baldomero-lillo-pago/655/
 

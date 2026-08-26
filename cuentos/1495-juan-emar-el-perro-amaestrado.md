@@ -1,6 +1,6 @@
 # Juan Emar: El perro amaestrado
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan Emar
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-emar-perro-amaestrado/1236/
 

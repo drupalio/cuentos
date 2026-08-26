@@ -1,6 +1,6 @@
 # Dimensiones
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Alice Munro
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alice-munro-dimensiones/833/
 

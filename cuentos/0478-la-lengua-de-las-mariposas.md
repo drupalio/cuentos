@@ -1,6 +1,6 @@
 # La lengua de las mariposas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Manuel Rivas
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/manuel-rivas-la-lengua-de-las-mariposas/25942/
 

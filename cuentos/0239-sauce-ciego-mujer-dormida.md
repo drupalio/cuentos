@@ -1,6 +1,6 @@
 # Sauce ciego, mujer dormida
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Haruki Murakami
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/haruki-murakami-sauce-ciego-mujer-dormida/664/
 

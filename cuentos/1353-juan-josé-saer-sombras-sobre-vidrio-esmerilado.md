@@ -1,6 +1,6 @@
 # Juan José Saer: Sombras sobre vidrio esmerilado
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan José Saer
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-jose-saer-sombras-sobre-vidrio-esmerilado/4225/
 

@@ -10,3 +10,4 @@ tags:
 ## Cuentos
 
 - [[0720-los-muertos-se-vengan|Los muertos se vengan]]
+- [[1558-los-muertos-se-vengan|Los muertos se vengan]]

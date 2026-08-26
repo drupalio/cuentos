@@ -1,6 +1,6 @@
 # El hermano y la hermana: Una historia italiana
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mary Shelley
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mary-shelley-el-hermano-y-la-hermana/23794/
 

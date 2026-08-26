@@ -1,6 +1,6 @@
 # La patrona
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Roald Dahl
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roald-dahl-la-patrona/2700/
 

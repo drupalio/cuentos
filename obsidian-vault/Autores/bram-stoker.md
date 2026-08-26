@@ -14,6 +14,7 @@ tags:
 - [[0987-el-invitado-de-drácula|El invitado de Drácula]]
 - [[0881-el-regreso-de-abel-behenna|El regreso de Abel Behenna]]
 - [[0309-el-secreto-del-oro-que-crece|El secreto del oro que crece]]
+- [[1549-el-secreto-del-oro-que-crece|El secreto del oro que crece]]
 - [[0296-gibbet-hill|Gibbet Hill]]
 - [[0745-la-casa-del-juez|La casa del juez]]
 - [[1072-la-mujer-india|La mujer india]]

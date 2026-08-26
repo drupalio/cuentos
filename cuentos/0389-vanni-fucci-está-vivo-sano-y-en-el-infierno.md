@@ -1,6 +1,6 @@
 # Vanni Fucci está vivo, sano y en el infierno
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Dan Simmons
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/dan-simmons-vanni-fucci-esta-vivo-sano-y-en-el-infierno/26476/
 

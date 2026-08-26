@@ -1,6 +1,6 @@
 # El caso del Baile de la Victoria
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Agatha Christie
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/agatha-christie-el-caso-del-baile-de-la-victoria/6479/
 

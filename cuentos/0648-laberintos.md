@@ -1,6 +1,6 @@
 # Laberintos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ursula K. Le Guin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ursula-k-le-guin-laberintos/25001/
 

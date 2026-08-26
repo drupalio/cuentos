@@ -1,6 +1,6 @@
 # ¡Vuela, paloma!
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Leonora Carrington
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/leonora-carrington-vuela-paloma/26458/
 

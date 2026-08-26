@@ -1,6 +1,6 @@
 # El Duende
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Elena Garro
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elena-garro-el-duende/6421/
 

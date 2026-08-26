@@ -1,6 +1,6 @@
 # Su boca sabrá a ajenjo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Poppy Z. Brite
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/poppy-z-brite-su-boca-sabra-a-ajenjo/16014/
 

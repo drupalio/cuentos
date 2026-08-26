@@ -1,6 +1,6 @@
 # Lev Tolstói: La incursión
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Lev Tolstoi
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/lev-tolstoi-la-incursion/4416/
 

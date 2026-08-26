@@ -1,6 +1,6 @@
 # Alguien desordena estas rosas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gabriel García Márquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-alguien-desordena-estas-rosas/14222/
 

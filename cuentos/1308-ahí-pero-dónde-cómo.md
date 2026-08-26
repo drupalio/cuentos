@@ -1,6 +1,6 @@
 # Ahí pero dónde, cómo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Autor:Julio CortázarTítulo: Ahí pero dónde, cómoPublicado en:Octaedro, 1974
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-ahi-pero-donde-como/5623/
 

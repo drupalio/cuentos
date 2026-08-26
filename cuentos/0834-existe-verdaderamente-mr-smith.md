@@ -1,6 +1,6 @@
 # ¿Existe verdaderamente Mr. Smith?
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Stanislaw Lem
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stanislaw-lem-existe-verdaderamente-mr-smith/6469/
 

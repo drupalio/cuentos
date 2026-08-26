@@ -1,6 +1,6 @@
 # El vestido de terciopelo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Silvina Ocampo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/silvina-ocampo-el-vestido-de-terciopelo/5575/
 

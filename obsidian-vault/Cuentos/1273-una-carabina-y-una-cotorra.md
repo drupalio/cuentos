@@ -1,11 +1,11 @@
 ---
 title: "Una carabina y una cotorra"
-author: "Juan Pablo Guevara"
+author: "Manuel Rojas"
 source: 'https://lecturia.org/cuentos-y-relatos/manuel-rojas-una-carabina-una-cotorra/683/'
 image: "1273-una-carabina-y-una-cotorra.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/manuel-rojas
 ---
 
 # Una carabina y una cotorra

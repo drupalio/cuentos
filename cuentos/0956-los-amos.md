@@ -1,6 +1,6 @@
 # Los amos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan Bosch
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-bosch-los-amos/132/
 

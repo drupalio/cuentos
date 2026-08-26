@@ -1,6 +1,6 @@
 # Rudyard Kipling: Con el correo nocturno
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Rudyard Kipling
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/rudyard-kipling-con-el-correo-nocturno/2863/
 

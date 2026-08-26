@@ -1,6 +1,6 @@
 # La última noche del mundo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ray Bradbury
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-la-ultima-noche-del-mundo/5110/
 

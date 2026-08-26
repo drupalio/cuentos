@@ -1,6 +1,6 @@
 # Pancho Rojas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Manuel Rojas
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/manuel-rojas-pancho-rojas/4454/
 

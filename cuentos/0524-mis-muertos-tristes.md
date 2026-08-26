@@ -1,6 +1,6 @@
 # Mis muertos tristes
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mariana Enríquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mariana-enriquez-mis-muertos-tristes/17882/
 

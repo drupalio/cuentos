@@ -1,6 +1,6 @@
 # La mayor presa de Ming
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Patricia Highsmith
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/patricia-highsmith-la-mayor-presa-de-ming/22446/
 

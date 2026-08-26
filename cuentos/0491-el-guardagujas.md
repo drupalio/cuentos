@@ -1,6 +1,6 @@
 # El guardagujas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan José Arreola
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-jose-arreola-el-guardagujas/5258/
 

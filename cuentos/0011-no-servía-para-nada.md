@@ -1,6 +1,6 @@
 # No servía para nada
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Hans Christian Andersen
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hans-christian-andersen-no-servia-para-nada/28504/
 

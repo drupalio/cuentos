@@ -1,6 +1,6 @@
 # Una aventura nocturna
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Ramón Ribeyro
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-una-aventura-nocturna/2630/
 

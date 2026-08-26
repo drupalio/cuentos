@@ -1,6 +1,6 @@
 # La mujer india
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Bram Stoker
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bram-stoker-la-mujer-india/8245/
 

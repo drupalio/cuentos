@@ -1,6 +1,6 @@
 # Una llamada telefónica
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Dorothy Parker
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/dorothy-parker-una-llamada-telefonica/2441/
 

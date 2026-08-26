@@ -1,6 +1,6 @@
 # Enrique Lihn: Para Eva
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Camilo Marks
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/enrique-lihn-para-eva/180/
 

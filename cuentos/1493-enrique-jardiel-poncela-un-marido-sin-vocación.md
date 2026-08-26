@@ -1,6 +1,6 @@
 # Enrique Jardiel Poncela: Un marido sin vocación
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Enrique Jardiel Poncela
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/enrique-jardiel-poncela-un-marido-sin-vocacion/2160/
 

@@ -1,6 +1,6 @@
 # Primera ley
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isaac Asimov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-primera-ley/5108/
 

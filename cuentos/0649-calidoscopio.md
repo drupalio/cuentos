@@ -1,6 +1,6 @@
 # Calidoscopio
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ray Bradbury
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-calidoscopio/6392/
 

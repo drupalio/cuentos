@@ -1,6 +1,6 @@
 # Luis Enrique Délano: La niña de la prisión
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Luis Enrique Delano
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/luis-enrique-delano-la-nina-de-la-prision/138/
 

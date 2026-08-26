@@ -1,6 +1,6 @@
 # Wilkie Collins: Cazador cazado
 
-**Autor:** Juan Pablo Guevara
+**Autor:** William Wilkie Collins
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/wilkie-collins-cazador-cazado/2353/
 

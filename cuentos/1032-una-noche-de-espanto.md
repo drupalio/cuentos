@@ -1,6 +1,6 @@
 # Una noche de espanto
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Antón Chéjov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-una-noche-de-espanto/4099/
 

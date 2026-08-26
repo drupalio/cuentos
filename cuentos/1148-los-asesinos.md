@@ -1,6 +1,6 @@
 # Los asesinos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ernest Hemingway
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ernest-hemingway-los-asesinos/2687/
 

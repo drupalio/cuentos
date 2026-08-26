@@ -1,6 +1,6 @@
 # Después del baile
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Lev Tolstói
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/lev-tolstoi-despues-del-baile/21889/
 

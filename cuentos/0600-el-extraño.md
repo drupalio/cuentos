@@ -1,6 +1,6 @@
 # El extraño
 
-**Autor:** Juan Pablo Guevara
+**Autor:** H. P. Lovecraft
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-el-extrano/5183/
 

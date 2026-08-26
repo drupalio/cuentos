@@ -1,6 +1,6 @@
 # La reina de la Costa Negra
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert E. Howard
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-e-howard-la-reina-de-la-costa-negra/16100/
 

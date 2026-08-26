@@ -1,6 +1,6 @@
 # El Otro Yo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mario Benedetti
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-el-otro-yo/6344/
 

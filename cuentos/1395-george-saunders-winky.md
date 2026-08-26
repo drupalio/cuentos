@@ -1,6 +1,6 @@
 # George Saunders: Winky
 
-**Autor:** Juan Pablo Guevara
+**Autor:** George Saunders
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/george-saunders-winky/2389/
 

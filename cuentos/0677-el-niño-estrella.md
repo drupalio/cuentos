@@ -1,6 +1,6 @@
 # El niño-estrella
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Oscar Wilde
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/oscar-wilde-el-nino-estrella/6900/
 

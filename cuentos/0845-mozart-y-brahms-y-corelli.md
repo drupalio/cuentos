@@ -1,6 +1,6 @@
 # Mozart, y Brahms, y Corelli
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Almudena Grandes
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/almudena-grandes-mozart-y-brahms-y-corelli/23470/
 

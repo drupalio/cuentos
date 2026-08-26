@@ -1,6 +1,6 @@
 # Llama el teléfono, Delia
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Cortázar
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-llama-el-telefono-delia/2062/
 

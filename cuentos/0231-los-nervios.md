@@ -1,6 +1,6 @@
 # Los nervios
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Antón Chéjov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-los-nervios/5218/
 

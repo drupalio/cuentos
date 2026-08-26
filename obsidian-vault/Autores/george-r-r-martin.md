@@ -9,6 +9,7 @@ tags:
 
 ## Cuentos
 
+- [[0684-el-camino-de-la-cruz-y-el-dragón|El camino de la Cruz y el Dragón]]
 - [[0631-el-hombre-de-la-casa-de-carne|El hombre de la casa de carne]]
 - [[1184-en-las-tierras-perdidas|En las tierras perdidas]]
 - [[0318-las-brumas-se-ponen-por-la-mañana|Las brumas se ponen por la mañana]]

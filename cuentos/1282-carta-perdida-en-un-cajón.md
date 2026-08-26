@@ -1,6 +1,6 @@
 # Carta perdida en un cajón
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Silvina Ocampo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/silvina-ocampo-carta-perdida-en-un-cajon/6503/
 

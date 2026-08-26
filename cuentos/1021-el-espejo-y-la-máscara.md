@@ -1,6 +1,6 @@
 # El espejo y la máscara
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Jorge Luis Borges
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-el-espejo-y-la-mascara/8357/
 

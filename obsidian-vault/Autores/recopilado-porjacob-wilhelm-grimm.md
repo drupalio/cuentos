@@ -9,4 +9,5 @@ tags:
 
 ## Cuentos
 
+- [[1112-blancanieves|Blancanieves]]
 - [[1216-caperucita-roja|Caperucita Roja]]

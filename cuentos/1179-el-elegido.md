@@ -1,6 +1,6 @@
 # El Elegido
 
-**Autor:** Juan Pablo Guevara
+**Autor:** María Esther Vázquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/maria-esther-vazquez-el-elegido/2251/
 

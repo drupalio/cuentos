@@ -1,6 +1,6 @@
 # Ernest Hemingway: El fin de algo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ernest Hemingway
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ernest-hemingway-el-fin-de-algo/5426/
 

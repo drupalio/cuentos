@@ -1,11 +1,11 @@
 ---
 title: "Bestiario"
-author: "Juan Pablo Guevara"
+author: 'Autor:Mario BenedettiTítulo: BestiarioPublicado en:Despistes y franquezas, 1989'
 source: 'https://lecturia.org/cuentos-y-relatos/mario-benedetti-bestiario/6810/'
 image: "1266-bestiario.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/autormario-benedettitítulo-bestiariopublicado-endespistes-y-
 ---
 
 # Bestiario

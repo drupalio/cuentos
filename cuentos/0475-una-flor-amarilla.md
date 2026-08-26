@@ -1,6 +1,6 @@
 # Una flor amarilla
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Cortázar
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-una-flor-amarilla/8511/
 

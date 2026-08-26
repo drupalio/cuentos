@@ -1,11 +1,11 @@
 ---
 title: "El rapto del sol"
-author: "Juan Pablo Guevara"
+author: "Baldomero Lillo"
 source: 'https://lecturia.org/cuentos-y-relatos/baldomero-lillo-el-rapto-del-sol/6186/'
 image: "1307-el-rapto-del-sol.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/baldomero-lillo
 ---
 
 # El rapto del sol

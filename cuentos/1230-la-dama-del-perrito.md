@@ -1,6 +1,6 @@
 # La dama del perrito
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Antón Chéjov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-la-dama-del-perrito/12016/
 

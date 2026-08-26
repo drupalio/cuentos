@@ -1,11 +1,11 @@
 ---
 title: "El examen"
-author: "Juan Pablo Guevara"
+author: "Richard Matheson publicado en noviembre de 1954 en la revistaThe Magazine of Fantasy and Science Fiction. La historia transcurre en un futuro en el que se ha legalizado la eutanasia forzada y las personas mayores deben someterse a pruebas periódicas para determinar si merecen seguir viviendo. Tom Parker"
 source: 'https://lecturia.org/cuentos-y-relatos/richard-matheson-el-examen/23163/'
 image: "0905-el-examen.webp"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/richard-matheson-publicado-en-noviembre-de-1954-en-la-revist
 ---
 
 # El examen

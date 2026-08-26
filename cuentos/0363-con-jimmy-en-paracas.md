@@ -1,6 +1,6 @@
 # Con Jimmy, en Paracas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Alfredo Bryce Echenique
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alfredo-bryce-echenique-con-jimmy-en-paracas/128/
 

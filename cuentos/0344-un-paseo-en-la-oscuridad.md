@@ -1,6 +1,6 @@
 # Un paseo en la oscuridad
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Arthur C. Clarke
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-c-clarke-un-paseo-en-la-oscuridad/24028/
 

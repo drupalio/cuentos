@@ -1,6 +1,6 @@
 # Como una buena madre
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ana María Shua
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ana-maria-shua-como-una-buena-madre/26158/
 

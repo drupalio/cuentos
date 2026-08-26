@@ -1,6 +1,6 @@
 # El espejo de la muerte
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Miguel de Unamuno
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/miguel-de-unamuno-el-espejo-de-la-muerte/3904/
 

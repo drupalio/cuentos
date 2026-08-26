@@ -1,6 +1,6 @@
 # El anillo de Thoth
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Arthur Conan Doyle
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-conan-doyle-el-anillo-de-thoth/16453/
 

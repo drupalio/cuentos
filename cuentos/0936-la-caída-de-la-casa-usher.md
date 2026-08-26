@@ -1,6 +1,6 @@
 # La caída de la Casa Usher
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edgar Allan Poe
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-la-caida-de-la-casa-usher/14844/
 

@@ -1,6 +1,6 @@
 # El chal
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Cynthia Ozick
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/cynthia-ozick-el-chal/4166/
 

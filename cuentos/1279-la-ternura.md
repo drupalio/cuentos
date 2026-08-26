@@ -1,6 +1,6 @@
 # La ternura
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Nicomedes Guzman
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/nicomedes-guzman-la-ternura/993/
 

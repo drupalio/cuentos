@@ -1,6 +1,6 @@
 # Bajo el sauce
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Hans Christian Andersen
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hans-christian-andersen-bajo-el-sauce/28014/
 

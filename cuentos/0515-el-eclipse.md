@@ -1,6 +1,6 @@
 # El eclipse
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Augusto Monterroso
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/augusto-monterroso-el-eclipse/10882/
 

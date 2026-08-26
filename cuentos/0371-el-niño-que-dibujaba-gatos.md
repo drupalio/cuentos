@@ -1,6 +1,6 @@
 # El niño que dibujaba gatos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Lafcadio Hearn
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/lafcadio-hearn-el-nino-que-dibujaba-gatos/25488/
 

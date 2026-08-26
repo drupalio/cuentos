@@ -1,6 +1,6 @@
 # El deseo de Navidad de Pat Hobby
 
-**Autor:** Juan Pablo Guevara
+**Autor:** F. Scott Fitzgerald n
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/f-scott-fitzgerald-el-deseo-de-navidad-de-pat-hobby/6491/
 

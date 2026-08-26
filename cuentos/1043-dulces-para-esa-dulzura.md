@@ -1,6 +1,6 @@
 # Dulces para esa dulzura
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Bloch
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-dulces-para-esa-dulzura/13272/
 

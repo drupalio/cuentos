@@ -1,6 +1,6 @@
 # No tengo boca y debo gritar
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Harlan Ellison
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/harlan-ellison-no-tengo-boca-y-debo-gritar/23127/
 

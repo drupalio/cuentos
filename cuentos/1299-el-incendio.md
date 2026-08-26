@@ -1,6 +1,6 @@
 # El incendio
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ana Maria Matute
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ana-maria-matute-el-incendio/6318/
 

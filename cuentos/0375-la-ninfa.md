@@ -1,6 +1,6 @@
 # La Ninfa
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Rubén Darío
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ruben-dario-la-ninfa/5466/
 

@@ -1,6 +1,6 @@
 # Santa Claus contra A.R.A.C.N.I.D.O.
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Harlan Ellison
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/harlan-ellison-santa-claus-contra-a-r-a-c-n-i-d-o/17501/
 

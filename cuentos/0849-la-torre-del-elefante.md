@@ -1,6 +1,6 @@
 # La Torre del Elefante
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert E. Howard
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-e-howard-la-torre-del-elefante/15357/
 

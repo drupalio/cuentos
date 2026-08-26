@@ -1,6 +1,6 @@
 # Si los tiburones fueran hombres
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Bertolt Brecht
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bertolt-brecht-los-tiburones-fueran-hombres/744/
 

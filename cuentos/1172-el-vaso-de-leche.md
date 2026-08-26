@@ -1,6 +1,6 @@
 # El vaso de leche
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Manuel Rojas
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/manuel-rojas-el-vaso-de-leche/171/
 

@@ -1,6 +1,6 @@
 # La siesta del martes
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gabriel García Márquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-la-siesta-del-martes-2/9204/
 

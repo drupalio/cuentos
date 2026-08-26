@@ -1,6 +1,6 @@
 # El ritual de los Musgrave
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Arthur Conan Doyle
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-conan-doyle-el-ritual-de-los-musgrave/12586/
 

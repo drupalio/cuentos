@@ -1,6 +1,6 @@
 # ¡Abajo, Satán!
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Clive Barker
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/clive-barker-abajo-satan/18308/
 

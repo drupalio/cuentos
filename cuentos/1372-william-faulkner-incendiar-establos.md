@@ -1,6 +1,6 @@
 # William Faulkner: Incendiar establos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** William Faulkner
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/william-faulkner-incendiar-establos/829/
 

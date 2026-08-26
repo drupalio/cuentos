@@ -1,6 +1,6 @@
 # Dos palabras
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isabel Allende
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isabel-allende-dos-palabras/23958/
 

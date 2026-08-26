@@ -1,6 +1,6 @@
 # El dragón
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ray Bradbury
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-el-dragon/15168/
 

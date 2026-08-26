@@ -1,6 +1,6 @@
 # La dama pálida
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Alexandre Dumas
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alexandre-dumas-la-dama-palida/14218/
 

@@ -1,6 +1,6 @@
 # ¿Cantará el polvo tus alabanzas?
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Damon Knight
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/damon-knight-cantara-el-polvo-tus-alabanzas/25680/
 

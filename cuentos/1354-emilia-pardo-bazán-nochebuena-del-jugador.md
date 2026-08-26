@@ -1,6 +1,6 @@
 # Emilia Pardo Bazán: Nochebuena del jugador
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Emilia Pardo Bazán
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-nochebuena-del-jugador/4835/
 

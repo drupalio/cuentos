@@ -1,6 +1,6 @@
 # Si los impresionistas hubieran sido dentistas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Woody Allen
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/woody-allen-los-impresionistas-hubieran-dentistas/641/
 

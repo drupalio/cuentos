@@ -1,6 +1,6 @@
 # El invitado de Drácula
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Bram Stoker
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bram-stoker-el-invitado-de-dracula/8294/
 

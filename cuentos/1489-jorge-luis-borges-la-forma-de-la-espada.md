@@ -1,6 +1,6 @@
 # Jorge Luis Borges: La forma de la espada
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Jorge Luis Borges
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-la-forma-de-la-espada/2181/
 

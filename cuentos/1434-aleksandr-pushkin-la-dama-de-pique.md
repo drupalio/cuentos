@@ -1,6 +1,6 @@
 # Aleksandr Pushkin: La dama de pique
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Aleksandr Pushkin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/aleksandr-pushkin-la-dama-pique/911/
 

@@ -11,6 +11,7 @@ tags:
 
 - [[0808-edward-el-conquistador|Edward el Conquistador]]
 - [[0906-el-gran-gramatizador-automático|El gran gramatizador automático]]
+- [[1304-el-hombre-del-paraguas|El hombre del paraguas]]
 - [[0862-en-las-ruinas|En las ruinas]]
 - [[0568-gastrónomos|Gastrónomos]]
 - [[1044-hombre-del-sur|Hombre del sur]]

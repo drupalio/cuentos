@@ -1,6 +1,6 @@
 # Carson McCullers: El transeúnte
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Carson Mccullers
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/carson-mccullers-el-transeunte/8182/
 

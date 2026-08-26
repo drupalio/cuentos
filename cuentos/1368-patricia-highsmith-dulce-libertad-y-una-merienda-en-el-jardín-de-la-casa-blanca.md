@@ -1,6 +1,6 @@
 # Patricia Highsmith: ¡Dulce libertad! Y una merienda en el jardín de la Casa Blanca
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Patricia Highsmith
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/patricia-highsmith-dulce-libertad-y-una-merienda-en-el-jardin-de-la-casa-blanca/3655/
 

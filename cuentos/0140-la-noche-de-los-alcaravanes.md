@@ -1,6 +1,6 @@
 # La noche de los alcaravanes
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gabriel García Márquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-la-noche-de-los-alcaravanes/7560/
 

@@ -1,6 +1,6 @@
 # Coppelius (o El hombre de arena)
 
-**Autor:** Juan Pablo Guevara
+**Autor:** E.T.A. Hoffmann
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/e-t-a-hoffmann-coppelius-o-el-hombre-de-arena/15713/
 

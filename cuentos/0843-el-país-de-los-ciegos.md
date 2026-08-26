@@ -1,6 +1,6 @@
 # El país de los ciegos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** H. G. Wells
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-g-wells-el-pais-de-los-ciegos/23499/
 

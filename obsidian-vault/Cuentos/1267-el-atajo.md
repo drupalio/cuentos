@@ -1,11 +1,11 @@
 ---
 title: "El atajo"
-author: "Juan Pablo Guevara"
+author: 'Autor: Adolfo Bioy CasaresTítulo: El atajoPublicado en:El gran Serafín, 1967'
 source: 'https://lecturia.org/cuentos-y-relatos/adolfo-bioy-casares-el-atajo/7668/'
 image: "1267-el-atajo.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/autor-adolfo-bioy-casarestítulo-el-atajopublicado-enel-gran-
 ---
 
 # El atajo

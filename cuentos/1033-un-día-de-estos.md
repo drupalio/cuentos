@@ -1,6 +1,6 @@
 # Un día de estos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gabriel García Márquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-dia-estos/809/
 

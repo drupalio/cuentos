@@ -1,6 +1,6 @@
 # Sonidos del habla
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Octavia E. Butler
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/octavia-e-butler-sonidos-del-habla/25237/
 

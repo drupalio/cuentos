@@ -1,6 +1,6 @@
 # Una carabina y una cotorra
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Manuel Rojas
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/manuel-rojas-una-carabina-una-cotorra/683/
 

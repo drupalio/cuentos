@@ -1,6 +1,6 @@
 # La historia del difunto Míster Elvesham
 
-**Autor:** Juan Pablo Guevara
+**Autor:** H. G. Wells
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-g-wells-la-historia-del-difunto-mister-elvesham/24590/
 

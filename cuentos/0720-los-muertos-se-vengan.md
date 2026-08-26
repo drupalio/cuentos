@@ -1,6 +1,6 @@
 # Los muertos se vengan
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Claude Vignon
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/claude-vignon-los-muertos-se-vengan/17240/
 

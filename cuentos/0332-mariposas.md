@@ -1,6 +1,6 @@
 # Mariposas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Samanta Schweblin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/samanta-schweblin-mariposas/24496/
 

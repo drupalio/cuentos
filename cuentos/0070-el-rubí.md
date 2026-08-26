@@ -1,6 +1,6 @@
 # El rubí
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Rubén Darío
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ruben-dario-el-rubi/28217/
 

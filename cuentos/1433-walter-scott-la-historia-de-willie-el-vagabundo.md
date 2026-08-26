@@ -1,6 +1,6 @@
 # Walter Scott: La historia de Willie el vagabundo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Walter Scott
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/walter-scott-la-historia-willie-vagabundo/931/
 

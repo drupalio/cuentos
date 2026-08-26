@@ -1,6 +1,6 @@
 # El pozo de la vida
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Emilia Pardo Bazán
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-el-pozo-de-la-vida/7535/
 

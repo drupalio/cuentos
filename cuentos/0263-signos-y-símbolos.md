@@ -1,6 +1,6 @@
 # Signos y símbolos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Vladimir Nabokov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/vladimir-nabokov-signos-y-simbolos/2106/
 

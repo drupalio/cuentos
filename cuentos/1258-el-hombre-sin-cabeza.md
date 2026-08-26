@@ -1,6 +1,6 @@
 # El hombre sin cabeza
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gene Wolfe
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gene-wolfe-el-hombre-sin-cabeza/6864/
 

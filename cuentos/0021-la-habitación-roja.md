@@ -1,6 +1,6 @@
 # La habitación roja
 
-**Autor:** Juan Pablo Guevara
+**Autor:** H. G. Wells
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-g-wells-la-habitacion-roja/28419/
 

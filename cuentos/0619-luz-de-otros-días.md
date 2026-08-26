@@ -1,6 +1,6 @@
 # Luz de otros días
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Bob Shaw
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bob-shaw-luz-de-otros-dias/25140/
 

@@ -1,6 +1,6 @@
 # Todos los sonidos del miedo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Harlan Ellison
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/harlan-ellison-todos-los-sonidos-del-miedo/26179/
 

@@ -1,11 +1,11 @@
 ---
 title: "La muerte de Malygris"
-author: "Juan Pablo Guevara"
+author: "Clark Ashton Smith"
 source: 'https://lecturia.org/cuentos-y-relatos/clark-ashton-smith-la-muerte-de-malygris/20240/'
 image: "0360-la-muerte-de-malygris.webp"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/clark-ashton-smith
 ---
 
 # La muerte de Malygris

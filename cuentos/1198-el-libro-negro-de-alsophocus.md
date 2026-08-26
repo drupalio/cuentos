@@ -1,6 +1,6 @@
 # El Libro Negro de Alsophocus
 
-**Autor:** Juan Pablo Guevara
+**Autor:** H. P. Lovecraft & Martin S. Warnes
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-martin-s-warnes-el-libro-negro-de-alsophocus/14284/
 

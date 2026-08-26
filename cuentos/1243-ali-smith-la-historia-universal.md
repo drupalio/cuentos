@@ -1,6 +1,6 @@
 # Ali Smith: La historia universal
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ali Smith
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ali-smith-la-historia-universal/8473/
 

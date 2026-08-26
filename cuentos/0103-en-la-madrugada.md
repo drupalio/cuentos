@@ -1,6 +1,6 @@
 # En la madrugada
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan Rulfo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-rulfo-en-la-madrugada/2332/
 

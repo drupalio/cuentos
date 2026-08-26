@@ -1,6 +1,6 @@
 # Interior «L»
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Ramón Ribeyro
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-interior-l/825/
 

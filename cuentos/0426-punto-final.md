@@ -1,6 +1,6 @@
 # Punto final
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Cristina Peri Rossi
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/cristina-peri-rossi-punto-final/5461/
 

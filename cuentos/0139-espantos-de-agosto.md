@@ -1,6 +1,6 @@
 # Espantos de agosto
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gabriel García Márquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-espantos-de-agosto/8359/
 

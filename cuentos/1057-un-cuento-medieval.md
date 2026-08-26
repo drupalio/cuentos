@@ -1,6 +1,6 @@
 # Un cuento medieval
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mark Twain
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mark-twain-un-cuento-medieval/13296/
 

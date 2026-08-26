@@ -1,11 +1,11 @@
 ---
 title: "La historia de Salomé"
-author: "Juan Pablo Guevara"
+author: "Amelia Edwards"
 source: 'https://lecturia.org/cuentos-y-relatos/amelia-edwards-la-historia-de-salome/8129/'
 image: "1253-la-historia-de-salomé.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/amelia-edwards
 ---
 
 # La historia de Salomé

@@ -1,6 +1,6 @@
 # Mario Benedetti: Esa boca
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Autor:Mario BenedettiTítulo: Esa bocaPublicado en:Sur, 1955
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-esa-boca/8229/
 

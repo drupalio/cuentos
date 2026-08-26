@@ -1,6 +1,6 @@
 # El bazar mágico
 
-**Autor:** Juan Pablo Guevara
+**Autor:** H. G. Wells
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-g-wells-el-bazar-magico/2562/
 

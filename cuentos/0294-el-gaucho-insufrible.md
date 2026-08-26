@@ -1,6 +1,6 @@
 # El gaucho insufrible
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Roberto Bolaño
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roberto-bolano-el-gaucho-insufrible/135/
 

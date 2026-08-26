@@ -1,11 +1,11 @@
 ---
 title: "¿Quién mató a la viuda?"
-author: "Juan Pablo Guevara"
+author: "Mario Benedetti"
 source: 'https://lecturia.org/cuentos-y-relatos/mario-benedetti-quien-mato-a-la-viuda/6182/'
 image: "1242-quién-mató-a-la-viuda.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/mario-benedetti
 ---
 
 # ¿Quién mató a la viuda?

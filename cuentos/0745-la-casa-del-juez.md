@@ -1,6 +1,6 @@
 # La casa del juez
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Bram Stoker
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bram-stoker-la-casa-del-juez/8076/
 

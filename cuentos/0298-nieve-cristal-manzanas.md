@@ -1,6 +1,6 @@
 # Nieve, cristal, manzanas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Neil Gaiman
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/neil-gaiman-nieve-cristal-manzanas/14866/
 

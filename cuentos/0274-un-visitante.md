@@ -1,6 +1,6 @@
 # Un visitante
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mario Vargas Llosa
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-vargas-llosa-un-visitante/12407/
 

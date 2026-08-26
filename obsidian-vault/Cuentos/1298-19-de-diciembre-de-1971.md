@@ -1,11 +1,11 @@
 ---
 title: "19 de diciembre de 1971"
-author: "Juan Pablo Guevara"
+author: "Roberto Fontanarrosa 19"
 source: 'https://lecturia.org/cuentos-y-relatos/roberto-fontanarrosa-19-de-diciembre-de-1971/6191/'
 image: "1298-19-de-diciembre-de-1971.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/roberto-fontanarrosa-19
 ---
 
 # 19 de diciembre de 1971

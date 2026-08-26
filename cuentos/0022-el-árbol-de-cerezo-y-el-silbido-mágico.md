@@ -1,6 +1,6 @@
 # El árbol de cerezo y el silbido mágico
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Osamu Dazai
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/osamu-dazai-el-arbol-de-cerezo-y-el-silbido-magico/2170/
 

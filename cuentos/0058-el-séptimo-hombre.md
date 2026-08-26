@@ -1,6 +1,6 @@
 # El séptimo hombre
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Haruki Murakami
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/haruki-murakami-el-septimo-hombre/28267/
 

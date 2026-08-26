@@ -1,6 +1,6 @@
 # Creer, creer a medias y no creer en nada
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Louis Stevenson
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-louis-stevenson-creer-creer-a-medias-y-no-creer-en-nada/11705/
 

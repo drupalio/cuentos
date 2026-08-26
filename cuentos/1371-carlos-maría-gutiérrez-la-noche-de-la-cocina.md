@@ -1,6 +1,6 @@
 # Carlos María Gutiérrez: La noche de la cocina
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Carlos María Gutiérrez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/carlos-maria-gutierrez-la-noche-de-la-cocina/3345/
 

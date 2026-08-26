@@ -1,6 +1,6 @@
 # El crimen definitivo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isaac Asimov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-el-crimen-definitivo/18556/
 

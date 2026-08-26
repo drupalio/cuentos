@@ -1,6 +1,6 @@
 # En el bosque
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ryūnosuke Akutagawa
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ryunosuke-akutagawa-bosque/760/
 

@@ -1,6 +1,6 @@
 # La mansa
 
-**Autor:** Juan Pablo Guevara
+**Autor:** RELATO FANTÁSTICOFiódor Dostoyevski
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fiodor-dostoyevski-la-mansa/28529/
 

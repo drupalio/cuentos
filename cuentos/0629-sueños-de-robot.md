@@ -1,6 +1,6 @@
 # Sueños de robot
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isaac Asimov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-suenos-de-robot/8214/
 

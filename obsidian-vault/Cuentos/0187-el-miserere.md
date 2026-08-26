@@ -1,11 +1,11 @@
 ---
 title: "El miserere"
-author: "Juan Pablo Guevara"
+author: "(Leyenda religiosa)Gustavo Adolfo Bécquer"
 source: 'https://lecturia.org/cuentos-y-relatos/gustavo-adolfo-becquer-el-miserere/27604/'
 image: "0187-el-miserere.webp"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/leyenda-religiosagustavo-adolfo-bécquer
 ---
 
 # El miserere

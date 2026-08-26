@@ -1,6 +1,6 @@
 # La muchacha invisible
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mary Shelley
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mary-shelley-la-muchacha-invisible/8055/
 

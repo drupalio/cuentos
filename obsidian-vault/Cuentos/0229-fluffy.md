@@ -1,11 +1,11 @@
 ---
 title: "Fluffy"
-author: "Juan Pablo Guevara"
+author: "Theodore Sturgeon"
 source: 'https://lecturia.org/cuentos-y-relatos/theodore-sturgeon-fluffy/21746/'
 image: "0229-fluffy.webp"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/theodore-sturgeon
 ---
 
 # Fluffy

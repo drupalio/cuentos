@@ -1,6 +1,6 @@
 # Fluffy
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Theodore Sturgeon
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/theodore-sturgeon-fluffy/21746/
 

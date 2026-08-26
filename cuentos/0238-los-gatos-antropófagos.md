@@ -1,6 +1,6 @@
 # Los gatos antropófagos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Haruki Murakami
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/haruki-murakami-los-gatos-antropofagos/629/
 

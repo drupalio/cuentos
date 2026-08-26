@@ -1,6 +1,6 @@
 # La chica del cumpleaños
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Haruki Murakami
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/haruki-murakami-la-chica-del-cumpleanos/724/
 

@@ -1,6 +1,6 @@
 # El gato
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Tove Ditlevsen
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/tove-ditlevsen-el-gato/20402/
 

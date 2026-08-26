@@ -1,6 +1,6 @@
 # El burro blanco
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ursula K. Le Guin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ursula-k-le-guin-el-burro-blanco/20458/
 

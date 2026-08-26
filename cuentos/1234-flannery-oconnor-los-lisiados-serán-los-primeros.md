@@ -1,6 +1,6 @@
 # Flannery O’Connor: Los lisiados serán los primeros
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Flannery O’Connor
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/flannery-oconnor-los-lisiados-seran-los-primeros/2371/
 

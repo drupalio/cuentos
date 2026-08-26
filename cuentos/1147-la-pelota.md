@@ -1,6 +1,6 @@
 # La pelota
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Felisberto Hernández
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/felisberto-hernandez-la-pelota/12041/
 

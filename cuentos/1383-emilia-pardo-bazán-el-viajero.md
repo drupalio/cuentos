@@ -1,6 +1,6 @@
 # Emilia Pardo Bazán: El viajero
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Emilia Pardo Bazán
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-el-viajero/2647/
 

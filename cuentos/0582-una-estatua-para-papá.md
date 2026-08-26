@@ -1,6 +1,6 @@
 # Una estatua para papá
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isaac Asimov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-una-estatua-para-papa/5495/
 

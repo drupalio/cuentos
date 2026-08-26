@@ -1,6 +1,6 @@
 # Vida de Anne Moore
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Roberto Bolaño
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roberto-bolano-vida-de-anne-moore/25800/
 

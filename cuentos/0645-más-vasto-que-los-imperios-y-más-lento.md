@@ -1,6 +1,6 @@
 # Más vasto que los imperios y más lento
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ursula K. Le Guin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ursula-k-le-guin-mas-vasto-que-los-imperios-y-mas-lento/21458/
 

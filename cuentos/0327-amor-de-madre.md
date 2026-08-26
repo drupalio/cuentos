@@ -1,6 +1,6 @@
 # Amor de madre
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Almudena Grandes
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/almudena-grandes-amor-de-madre/13637/
 

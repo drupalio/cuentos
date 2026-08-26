@@ -1,6 +1,6 @@
 # Mi hermana Antonia
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ramón del Valle-Inclán
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ramon-del-valle-inclan-mi-hermana-antonia/27722/
 

@@ -1,6 +1,6 @@
 # Lev Tolstói: Los tres staretzi
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Lev Tolstói
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/lev-tolstoi-los-tres-staretzi/1181/
 

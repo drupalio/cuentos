@@ -1,6 +1,6 @@
 # Ante la Ley
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Franz Kafka
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/franz-kafka-ante-la-ley/2286/
 

@@ -1,6 +1,6 @@
 # La aventura del vampiro de Sussex
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Arthur Conan Doyle
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-conan-doyle-la-aventura-del-vampiro-de-sussex/3879/
 

@@ -1,6 +1,6 @@
 # El misántropo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** J. D. Beresford
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/j-d-beresford-misantropo/1069/
 

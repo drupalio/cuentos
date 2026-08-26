@@ -1,6 +1,6 @@
 # Aloha oe
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Jack London
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jack-london-aloha-oe/23515/
 

@@ -1,6 +1,6 @@
 # Una venganza
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isabel Allende
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isabel-allende-una-venganza/27578/
 

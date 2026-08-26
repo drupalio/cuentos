@@ -1,6 +1,6 @@
 # La pradera
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ray Bradbury
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-la-pradera/5482/
 

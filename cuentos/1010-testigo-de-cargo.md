@@ -1,6 +1,6 @@
 # Testigo de cargo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Agatha Christie
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/agatha-christie-testigo-de-cargo/13603/
 

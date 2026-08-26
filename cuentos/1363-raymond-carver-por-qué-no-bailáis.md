@@ -1,6 +1,6 @@
 # Raymond Carver: ¿Por qué no bailáis?
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Raymond Carver
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/raymond-carver-por-que-no-bailais/3845/
 

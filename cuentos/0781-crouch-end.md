@@ -1,6 +1,6 @@
 # Crouch End
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Stephen King
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stephen-king-crouch-end/15892/
 

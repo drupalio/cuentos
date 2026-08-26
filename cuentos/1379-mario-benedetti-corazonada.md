@@ -1,6 +1,6 @@
 # Mario Benedetti: Corazonada
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mario Benedetti
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-corazonada/2801/
 

@@ -1,6 +1,6 @@
 # De una mujer a un hombre
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Horacio Quiroga
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-de-una-mujer-a-un-hombre/4864/
 

@@ -1,6 +1,6 @@
 # El sueño
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mary Shelley
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mary-shelley-el-sueno/14400/
 

@@ -1,6 +1,6 @@
 # Vampirismo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** E.T.A. Hoffmann
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/e-t-hoffmann-vampirismo/976/
 

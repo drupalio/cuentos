@@ -1,6 +1,6 @@
 # Cuando hablábamos con los muertos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mariana Enríquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mariana-enriquez-cuando-hablabamos-con-los-muertos/22975/
 

@@ -1,6 +1,6 @@
 # Rubem Fonseca: El otro
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Rubem Fonseca
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/rubem-fonseca-el-otro/2433/
 

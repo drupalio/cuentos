@@ -1,6 +1,6 @@
 # El gato del infierno
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Stephen King
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stephen-king-el-gato-del-infierno/16983/
 

@@ -1,6 +1,6 @@
 # "¡Arrepiéntete, Arlequín!" dijo el señor Tic-Tac
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Harlan Ellison
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/harlan-ellison-arrepientete-arlequin-dijo-el-senor-tic-tac/8546/
 

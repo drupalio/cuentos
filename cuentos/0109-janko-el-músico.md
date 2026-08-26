@@ -1,6 +1,6 @@
 # Janko el músico
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Henryk Sienkiewicz
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/henryk-sienkiewicz-janko-el-musico/28028/
 

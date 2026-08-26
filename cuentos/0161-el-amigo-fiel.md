@@ -1,6 +1,6 @@
 # El amigo fiel
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Oscar Wilde
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/oscar-wilde-el-amigo-fiel/5339/
 

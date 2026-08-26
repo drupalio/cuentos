@@ -1,11 +1,11 @@
 ---
 title: "La cámara de los tapices"
-author: "Juan Pablo Guevara"
+author: "Walter Scott"
 source: 'https://lecturia.org/cuentos-y-relatos/walter-scott-la-camara-los-tapices/1240/'
 image: "0855-la-cámara-de-los-tapices.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/walter-scott
 ---
 
 # La cámara de los tapices

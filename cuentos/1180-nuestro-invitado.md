@@ -1,6 +1,6 @@
 # Nuestro invitado
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Héctor Camarillo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hector-camarillo-nuestro-invitado/18670/
 

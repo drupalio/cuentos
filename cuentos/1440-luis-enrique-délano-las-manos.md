@@ -1,6 +1,6 @@
 # Luis Enrique Délano: Las manos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Luis Enrique Delano
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/luis-enrique-delano-las-manos/618/
 

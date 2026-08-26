@@ -1,6 +1,6 @@
 # ¡Diles que no me maten!
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan Rulfo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-rulfo-diles-que-no-me-maten/9120/
 

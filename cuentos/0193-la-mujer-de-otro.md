@@ -1,6 +1,6 @@
 # La mujer de otro
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Abelardo Castillo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/abelardo-castillo-la-mujer-de-otro/88/
 

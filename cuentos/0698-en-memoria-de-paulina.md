@@ -1,6 +1,6 @@
 # En memoria de Paulina
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Adolfo Bioy Casares
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/adolfo-bioy-casares-en-memoria-de-paulina/2791/
 

@@ -1,6 +1,6 @@
 # Lo que trajo el gato
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Patricia Highsmith
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/patricia-highsmith-lo-que-trajo-el-gato/5488/
 

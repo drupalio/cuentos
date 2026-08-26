@@ -1,6 +1,6 @@
 # “Inamible”
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Autor: Baldomero LilloTítulo: “Inamible”Publicado en:Sub sole,2a. edición, 1931
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/baldomero-lillo-inamible/6825/
 

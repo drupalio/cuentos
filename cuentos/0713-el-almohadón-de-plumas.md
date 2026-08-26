@@ -1,6 +1,6 @@
 # El almohadón de plumas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Horacio Quiroga
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-almohadon-de-plumas/2457/
 

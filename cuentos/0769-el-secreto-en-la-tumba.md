@@ -1,6 +1,6 @@
 # El secreto en la tumba
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Bloch
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-el-secreto-en-la-tumba/16285/
 

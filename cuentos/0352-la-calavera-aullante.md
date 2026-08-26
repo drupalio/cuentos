@@ -1,6 +1,6 @@
 # La calavera aullante
 
-**Autor:** Juan Pablo Guevara
+**Autor:** F. Marion Crawford
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/f-marion-crawford-la-calavera-aullante/20918/
 

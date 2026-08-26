@@ -1,11 +1,11 @@
 ---
 title: "La célebre rana saltadora del condado de Calaveras"
-author: "Juan Pablo Guevara"
+author: "Mark Twain"
 source: 'https://lecturia.org/cuentos-y-relatos/mark-twain-la-celebre-rana-saltadora-del-condado-de-calaveras/6915/'
 image: "1261-la-célebre-rana-saltadora-del-condado-de-calaveras.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/mark-twain
 ---
 
 # La célebre rana saltadora del condado de Calaveras

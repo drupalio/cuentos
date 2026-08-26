@@ -1,6 +1,6 @@
 # La bella durmiente
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Hermanos Grimm
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermanos-grimm-la-bella-durmiente/5953/
 

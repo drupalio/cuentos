@@ -15,3 +15,4 @@ tags:
 - [[0055-fin-de-curso|Fin de curso]]
 - [[0741-la-casa-de-adela|La casa de Adela]]
 - [[0027-las-cosas-que-perdimos-en-el-fuego|Las cosas que perdimos en el fuego]]
+- [[0524-mis-muertos-tristes|Mis muertos tristes]]

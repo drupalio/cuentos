@@ -1,6 +1,6 @@
 # Italo Svevo: Una lucha
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Italo Svevo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/italo-svevo-una-lucha/2322/
 

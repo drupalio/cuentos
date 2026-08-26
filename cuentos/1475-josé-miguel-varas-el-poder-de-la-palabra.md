@@ -1,6 +1,6 @@
 # José Miguel Varas: El poder de la palabra
 
-**Autor:** Juan Pablo Guevara
+**Autor:** José Miguel Varas
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-miguel-varas-el-poder-de-la-palabra/2463/
 

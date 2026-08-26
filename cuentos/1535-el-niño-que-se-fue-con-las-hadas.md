@@ -1,6 +1,6 @@
 # El niño que se fue con las hadas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Sheridan Le Fanu
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/sheridan-le-fanu-el-nino-que-se-fue-con-las-hadas/28522/
 

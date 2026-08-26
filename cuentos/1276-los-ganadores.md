@@ -1,6 +1,6 @@
 # Los ganadores
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Autor: Arturo Uslar PietriTítulo: Los ganadoresPublicado en:Los ganadores, 1980
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arturo-uslar-pietri-los-ganadores/6818/
 

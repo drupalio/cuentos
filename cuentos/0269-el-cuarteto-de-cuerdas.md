@@ -1,6 +1,6 @@
 # El cuarteto de cuerdas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Virginia Woolf
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/virginia-woolf-el-cuarteto-de-cuerdas/20379/
 

@@ -1,11 +1,11 @@
 ---
 title: "Pancho Rojas"
-author: "Juan Pablo Guevara"
+author: "Manuel Rojas"
 source: 'https://lecturia.org/cuentos-y-relatos/manuel-rojas-pancho-rojas/4454/'
 image: "1291-pancho-rojas.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/manuel-rojas
 ---
 
 # Pancho Rojas

@@ -1,6 +1,6 @@
 # Franz Kafka: El matrimonio
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Franz Kafka
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/franz-kafka-el-matrimonio/2056/
 

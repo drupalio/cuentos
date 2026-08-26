@@ -1,6 +1,6 @@
 # Arria Marcella, recuerdo de Pompeya
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Théophile Gautier
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/theophile-gautier-arria-marcella-recuerdo-de-pompeya/14059/
 

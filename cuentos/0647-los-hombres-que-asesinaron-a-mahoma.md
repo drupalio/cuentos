@@ -1,6 +1,6 @@
 # Los hombres que asesinaron a Mahoma
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Alfred Bester
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alfred-bester-los-hombres-que-asesinaron-a-mahoma/2823/
 

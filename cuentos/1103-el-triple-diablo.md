@@ -1,6 +1,6 @@
 # El triple diablo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isaac Asimov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-el-triple-diablo/21213/
 

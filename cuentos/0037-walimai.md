@@ -1,6 +1,6 @@
 # Walimai
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isabel Allende
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isabel-allende-walimai/28374/
 

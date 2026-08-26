@@ -1,6 +1,6 @@
 # La sombra
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Hans Christian Andersen
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hans-christian-andersen-la-sombra/28351/
 

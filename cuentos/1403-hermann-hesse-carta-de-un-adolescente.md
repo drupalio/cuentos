@@ -1,6 +1,6 @@
 # Hermann Hesse: Carta de un adolescente
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Hermann Hesse
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermann-hesse-carta-de-un-adolescente/2341/
 

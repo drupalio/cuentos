@@ -1,6 +1,6 @@
 # Catedral
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Raymond Carver
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/raymond-carver-catedral/26009/
 

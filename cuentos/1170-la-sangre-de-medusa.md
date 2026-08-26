@@ -1,6 +1,6 @@
 # La sangre de Medusa
 
-**Autor:** Juan Pablo Guevara
+**Autor:** José Emilio Pacheco
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-emilio-pacheco-la-sangre-de-medusa/18614/
 

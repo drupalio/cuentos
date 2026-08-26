@@ -1,6 +1,6 @@
 # Un sueño
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Iván Turguénev
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ivan-turguenev-un-sueno/23945/
 

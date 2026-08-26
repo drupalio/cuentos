@@ -1,6 +1,6 @@
 # La máscara de la Muerte Roja
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edgar Allan Poe
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-la-mascara-de-la-muerte-roja/2742/
 

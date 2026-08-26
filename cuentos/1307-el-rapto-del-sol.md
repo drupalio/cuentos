@@ -1,6 +1,6 @@
 # El rapto del sol
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Baldomero Lillo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/baldomero-lillo-el-rapto-del-sol/6186/
 

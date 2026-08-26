@@ -1,11 +1,11 @@
 ---
 title: "La voz del viento"
-author: "Juan Pablo Guevara"
+author: "Francisco Coloane"
 source: 'https://lecturia.org/cuentos-y-relatos/francisco-coloane-la-voz-del-viento/6097/'
 image: "0985-la-voz-del-viento.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/francisco-coloane
 ---
 
 # La voz del viento

@@ -1,6 +1,6 @@
 # Feathertop: una leyenda con moraleja
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Una leyenda con moralejaNathaniel Hawthorne
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/nathaniel-hawthorne-feathertop-una-leyenda-con-moraleja/27069/
 

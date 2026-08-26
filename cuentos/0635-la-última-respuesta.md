@@ -1,6 +1,6 @@
 # La última respuesta
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isaac Asimov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-la-ultima-respuesta/8919/
 

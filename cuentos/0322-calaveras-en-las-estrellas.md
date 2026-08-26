@@ -1,6 +1,6 @@
 # Calaveras en las estrellas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert E. Howard
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-e-howard-calaveras-en-las-estrellas/20985/
 

@@ -1,6 +1,6 @@
 # El dios sin cara
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Bloch
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-el-dios-sin-cara/15868/
 

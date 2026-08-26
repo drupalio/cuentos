@@ -1,6 +1,6 @@
 # El zapatero y el diablo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Antón Chéjov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-el-zapatero-y-el-diablo/25506/
 

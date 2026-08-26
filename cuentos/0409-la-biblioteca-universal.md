@@ -1,6 +1,6 @@
 # La biblioteca universal
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Kurd Lasswitz
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/kurd-lasswitz-la-biblioteca-universal/5251/
 

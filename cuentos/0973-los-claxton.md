@@ -1,6 +1,6 @@
 # Los Claxton
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Aldous Huxley
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/aldous-huxley-los-claxton/1126/
 

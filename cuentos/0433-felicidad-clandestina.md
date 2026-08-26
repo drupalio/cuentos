@@ -1,6 +1,6 @@
 # Felicidad clandestina
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Clarice Lispector
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/clarice-lispector-felicidad-clandestina/5305/
 

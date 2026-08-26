@@ -1,6 +1,6 @@
 # Estoy en Puertomarte sin Hilda
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isaac Asimov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-estoy-en-puertomarte-sin-hilda/27671/
 

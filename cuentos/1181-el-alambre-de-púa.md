@@ -1,6 +1,6 @@
 # El alambre de púa
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Horacio Quiroga
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-alambre-de-pua/6766/
 

@@ -1,6 +1,6 @@
 # Éxtasis
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Katherine Mansfield
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/katherine-mansfield-extasis-2/7624/
 

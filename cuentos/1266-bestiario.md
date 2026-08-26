@@ -1,6 +1,6 @@
 # Bestiario
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Autor:Mario BenedettiTítulo: BestiarioPublicado en:Despistes y franquezas, 1989
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-bestiario/6810/
 

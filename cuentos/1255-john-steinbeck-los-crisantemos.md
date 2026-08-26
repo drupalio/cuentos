@@ -1,6 +1,6 @@
 # John Steinbeck: Los crisantemos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** John Steinbeck
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/john-steinbeck-los-crisantemos/8373/
 

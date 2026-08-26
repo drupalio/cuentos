@@ -1,6 +1,6 @@
 # Uno para el camino
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Stephen King
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stephen-king-uno-para-el-camino/15078/
 

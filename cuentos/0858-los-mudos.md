@@ -1,6 +1,6 @@
 # Los mudos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Albert Camus
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/albert-camus-los-mudos/740/
 

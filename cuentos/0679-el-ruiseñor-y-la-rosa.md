@@ -1,6 +1,6 @@
 # El ruiseñor y la rosa
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Oscar Wilde
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/oscar-wilde-ruisenor-la-rosa/1072/
 

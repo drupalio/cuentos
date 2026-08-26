@@ -1,6 +1,6 @@
 # Los ojos de la momia
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Bloch
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-los-ojos-de-la-momia/14919/
 

@@ -1,6 +1,6 @@
 # Alexandre Dumas: La bofetada de Carlota Corday
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Alexandre Dumas
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alexandre-dumas-la-bofetada-de-carlota-corday/2143/
 

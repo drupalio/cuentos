@@ -1,6 +1,6 @@
 # La litera superior
 
-**Autor:** Juan Pablo Guevara
+**Autor:** F. Marion Crawford
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/f-marion-crawford-la-litera-superior/16258/
 

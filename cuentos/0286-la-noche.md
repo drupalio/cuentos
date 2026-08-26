@@ -1,6 +1,6 @@
 # La noche
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Guy de Maupassant
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-la-noche/4112/
 

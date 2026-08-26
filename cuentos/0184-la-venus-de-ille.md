@@ -1,6 +1,6 @@
 # La Venus de Ille
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Prosper Mérimée
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/prosper-merimee-la-venus-de-ille/12908/
 

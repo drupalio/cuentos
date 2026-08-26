@@ -1,6 +1,6 @@
 # Edward el Conquistador
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Roald Dahl
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roald-dahl-edward-el-conquistador/23844/
 

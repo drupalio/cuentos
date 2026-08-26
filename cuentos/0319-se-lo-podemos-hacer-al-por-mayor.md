@@ -1,6 +1,6 @@
 # Se lo podemos hacer al por mayor
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Neil Gaiman
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/neil-gaiman-se-lo-podemos-hacer-al-por-mayor/24399/
 

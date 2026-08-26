@@ -1,6 +1,6 @@
 # La trompeta del Juicio Final
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isaac Asimov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-la-trompeta-del-juicio-final/15067/
 

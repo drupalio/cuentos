@@ -1,6 +1,6 @@
 # Los destructores
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Graham Greene
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/graham-greene-los-destructores/859/
 

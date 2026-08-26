@@ -1,6 +1,6 @@
 # Las tres gracias
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Ramón Ribeyro
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-las-tres-gracias/8279/
 

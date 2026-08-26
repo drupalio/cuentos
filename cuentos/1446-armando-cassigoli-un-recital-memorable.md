@@ -1,6 +1,6 @@
 # Armando Cassigoli: Un recital memorable
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Armando Cassigoli
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/armando-cassigoli-un-recital-memorable/148/
 

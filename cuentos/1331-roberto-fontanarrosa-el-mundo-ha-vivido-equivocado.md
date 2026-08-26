@@ -1,6 +1,6 @@
 # Roberto Fontanarrosa: El mundo ha vivido equivocado
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Roberto Fontanarrosa
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roberto-fontanarrosa-el-mundo-ha-vivido-equivocado/5247/
 

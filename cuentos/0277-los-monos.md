@@ -1,6 +1,6 @@
 # Los monos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan José Arreola
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-jose-arreola-los-monos/6452/
 

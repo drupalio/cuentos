@@ -1,11 +1,11 @@
 ---
 title: "Bárbara"
-author: "Juan Pablo Guevara"
+author: 'Autor:Julio Ramón RibeyroTítulo: BárbaraPublicado en:Los cautivos, 1972'
 source: 'https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-barbara/6782/'
 image: "1271-bárbara.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/autorjulio-ramón-ribeyrotítulo-bárbarapublicado-enlos-cautiv
 ---
 
 # Bárbara

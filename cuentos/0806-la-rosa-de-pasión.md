@@ -1,6 +1,6 @@
 # La Rosa de Pasión
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gustavo Adolfo Bécquer
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gustavo-adolfo-becquer-la-rosa-de-pasion/23873/
 

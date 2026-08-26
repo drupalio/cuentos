@@ -1,6 +1,6 @@
 # El diablo de la botella
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Louis Stevenson
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-louis-stevenson-el-diablo-de-la-botella/16436/
 

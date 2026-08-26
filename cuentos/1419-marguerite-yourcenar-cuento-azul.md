@@ -1,6 +1,6 @@
 # Marguerite Yourcenar: Cuento azul
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Marguerite Yourcenar
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/marguerite-yourcenar-cuento-azul/1108/
 

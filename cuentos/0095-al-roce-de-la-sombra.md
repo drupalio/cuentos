@@ -1,6 +1,6 @@
 # Al roce de la sombra
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Guadalupe Dueñas
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guadalupe-duenas-al-roce-de-la-sombra/13428/
 

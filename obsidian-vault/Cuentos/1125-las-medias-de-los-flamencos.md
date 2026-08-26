@@ -1,11 +1,11 @@
 ---
 title: "Las medias de los flamencos"
-author: "Juan Pablo Guevara"
+author: "Horacio Quiroga"
 source: 'https://lecturia.org/cuentos-y-relatos/horacio-quiroga-las-medias-de-los-flamencos/6195/'
 image: "1125-las-medias-de-los-flamencos.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/horacio-quiroga
 ---
 
 # Las medias de los flamencos

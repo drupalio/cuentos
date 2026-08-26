@@ -1,11 +1,11 @@
 ---
 title: "Eva está dentro de su gato"
-author: "Juan Pablo Guevara"
+author: "Gabriel García Márquez"
 source: 'https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-eva-esta-dentro-gato/726/'
 image: "0141-eva-está-dentro-de-su-gato.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/gabriel-garcía-márquez
 ---
 
 # Eva está dentro de su gato

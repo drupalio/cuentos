@@ -1,6 +1,6 @@
 # Schalken el pintor
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Sheridan Le Fanu
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/sheridan-le-fanu-schalken-el-pintor/15613/
 

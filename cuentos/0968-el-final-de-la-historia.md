@@ -1,6 +1,6 @@
 # El final de la historia
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Clark Ashton Smith
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/clark-ashton-smith-el-final-de-la-historia/22429/
 

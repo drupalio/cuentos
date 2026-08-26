@@ -1,6 +1,6 @@
 # Queremos tanto a Glenda
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Cortázar
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-queremos-tanto-a-glenda/8412/
 

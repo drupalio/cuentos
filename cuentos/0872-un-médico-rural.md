@@ -1,6 +1,6 @@
 # Un médico rural
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Franz Kafka
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/franz-kafka-un-medico-rural/23340/
 

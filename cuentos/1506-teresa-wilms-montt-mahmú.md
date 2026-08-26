@@ -1,6 +1,6 @@
 # Teresa Wilms Montt: Mahmú
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Teresa Wilms Montt
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/teresa-wilms-montt-mahmu/1018/
 

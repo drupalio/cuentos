@@ -1,6 +1,6 @@
 # El colocolo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Manuel Rojas
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/manuel-rojas-el-colocolo/5947/
 

@@ -1,6 +1,6 @@
 # Charlábamos de sobremesa
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Horacio Quiroga
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-charlabamos-de-sobremesa/6665/
 

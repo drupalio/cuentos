@@ -1,11 +1,11 @@
 ---
 title: "El incendio"
-author: "Juan Pablo Guevara"
+author: "Ana Maria Matute"
 source: 'https://lecturia.org/cuentos-y-relatos/ana-maria-matute-el-incendio/6318/'
 image: "1299-el-incendio.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/ana-maria-matute
 ---
 
 # El incendio

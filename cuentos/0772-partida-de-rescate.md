@@ -1,6 +1,6 @@
 # Partida de rescate
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Arthur C. Clarke
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-c-clarke-partida-de-rescate/16311/
 

@@ -1,6 +1,6 @@
 # Horacio Quiroga: El vampiro (Primera versión)
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Autor:Horacio QuirogaTítulo: El vampiroPublicado en:Anaconda, 1921
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-vampiro/5459/
 

@@ -1,6 +1,6 @@
 # Posesión
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Emilia Pardo Bazán
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-posesion/24251/
 

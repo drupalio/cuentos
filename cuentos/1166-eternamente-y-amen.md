@@ -1,6 +1,6 @@
 # Eternamente y amen
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Bloch
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-eternamente-y-amen/19050/
 

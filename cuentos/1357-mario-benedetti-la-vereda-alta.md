@@ -1,6 +1,6 @@
 # Mario Benedetti: La vereda alta
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mario Benedetti
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-la-vereda-alta/758/
 

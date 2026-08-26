@@ -1,6 +1,6 @@
 # Edmond Hamilton: Exilio
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edmond Hamilton
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edmond-hamilton-exilio/2401/
 

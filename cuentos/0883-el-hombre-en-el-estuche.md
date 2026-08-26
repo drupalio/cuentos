@@ -1,6 +1,6 @@
 # El hombre en el estuche
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Antón Chéjov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-el-hombre-en-el-estuche/23187/
 

@@ -1,6 +1,6 @@
 # El mendigo de almas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Giovanni Papini
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/giovanni-papini-el-mendigo-de-almas/5279/
 

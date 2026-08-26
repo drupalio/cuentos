@@ -1,11 +1,11 @@
 ---
 title: "El revolucionario"
-author: "Juan Pablo Guevara"
+author: "Ernest Hemingway"
 source: 'https://lecturia.org/cuentos-y-relatos/ernest-hemingway-el-revolucionario/6388/'
 image: "1293-el-revolucionario.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/ernest-hemingway
 ---
 
 # El revolucionario

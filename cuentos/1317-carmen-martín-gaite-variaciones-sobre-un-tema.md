@@ -1,6 +1,6 @@
 # Carmen Martín Gaite: Variaciones sobre un tema
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Carmen Martin Gaite Variaciones
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/carmen-martin-gaite-variaciones-sobre-un-tema/5486/
 

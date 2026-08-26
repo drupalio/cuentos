@@ -1,6 +1,6 @@
 # La perfecta señorita
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Patricia Highsmith
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/patricia-highsmith-la-perfecta-senorita/2479/
 

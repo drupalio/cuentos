@@ -1,6 +1,6 @@
 # Franz Kafka: La negativa
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Franz Kafka
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/franz-kafka-la-negativa/947/
 

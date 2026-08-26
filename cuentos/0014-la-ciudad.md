@@ -1,6 +1,6 @@
 # La ciudad
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Hermann Hesse
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermann-hesse-la-ciudad/28428/
 

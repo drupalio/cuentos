@@ -1,6 +1,6 @@
 # La casa del orgullo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Jack London
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jack-london-la-casa-del-orgullo/11689/
 

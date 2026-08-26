@@ -1,6 +1,6 @@
 # El dios caballo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Lisa Tuttle
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/lisa-tuttle-el-dios-caballo/23231/
 

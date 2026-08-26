@@ -1,6 +1,6 @@
 # La salamandra
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mercè Rodoreda
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/merce-rodoreda-la-salamandra/25952/
 

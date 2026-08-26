@@ -1,11 +1,11 @@
 ---
 title: "La señorita Julia"
-author: "Juan Pablo Guevara"
+author: "Amparo Dávila"
 source: 'https://lecturia.org/cuentos-y-relatos/amparo-davila-la-senorita-julia/24078/'
 image: "0777-la-señorita-julia.webp"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/amparo-dávila
 ---
 
 # La señorita Julia

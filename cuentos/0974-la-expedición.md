@@ -1,6 +1,6 @@
 # La expedición
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Stephen King
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stephen-king-la-expedicion/22480/
 

@@ -1,6 +1,6 @@
 # Franz Kafka: Transeúntes
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Franz Kafka
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/franz-kafka-transeuntes/5135/
 

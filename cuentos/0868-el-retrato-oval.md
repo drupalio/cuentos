@@ -1,6 +1,6 @@
 # El retrato oval
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edgar Allan Poe
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-el-retrato-oval/5469/
 

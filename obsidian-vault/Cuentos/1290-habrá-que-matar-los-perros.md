@@ -1,11 +1,11 @@
 ---
 title: "Habrá que matar los perros"
-author: "Juan Pablo Guevara"
+author: "Miguel Briante Habra"
 source: 'https://lecturia.org/cuentos-y-relatos/miguel-briante-habra-que-matar-los-perros/6322/'
 image: "1290-habrá-que-matar-los-perros.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/miguel-briante-habra
 ---
 
 # Habrá que matar los perros

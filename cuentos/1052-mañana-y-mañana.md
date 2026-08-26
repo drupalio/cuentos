@@ -1,6 +1,6 @@
 # Mañana y mañana
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ray Bradbury
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-manana-y-manana/21709/
 

@@ -1,6 +1,6 @@
 # Richard Matheson: Lemmings
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Richard Matheson
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/richard-matheson-lemmings/5168/
 

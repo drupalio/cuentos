@@ -1,6 +1,6 @@
 # Una desgracia
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Antón Chéjov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-una-desgracia/26267/
 

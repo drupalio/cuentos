@@ -1,6 +1,6 @@
 # La piedra negra
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert E. Howard
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-e-howard-la-piedra-negra/14940/
 

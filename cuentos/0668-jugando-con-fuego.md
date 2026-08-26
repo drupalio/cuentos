@@ -1,6 +1,6 @@
 # Jugando con fuego
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Arthur Conan Doyle
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-conan-doyle-jugando-con-fuego/24894/
 

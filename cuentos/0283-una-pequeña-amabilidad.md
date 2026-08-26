@@ -1,6 +1,6 @@
 # Una pequeña amabilidad
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ben Bova
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ben-bova-una-pequena-amabilidad/3098/
 

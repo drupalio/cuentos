@@ -1,6 +1,6 @@
 # Sobre el encuentro con una chica cien por cien perfecta en una soleada mañana del mes de abril
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Haruki Murakami
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/haruki-murakami-sobre-el-encuentro-con-una-chica-cien-por-cien-perfecta-en-una-soleada-manana-del-mes-de-abril/2176/
 

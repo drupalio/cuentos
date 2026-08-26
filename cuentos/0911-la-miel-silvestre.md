@@ -1,6 +1,6 @@
 # La miel silvestre
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Horacio Quiroga
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-la-miel-silvestre/23107/
 

@@ -1,6 +1,6 @@
 # La guerra de los yacarés
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Horacio Quiroga
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-la-guerra-de-los-yacares/5585/
 

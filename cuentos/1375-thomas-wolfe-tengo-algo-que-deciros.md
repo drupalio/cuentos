@@ -1,6 +1,6 @@
 # Thomas Wolfe: Tengo algo que deciros
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Thomas Wolfe
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/thomas-wolfe-tengo-algo-que-deciros/3119/
 

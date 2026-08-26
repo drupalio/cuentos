@@ -1,6 +1,6 @@
 # Retorno de la noche
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Cortázar
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-retorno-de-la-noche/28087/
 

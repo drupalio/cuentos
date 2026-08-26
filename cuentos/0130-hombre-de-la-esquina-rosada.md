@@ -1,6 +1,6 @@
 # Hombre de la esquina rosada
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Jorge Luis Borges
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-hombre-la-esquina-rosada/782/
 

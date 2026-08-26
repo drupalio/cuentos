@@ -1,6 +1,6 @@
 # Papá Noel duerme en casa
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Samanta Schweblin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/samanta-schweblin-papa-noel-duerme-en-casa/25403/
 

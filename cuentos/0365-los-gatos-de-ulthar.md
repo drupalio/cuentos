@@ -1,6 +1,6 @@
 # Los gatos de Ulthar
 
-**Autor:** Juan Pablo Guevara
+**Autor:** H. P. Lovecraft
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-los-gatos-de-ulthar/8341/
 

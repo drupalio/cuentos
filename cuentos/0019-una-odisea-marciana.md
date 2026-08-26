@@ -1,6 +1,6 @@
 # Una odisea marciana
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Stanley G. Weinbaum
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stanley-g-weinbaum-una-odisea-marciana/28444/
 

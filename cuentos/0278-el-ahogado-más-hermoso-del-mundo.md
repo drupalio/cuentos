@@ -1,6 +1,6 @@
 # El ahogado más hermoso del mundo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gabriel García Márquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-el-ahogado-mas-hermoso-del-mundo/3278/
 

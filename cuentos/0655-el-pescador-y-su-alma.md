@@ -1,6 +1,6 @@
 # El pescador y su alma
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Oscar Wilde
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/oscar-wilde-el-pescador-y-su-alma/12458/
 

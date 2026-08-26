@@ -1,11 +1,11 @@
 ---
 title: "El sistema del doctor Tarr y del profesor Fether"
-author: "Juan Pablo Guevara"
+author: "Edgar Allan Poe"
 source: 'https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-el-sistema-del-doctor-tarr-y-del-profesor-fether/6777/'
 image: "1268-el-sistema-del-doctor-tarr-y-del-profesor-fether.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/edgar-allan-poe
 ---
 
 # El sistema del doctor Tarr y del profesor Fether

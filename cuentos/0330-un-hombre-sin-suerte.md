@@ -1,6 +1,6 @@
 # Un hombre sin suerte
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Samanta Schweblin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/samanta-schweblin-un-hombre-sin-suerte/14670/
 

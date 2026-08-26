@@ -1,6 +1,6 @@
 # El dueño de Rampling Gate
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Anne Rice
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anne-rice-el-dueno-de-rampling-gate/24320/
 

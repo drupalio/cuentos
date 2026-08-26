@@ -1,6 +1,6 @@
 # El beso
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gustavo Adolfo Bécquer
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gustavo-adolfo-becquer-el-beso/13329/
 

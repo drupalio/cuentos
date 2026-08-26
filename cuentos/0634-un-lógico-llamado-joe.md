@@ -1,6 +1,6 @@
 # Un lógico llamado Joe
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Murray Leinster
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/murray-leinster-un-logico-llamado-joe/25092/
 

@@ -1,6 +1,6 @@
 # Felisberto Hernández: El Cocodrilo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Felisberto Hernández
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/felisberto-hernandez-el-cocodrilo/2664/
 

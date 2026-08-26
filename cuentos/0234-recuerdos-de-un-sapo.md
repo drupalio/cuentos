@@ -1,6 +1,6 @@
 # Recuerdos de un sapo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Horacio Quiroga
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-recuerdos-de-un-sapo/12903/
 

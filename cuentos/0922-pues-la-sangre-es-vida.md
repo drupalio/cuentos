@@ -1,6 +1,6 @@
 # Pues la sangre es vida
 
-**Autor:** Juan Pablo Guevara
+**Autor:** F. Marion Crawford
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/f-marion-crawford-pues-la-sangre-es-vida/14880/
 

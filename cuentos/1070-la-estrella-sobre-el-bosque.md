@@ -1,6 +1,6 @@
 # La estrella sobre el bosque
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Stefan Zweig
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stefan-zweig-la-estrella-sobre-el-bosque/13030/
 

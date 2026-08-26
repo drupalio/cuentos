@@ -1,11 +1,11 @@
 ---
 title: "Usher II"
-author: "Juan Pablo Guevara"
+author: "Ray Bradbury"
 source: 'https://lecturia.org/cuentos-y-relatos/ray-bradbury-usher-ii/14824/'
 image: "0923-usher-ii.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/ray-bradbury
 ---
 
 # Usher II

@@ -1,6 +1,6 @@
 # El oro de Tomás Vargas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isabel Allende
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isabel-allende-el-oro-de-tomas-vargas/20312/
 

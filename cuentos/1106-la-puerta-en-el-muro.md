@@ -1,6 +1,6 @@
 # La puerta en el muro
 
-**Autor:** Juan Pablo Guevara
+**Autor:** H. G. Wells
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-g-wells-la-puerta-en-el-muro/2820/
 

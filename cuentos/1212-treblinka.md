@@ -1,6 +1,6 @@
 # Treblinka
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Sergio Ramírez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/sergio-ramirez-treblinka/14629/
 

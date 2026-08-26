@@ -1,6 +1,6 @@
 # La máquina se detiene
 
-**Autor:** Juan Pablo Guevara
+**Autor:** E. M. Forster
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/e-m-forster-la-maquina-se-detiene/23440/
 

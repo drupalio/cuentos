@@ -1,6 +1,6 @@
 # La galera
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Manuel Mujica Láinez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/manuel-mujica-lainez-la-galera/811/
 

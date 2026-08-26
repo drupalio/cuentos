@@ -1,6 +1,6 @@
 # Los perros del destino
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Saki
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-los-perros-del-destino/14157/
 

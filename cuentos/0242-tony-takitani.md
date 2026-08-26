@@ -1,6 +1,6 @@
 # Tony Takitani
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Haruki Murakami
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/haruki-murakami-tony-takitani/27227/
 

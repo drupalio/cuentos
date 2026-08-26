@@ -1,6 +1,6 @@
 # La madre y la muerte
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Bertolt Brecht
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bertolt-brecht-la-madre-y-la-muerte/28571/
 

@@ -1,6 +1,6 @@
 # Cielo de claraboyas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Silvina Ocampo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/silvina-ocampo-cielo-de-claraboyas/2718/
 

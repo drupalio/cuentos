@@ -1,11 +1,11 @@
 ---
 title: "El comerciante y la puerta del alquimista"
-author: "Juan Pablo Guevara"
+author: "Ted Chiang"
 source: 'https://lecturia.org/cuentos-y-relatos/ted-chiang-el-comerciante-y-la-puerta-del-alquimista/19545/'
 image: "0657-el-comerciante-y-la-puerta-del-alquimista.webp"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/ted-chiang
 ---
 
 # El comerciante y la puerta del alquimista

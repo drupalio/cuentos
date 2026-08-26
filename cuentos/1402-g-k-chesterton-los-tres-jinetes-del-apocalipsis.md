@@ -1,6 +1,6 @@
 # G. K. Chesterton: Los tres jinetes del apocalipsis
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gilbert Keith Chesterton
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/g-k-chesterton-los-tres-jinetes-del-apocalipsis/2357/
 

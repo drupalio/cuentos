@@ -1,6 +1,6 @@
 # Acerca de los dos besos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Hermann Hesse
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermann-hesse-acerca-de-los-dos-besos/2078/
 

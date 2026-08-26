@@ -1,6 +1,6 @@
 # La hija de Rapaccini
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Nataniel Hawthorne
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/nataniel-hawthorne-la-hija-de-rapaccini/15142/
 

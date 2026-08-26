@@ -1,6 +1,6 @@
 # La casa vacía
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Algernon Blackwood
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/algernon-blackwood-la-casa-vacia/17648/
 

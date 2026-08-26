@@ -1,6 +1,6 @@
 # El espejo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Amparo Dávila
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/amparo-davila-el-espejo/16814/
 

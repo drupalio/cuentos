@@ -1,6 +1,6 @@
 # La sombra en el cristal
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Agatha Christie
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/agatha-christie-la-sombra-en-el-cristal/21123/
 

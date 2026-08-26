@@ -1,11 +1,11 @@
 ---
 title: "Retrato de la Emperatriz"
-author: "Juan Pablo Guevara"
+author: "Angelica Gorodischer Retrato"
 source: 'https://lecturia.org/cuentos-y-relatos/angelica-gorodischer-retrato-de-la-emperatriz/6770/'
 image: "1277-retrato-de-la-emperatriz.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/angelica-gorodischer-retrato
 ---
 
 # Retrato de la Emperatriz

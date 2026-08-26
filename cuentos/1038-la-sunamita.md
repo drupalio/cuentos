@@ -1,6 +1,6 @@
 # La sunamita
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Inés Arredondo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ines-arredondo-la-sunamita/13373/
 

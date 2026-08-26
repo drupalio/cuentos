@@ -1,6 +1,6 @@
 # Mar afuera
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Ramón Ribeyro
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-mar-afuera/2100/
 

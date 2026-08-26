@@ -1,6 +1,6 @@
 # El desquite
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Miguel de Unamuno
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/miguel-de-unamuno-el-desquite/27430/
 

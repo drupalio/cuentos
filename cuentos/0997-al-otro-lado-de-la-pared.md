@@ -1,6 +1,6 @@
 # Al otro lado de la pared
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ambrose Bierce
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ambrose-bierce-al-otro-lado-de-la-pared/6054/
 

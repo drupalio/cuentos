@@ -1,11 +1,11 @@
 ---
 title: "En el bosque"
-author: "Juan Pablo Guevara"
+author: "Guy de Maupassant"
 source: 'https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-en-el-bosque/25316/'
 image: "0607-en-el-bosque.webp"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/guy-de-maupassant
 ---
 
 # En el bosque

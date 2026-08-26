@@ -1,6 +1,6 @@
 # Gato bajo la lluvia
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ernest Hemingway
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ernest-hemingway-gato-la-lluvia/884/
 

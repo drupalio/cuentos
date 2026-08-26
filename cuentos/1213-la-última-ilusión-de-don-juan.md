@@ -1,6 +1,6 @@
 # La última ilusión de Don Juan
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Emilia Pardo Bazán
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-la-ultima-ilusion-de-don-juan/3547/
 

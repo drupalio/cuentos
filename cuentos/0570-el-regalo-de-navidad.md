@@ -1,6 +1,6 @@
 # El regalo de navidad
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gordon R. Dickson
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gordon-r-dickson-el-regalo-de-navidad/25445/
 

@@ -1,6 +1,6 @@
 # Marguerite Yourcenar: La primera noche
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Marguerite Yourcenar
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/marguerite-yourcenar-la-primera-noche/1269/
 

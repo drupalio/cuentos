@@ -1,6 +1,6 @@
 # No despertéis a los muertos (Deja a los muertos en paz)
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ernst Raupach
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ernst-raupach-no-desperteis-a-los-muertos/14635/
 

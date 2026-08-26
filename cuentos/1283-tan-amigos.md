@@ -1,6 +1,6 @@
 # Tan amigos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Autor:Mario BenedettiTítulo: Tan amigosPublicado en:Montevideanos,1959
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-tan-amigos/6456/
 

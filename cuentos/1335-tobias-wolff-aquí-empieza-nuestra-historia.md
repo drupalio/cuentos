@@ -1,6 +1,6 @@
 # Tobias Wolff: Aquí empieza nuestra historia
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Tobias Wolff
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/tobias-wolff-aqui-empieza-nuestra-historia/5238/
 

@@ -1,6 +1,6 @@
 # El que se enterró
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Miguel de Unamuno
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/miguel-de-unamuno-el-que-se-enterro/28156/
 

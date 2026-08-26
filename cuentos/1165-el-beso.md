@@ -1,6 +1,6 @@
 # El beso
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Angela Carter
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/angela-carter-el-beso/8453/
 

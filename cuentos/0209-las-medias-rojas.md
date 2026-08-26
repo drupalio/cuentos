@@ -1,6 +1,6 @@
 # Las medias rojas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Emilia Pardo Bazán
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-las-medias-rojas/21678/
 

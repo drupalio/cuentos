@@ -1,6 +1,6 @@
 # Historia de una madre
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Hans Christian Andersen
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hans-christian-andersen-historia-de-una-madre/27820/
 

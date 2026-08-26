@@ -1,6 +1,6 @@
 # Alter ego
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Hugo Correa
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hugo-correa-alter-ego/25127/
 

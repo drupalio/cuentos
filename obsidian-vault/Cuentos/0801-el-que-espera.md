@@ -1,11 +1,11 @@
 ---
 title: "El que espera"
-author: "Juan Pablo Guevara"
+author: "Ray Bradbury"
 source: 'https://lecturia.org/cuentos-y-relatos/ray-bradbury-el-que-espera/6269/'
 image: "0801-el-que-espera.webp"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/ray-bradbury
 ---
 
 # El que espera

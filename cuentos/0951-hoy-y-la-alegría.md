@@ -1,6 +1,6 @@
 # Hoy y la alegría
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mario Benedetti
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-hoy-la-alegria/653/
 

@@ -1,6 +1,6 @@
 # La botella de caña
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Francisco Coloane
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/francisco-coloane-la-botella-de-cana/6273/
 

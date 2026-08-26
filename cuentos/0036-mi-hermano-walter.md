@@ -1,6 +1,6 @@
 # Mi hermano Walter
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Samanta Schweblin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/samanta-schweblin-mi-hermano-walter/28368/
 

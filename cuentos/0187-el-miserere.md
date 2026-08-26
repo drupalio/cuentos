@@ -1,6 +1,6 @@
 # El miserere
 
-**Autor:** Juan Pablo Guevara
+**Autor:** (Leyenda religiosa)Gustavo Adolfo Bécquer
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gustavo-adolfo-becquer-el-miserere/27604/
 

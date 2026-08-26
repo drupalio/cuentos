@@ -1,6 +1,6 @@
 # La cueva secreta o La aventura de John Lee
 
-**Autor:** Juan Pablo Guevara
+**Autor:** H. P. Lovecraft
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-la-cueva-secreta-o-la-aventura-de-john-lee/8449/
 

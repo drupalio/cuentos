@@ -1,6 +1,6 @@
 # Una mujer respetable
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Kate Chopin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/kate-chopin-una-mujer-respetable/22994/
 

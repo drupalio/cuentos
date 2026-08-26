@@ -1,6 +1,6 @@
 # El príncipe Encantador y el dragón sin llama
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isaac Asimov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-el-principe-encantador-y-el-dragon-sin-llama/28395/
 

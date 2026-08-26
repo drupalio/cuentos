@@ -1,6 +1,6 @@
 # Corazones perdidos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** M. R. James
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/m-r-james-corazones-perdidos/16362/
 

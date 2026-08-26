@@ -1,6 +1,6 @@
 # Kingsley Amis: La vida de Mason
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Kingsley Amis
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/kingsley-amis-la-vida-de-mason/8231/
 

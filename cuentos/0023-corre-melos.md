@@ -1,6 +1,6 @@
 # Corre, Melos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Osamu Dazai
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/osamu-dazai-corre-melos/28380/
 

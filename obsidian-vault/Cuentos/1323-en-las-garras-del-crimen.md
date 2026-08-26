@@ -1,11 +1,11 @@
 ---
 title: "En las garras del crimen"
-author: "Juan Pablo Guevara"
+author: "Andres Caicedo"
 source: 'https://lecturia.org/cuentos-y-relatos/andres-caicedo-en-las-garras-del-crimen/5553/'
 image: "1323-en-las-garras-del-crimen.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/andres-caicedo
 ---
 
 # En las garras del crimen

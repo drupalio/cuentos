@@ -1,11 +1,11 @@
 ---
 title: "Lo que necesita"
-author: "Juan Pablo Guevara"
+author: "Henry Kuttner & C. L. Moore"
 source: 'https://lecturia.org/cuentos-y-relatos/henry-kuttner-c-l-moore-lo-que-necesita/24913/'
 image: "0674-lo-que-necesita.webp"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/henry-kuttner-c-l-moore
 ---
 
 # Lo que necesita

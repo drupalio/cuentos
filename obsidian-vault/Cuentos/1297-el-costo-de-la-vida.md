@@ -1,11 +1,11 @@
 ---
 title: "El costo de la vida"
-author: "Juan Pablo Guevara"
+author: "Carlos Fuentes"
 source: 'https://lecturia.org/cuentos-y-relatos/carlos-fuentes-el-costo-de-la-vida/6364/'
 image: "1297-el-costo-de-la-vida.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/carlos-fuentes
 ---
 
 # El costo de la vida

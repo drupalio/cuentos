@@ -1,6 +1,6 @@
 # El muerto
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Jorge Luis Borges
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-muerto/660/
 

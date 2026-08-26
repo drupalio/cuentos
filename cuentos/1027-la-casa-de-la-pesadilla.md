@@ -1,6 +1,6 @@
 # La casa de la pesadilla
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edward Lucas White
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edward-lucas-white-la-casa-de-la-pesadilla/21861/
 

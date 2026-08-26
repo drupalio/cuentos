@@ -1,6 +1,6 @@
 # El precio
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Neil Gaiman
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/neil-gaiman-el-precio/16187/
 

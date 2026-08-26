@@ -1,6 +1,6 @@
 # Tienda y trastienda
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Baldomero Lillo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/baldomero-lillo-tienda-y-trastienda/7737/
 

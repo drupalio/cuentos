@@ -1,6 +1,6 @@
 # Yasunari Kawabata: La frágil vasija
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Yasunari Kawabata
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/yasunari-kawabata-la-fragil-vasija/738/
 

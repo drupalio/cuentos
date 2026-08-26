@@ -1,6 +1,6 @@
 # La mujer adúltera
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Albert Camus
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/albert-camus-la-mujer-adultera/802/
 

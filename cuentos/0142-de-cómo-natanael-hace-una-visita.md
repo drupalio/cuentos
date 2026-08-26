@@ -1,6 +1,6 @@
 # De cómo Natanael hace una visita
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gabriel García Márquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-de-como-natanael-hace-una-visita/3662/
 

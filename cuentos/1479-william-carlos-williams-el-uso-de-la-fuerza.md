@@ -1,6 +1,6 @@
 # William Carlos Williams: El uso de la fuerza
 
-**Autor:** Juan Pablo Guevara
+**Autor:** William Carlos Williams
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/william-carlos-williams-el-uso-de-la-fuerza/2269/
 

@@ -1,11 +1,11 @@
 ---
 title: "Un viaje"
-author: "Juan Pablo Guevara"
+author: "Edith Wharton"
 source: 'https://lecturia.org/cuentos-y-relatos/edith-wharton-un-viaje/7746/'
 image: "1262-un-viaje.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/edith-wharton
 ---
 
 # Un viaje

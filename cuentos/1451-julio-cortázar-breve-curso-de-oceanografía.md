@@ -1,6 +1,6 @@
 # Julio Cortázar: Breve curso de Oceanografía
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Cortázar
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-breve-curso-de-oceanografia/3869/
 

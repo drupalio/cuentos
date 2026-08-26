@@ -1,6 +1,6 @@
 # La abeja haragana
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Horacio Quiroga
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-la-abeja-haragana/5349/
 

@@ -1,6 +1,6 @@
 # George Saunders: La cascada
 
-**Autor:** Juan Pablo Guevara
+**Autor:** George Saunders
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/george-saunders-la-cascada/2396/
 

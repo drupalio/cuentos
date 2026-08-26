@@ -1,6 +1,6 @@
 # Vida y muerte en el pabellón de caridad
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Charles Bukowski
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/charles-bukowski-vida-muerte-pabellon-caridad/516/
 

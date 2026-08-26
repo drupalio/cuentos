@@ -1,6 +1,6 @@
 # Liliana Blum: Una novia para Kafka
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Liliana Blum
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/liliana-blum-una-novia-para-kafka/2556/
 

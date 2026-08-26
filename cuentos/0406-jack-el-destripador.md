@@ -1,6 +1,6 @@
 # Jack el Destripador
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Shirley Jackson
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/shirley-jackson-jack-el-destripador/26367/
 

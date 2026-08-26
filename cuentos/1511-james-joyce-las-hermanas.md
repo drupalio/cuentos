@@ -1,6 +1,6 @@
 # James Joyce: Las hermanas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** James Joyce
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/james-joyce-las-hermanas/746/
 

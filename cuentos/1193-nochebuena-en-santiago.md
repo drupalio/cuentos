@@ -1,6 +1,6 @@
 # Nochebuena en Santiago
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Manuel Rojas
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/manuel-rojas-nochebuena-en-santiago/6677/
 

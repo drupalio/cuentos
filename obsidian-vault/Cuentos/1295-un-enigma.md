@@ -1,11 +1,11 @@
 ---
 title: "Un enigma"
-author: "Juan Pablo Guevara"
+author: "Anton Chejov"
 source: 'https://lecturia.org/cuentos-y-relatos/anton-chejov-un-enigma/6212/'
 image: "1295-un-enigma.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/anton-chejov
 ---
 
 # Un enigma

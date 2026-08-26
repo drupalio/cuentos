@@ -1,6 +1,6 @@
 # Emilia Pardo Bazán: La cita
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Emilia Pardo Bazán
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-la-cita/4230/
 

@@ -1,6 +1,6 @@
 # El caso del doctor
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Stephen King
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stephen-king-el-caso-del-doctor/22029/
 

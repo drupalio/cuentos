@@ -1,6 +1,6 @@
 # Noche de paz
 
-**Autor:** Juan Pablo Guevara
+**Autor:** China Miéville
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/china-mieville-noche-de-paz/17822/
 

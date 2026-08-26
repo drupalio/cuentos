@@ -1,6 +1,6 @@
 # La apuesta
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Antón Chéjov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-la-apuesta/12699/
 

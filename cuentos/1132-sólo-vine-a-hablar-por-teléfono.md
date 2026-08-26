@@ -1,6 +1,6 @@
 # «Sólo vine a hablar por teléfono»
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gabriel García Márquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-solo-vine-a-hablar-por-telefono/13377/
 

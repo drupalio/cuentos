@@ -1,11 +1,11 @@
 ---
 title: "El potro salvaje"
-author: "Juan Pablo Guevara"
+author: "Horacio Quiroga"
 source: 'https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-potro-salvaje/15817/'
 image: "0819-el-potro-salvaje.webp"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/horacio-quiroga
 ---
 
 # El potro salvaje

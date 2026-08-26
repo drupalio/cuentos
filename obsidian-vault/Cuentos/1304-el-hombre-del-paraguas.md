@@ -1,11 +1,11 @@
 ---
 title: "El hombre del paraguas"
-author: "Juan Pablo Guevara"
+author: "Roald Dahl"
 source: 'https://lecturia.org/cuentos-y-relatos/roald-dahl-el-hombre-del-paraguas/6284/'
 image: "1304-el-hombre-del-paraguas.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/roald-dahl
 ---
 
 # El hombre del paraguas

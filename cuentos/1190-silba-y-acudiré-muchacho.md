@@ -1,6 +1,6 @@
 # ¡Silba y acudiré, muchacho!
 
-**Autor:** Juan Pablo Guevara
+**Autor:** M. R. James
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/m-r-james-silba-y-acudire-muchacho/16917/
 

@@ -1,6 +1,6 @@
 # Solipsista
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Fredric Brown
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fredric-brown-solipsista/26498/
 

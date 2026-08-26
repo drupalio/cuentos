@@ -1,11 +1,11 @@
 ---
 title: "La imperfecta casada"
-author: "Juan Pablo Guevara"
+author: "Leopoldo Alas (Clarín)"
 source: 'https://lecturia.org/cuentos-y-relatos/leopoldo-alas-clarin-la-imperfecta-casada/5807/'
 image: "1226-la-imperfecta-casada.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/leopoldo-alas-clarín
 ---
 
 # La imperfecta casada

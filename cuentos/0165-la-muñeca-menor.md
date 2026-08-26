@@ -1,6 +1,6 @@
 # La muñeca menor
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Rosario Ferré
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/rosario-ferre-la-muneca-menor/72/
 

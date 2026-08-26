@@ -1,6 +1,6 @@
 # La Muñeca
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Algernon Blackwood
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/algernon-blackwood-la-muneca/13542/
 

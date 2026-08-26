@@ -1,6 +1,6 @@
 # La fiesta ajena
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Liliana Heker
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/liliana-heker-la-fiesta-ajena/2676/
 

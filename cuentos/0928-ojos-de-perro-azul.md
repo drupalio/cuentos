@@ -1,6 +1,6 @@
 # Ojos de perro azul
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gabriel García Márquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-ojos-de-perro-azul/5821/
 

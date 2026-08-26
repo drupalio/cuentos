@@ -1,6 +1,6 @@
 # La jaula de la tía Enedina
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Adela Fernández
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/adela-fernandez-la-jaula-de-la-tia-enedina/24381/
 

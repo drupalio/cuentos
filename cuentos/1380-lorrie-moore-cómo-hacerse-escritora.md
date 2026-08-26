@@ -1,6 +1,6 @@
 # Lorrie Moore: Cómo hacerse escritora
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Lorrie Moore
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/lorrie-moore-como-hacerse-escritora/2764/
 

@@ -1,6 +1,6 @@
 # La noche del tigre
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Stephen King
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stephen-king-la-noche-del-tigre/18273/
 

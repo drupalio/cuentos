@@ -1,11 +1,11 @@
 ---
 title: "Blancanieves"
-author: "Juan Pablo Guevara"
+author: "Recopilado porJacob & Wilhelm Grimm"
 source: 'https://lecturia.org/cuentos-y-relatos/hermanos-grimm-blancanieves/10716/'
 image: "1112-blancanieves.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/recopilado-porjacob-wilhelm-grimm
 ---
 
 # Blancanieves

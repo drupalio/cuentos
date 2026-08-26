@@ -1,6 +1,6 @@
 # Saki: Los intrusos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Saki (Hector Hugh Munro)
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-los-intrusos/4125/
 

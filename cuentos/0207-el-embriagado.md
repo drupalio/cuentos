@@ -1,6 +1,6 @@
 # El embriagado
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Shirley Jackson
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/shirley-jackson-el-embriagado/27498/
 

@@ -1,6 +1,6 @@
 # El demonio negro
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Bloch
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-el-demonio-negro/22680/
 

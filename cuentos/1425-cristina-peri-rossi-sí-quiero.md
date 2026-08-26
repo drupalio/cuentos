@@ -1,6 +1,6 @@
 # Cristina Peri Rossi: Sí, quiero
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Cristina Peri Rossi
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/cristina-peri-rossi-quiero/1121/
 

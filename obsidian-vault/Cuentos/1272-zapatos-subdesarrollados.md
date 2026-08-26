@@ -1,11 +1,11 @@
 ---
 title: "Zapatos subdesarrollados"
-author: "Juan Pablo Guevara"
+author: "Manuel Rojas"
 source: 'https://lecturia.org/cuentos-y-relatos/manuel-rojas-zapatos-subdesarrollados/6829/'
 image: "1272-zapatos-subdesarrollados.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/manuel-rojas
 ---
 
 # Zapatos subdesarrollados

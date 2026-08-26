@@ -1,6 +1,6 @@
 # Los peregrinos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mary Shelley
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mary-shelley-los-peregrinos/25971/
 

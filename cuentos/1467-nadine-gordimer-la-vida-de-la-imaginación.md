@@ -1,6 +1,6 @@
 # Nadine Gordimer: La vida de la imaginación
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Nadine Gordimer
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/nadine-gordimer-la-vida-de-la-imaginacion/2811/
 

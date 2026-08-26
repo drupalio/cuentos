@@ -1,6 +1,6 @@
 # El Chiflón del Diablo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Baldomero Lillo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/baldomero-lillo-chiflon-del-diablo/735/
 

@@ -1,6 +1,6 @@
 # Tregua de navidad
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Graves
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-graves-tregua-de-navidad/6485/
 

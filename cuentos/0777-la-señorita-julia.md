@@ -1,6 +1,6 @@
 # La señorita Julia
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Amparo Dávila
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/amparo-davila-la-senorita-julia/24078/
 

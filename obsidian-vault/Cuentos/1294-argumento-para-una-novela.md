@@ -1,11 +1,11 @@
 ---
 title: "Argumento para una novela"
-author: "Juan Pablo Guevara"
+author: "Horacio Quiroga"
 source: 'https://lecturia.org/cuentos-y-relatos/horacio-quiroga-argumento-para-una-novela/6377/'
 image: "1294-argumento-para-una-novela.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/horacio-quiroga
 ---
 
 # Argumento para una novela

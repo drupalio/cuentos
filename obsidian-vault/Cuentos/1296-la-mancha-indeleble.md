@@ -1,11 +1,11 @@
 ---
 title: "La mancha indeleble"
-author: "Juan Pablo Guevara"
+author: "Juan Bosch"
 source: 'https://lecturia.org/cuentos-y-relatos/juan-bosch-la-mancha-indeleble/6265/'
 image: "1296-la-mancha-indeleble.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/juan-bosch
 ---
 
 # La mancha indeleble

@@ -1,6 +1,6 @@
 # La carne
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Virgilio Piñera
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/virgilio-pinera-la-carne/28261/
 

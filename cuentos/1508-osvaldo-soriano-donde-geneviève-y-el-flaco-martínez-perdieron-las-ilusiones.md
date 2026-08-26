@@ -1,6 +1,6 @@
 # Osvaldo Soriano: Donde Geneviève y el Flaco Martínez perdieron las ilusiones
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Osvaldo Soriano
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/osvaldo-soriano-donde-genevieve-flaco-martinez-perdieron-las-ilusiones/791/
 

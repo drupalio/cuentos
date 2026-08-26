@@ -1,6 +1,6 @@
 # El poder
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Fredric Brown
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fredric-brown-el-poder/5959/
 

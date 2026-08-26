@@ -1,6 +1,6 @@
 # La verdad sobre el caso del señor Valdemar
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edgar Allan Poe
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-la-verdad-sobre-el-caso-del-senor-valdemar/13255/
 

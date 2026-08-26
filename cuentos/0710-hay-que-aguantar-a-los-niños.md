@@ -1,6 +1,6 @@
 # Hay que aguantar a los niños
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Stephen King
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stephen-king-hay-que-aguantar-a-los-ninos/17254/
 

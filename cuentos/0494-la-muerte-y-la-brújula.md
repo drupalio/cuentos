@@ -1,6 +1,6 @@
 # La muerte y la brújula
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Jorge Luis Borges
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-la-muerte-y-la-brujula/2618/
 

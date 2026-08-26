@@ -1,6 +1,6 @@
 # El sueño del pongo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** José María Arguedas
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-maria-arguedas-sueno-del-pongo/1062/
 

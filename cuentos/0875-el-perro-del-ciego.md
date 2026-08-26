@@ -1,6 +1,6 @@
 # El perro del ciego
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Rubén Darío
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ruben-dario-el-perro-del-ciego/15222/
 

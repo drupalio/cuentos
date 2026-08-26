@@ -1,6 +1,6 @@
 # El budín esponjoso
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Autor: Hebe UhartTítulo: El budín esponjosoPublicado en:El budín esponjoso, 1977
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hebe-uhart-el-budin-esponjoso/5569/
 

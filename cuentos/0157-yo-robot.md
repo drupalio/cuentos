@@ -1,6 +1,6 @@
 # Yo, robot
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Otto Binder
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/otto-binder-yo-robot/27797/
 

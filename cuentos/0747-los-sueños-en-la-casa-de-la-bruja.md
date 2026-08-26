@@ -1,6 +1,6 @@
 # Los sueños en la casa de la bruja
 
-**Autor:** Juan Pablo Guevara
+**Autor:** H. P. Lovecraft
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-los-suenos-en-la-casa-de-la-bruja/16579/
 

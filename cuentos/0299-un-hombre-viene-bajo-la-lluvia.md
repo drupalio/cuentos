@@ -1,6 +1,6 @@
 # Un hombre viene bajo la lluvia
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gabriel García Márquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-un-hombre-viene-bajo-la-lluvia/12693/
 

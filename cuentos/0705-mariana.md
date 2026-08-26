@@ -1,6 +1,6 @@
 # Mariana
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Inés Arredondo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ines-arredondo-mariana/14040/
 

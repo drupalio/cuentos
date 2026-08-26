@@ -1,6 +1,6 @@
 # La rana infatigable
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Philip K. Dick
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-la-rana-infatigable/26149/
 

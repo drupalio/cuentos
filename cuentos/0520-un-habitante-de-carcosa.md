@@ -1,6 +1,6 @@
 # Un habitante de Carcosa
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ambrose Bierce
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ambrose-bierce-un-habitante-de-carcosa/5192/
 

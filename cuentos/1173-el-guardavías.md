@@ -1,6 +1,6 @@
 # El guardavías
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Charles Dickens
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/charles-dickens-el-guardavias/2206/
 

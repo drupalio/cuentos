@@ -1,6 +1,6 @@
 # La guadaña
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ray Bradbury
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-la-guadana/12989/
 

@@ -1,6 +1,6 @@
 # El regalo de los Reyes Magos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** O. Henry
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/o-henry-el-regalo-de-los-reyes-magos/4590/
 

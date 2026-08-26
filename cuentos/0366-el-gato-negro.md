@@ -1,6 +1,6 @@
 # El gato negro
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edgar Allan Poe
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-gato-negro/1129/
 

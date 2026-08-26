@@ -1,6 +1,6 @@
 # La fiesta de Navidad de Reginald
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Saki (Hector Hugh Munro)
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-la-fiesta-navidad-reginald/1238/
 

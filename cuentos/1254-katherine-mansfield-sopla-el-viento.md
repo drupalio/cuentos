@@ -1,6 +1,6 @@
 # Katherine Mansfield: Sopla el viento
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Katherine Mansfield
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/katherine-mansfield-sopla-el-viento/8288/
 

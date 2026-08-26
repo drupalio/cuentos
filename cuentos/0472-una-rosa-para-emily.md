@@ -1,6 +1,6 @@
 # Una rosa para Emily
 
-**Autor:** Juan Pablo Guevara
+**Autor:** William Faulkner
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/william-faulkner-una-rosa-emily/773/
 

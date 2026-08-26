@@ -1,6 +1,6 @@
 # El mortal inmortal
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mary Shelley
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mary-shelley-el-mortal-inmortal/2350/
 

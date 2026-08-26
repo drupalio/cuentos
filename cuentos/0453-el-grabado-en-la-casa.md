@@ -1,6 +1,6 @@
 # El grabado en la casa
 
-**Autor:** Juan Pablo Guevara
+**Autor:** H. P. Lovecraft
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-el-grabado-en-la-casa/19120/
 

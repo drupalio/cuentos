@@ -1,6 +1,6 @@
 # El zapaterito de Guanajuato
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Elena Garro
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elena-garro-zapaterito-guanajuato/1169/
 

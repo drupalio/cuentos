@@ -1,6 +1,6 @@
 # Me alquilo para soñar
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gabriel García Márquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-me-alquilo-para-sonar/11469/
 

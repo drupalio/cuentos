@@ -1,6 +1,6 @@
 # El caballito de madera
 
-**Autor:** Juan Pablo Guevara
+**Autor:** D. H. Lawrence
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/d-h-lawrence-el-caballito-de-madera/18724/
 

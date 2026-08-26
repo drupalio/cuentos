@@ -9,6 +9,7 @@ tags:
 
 ## Cuentos
 
+- [[1544-cuento-de-uno-que-salió-a-aprender-lo-que-era-el-miedo|Cuento de uno que salió a aprender lo que era el miedo]]
 - [[0015-cómo-unos-niños-jugaron-a-la-matanza|Cómo unos niños jugaron a la matanza]]
 - [[0052-el-enebro|El enebro]]
 - [[1536-el-novio-bandido|El novio bandido]]

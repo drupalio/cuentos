@@ -1,6 +1,6 @@
 # El mejor amigo de un muchacho
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isaac Asimov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-el-mejor-amigo-de-un-muchacho/20647/
 

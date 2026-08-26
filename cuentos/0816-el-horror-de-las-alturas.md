@@ -1,6 +1,6 @@
 # El horror de las alturas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Arthur Conan Doyle
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-conan-doyle-el-horror-de-las-alturas/4116/
 

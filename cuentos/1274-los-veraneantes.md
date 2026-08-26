@@ -1,6 +1,6 @@
 # Los veraneantes
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Anton Chejov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-los-veraneantes/6731/
 

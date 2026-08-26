@@ -1,6 +1,6 @@
 # Felisberto Hernández: Historia de un cigarrillo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Felisberto Hernández
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/felisberto-hernandez-historia-de-un-cigarrillo/1290/
 

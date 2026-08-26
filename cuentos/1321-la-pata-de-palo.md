@@ -1,6 +1,6 @@
 # La pata de palo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Autor: José de EsproncedaTítulo: La pata de paloPublicado en:El Artista, 1835
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-de-espronceda-la-pata-de-palo/5520/
 

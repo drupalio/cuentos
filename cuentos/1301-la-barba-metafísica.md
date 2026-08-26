@@ -1,6 +1,6 @@
 # La barba metafísica
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Felisberto Hernandez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/felisberto-hernandez-la-barba-metafisica/6296/
 

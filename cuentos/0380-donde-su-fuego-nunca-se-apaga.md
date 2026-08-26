@@ -1,6 +1,6 @@
 # Donde su fuego nunca se apaga
 
-**Autor:** Juan Pablo Guevara
+**Autor:** May Sinclair
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/may-sinclair-donde-su-fuego-nunca-se-apaga/65/
 

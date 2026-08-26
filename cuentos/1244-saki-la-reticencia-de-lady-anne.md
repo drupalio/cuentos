@@ -1,6 +1,6 @@
 # Saki: La reticencia de lady Anne
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Saki
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-la-reticencia-de-lady-anne/2194/
 

@@ -1,6 +1,6 @@
 # La casa de Adela
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mariana Enríquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mariana-enriquez-la-casa-de-adela/16942/
 

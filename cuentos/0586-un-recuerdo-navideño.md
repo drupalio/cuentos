@@ -1,6 +1,6 @@
 # Un recuerdo navideño
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Truman Capote
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/truman-capote-recuerdo-navideno/1223/
 

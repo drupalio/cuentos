@@ -1,6 +1,6 @@
 # Juan Emar: El pájaro verde
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan Emar
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-emar-pajaro-verde/798/
 

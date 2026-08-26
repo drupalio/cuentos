@@ -1,6 +1,6 @@
 # Kurt Vonnegut: Bienvenido a la jaula de los monos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Kurt Vonnegut
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/kurt-vonnegut-bienvenido-a-la-jaula-de-los-monos/2424/
 

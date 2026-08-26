@@ -1,6 +1,6 @@
 # Un espíritu inquieto
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Manuel Rojas
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/manuel-rojas-espiritu-inquieto/851/
 

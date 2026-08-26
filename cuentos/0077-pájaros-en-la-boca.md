@@ -1,6 +1,6 @@
 # Pájaros en la boca
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Samanta Schweblin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/samanta-schweblin-pajaros-en-la-boca/5794/
 

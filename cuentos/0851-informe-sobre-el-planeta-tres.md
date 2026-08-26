@@ -1,6 +1,6 @@
 # Informe sobre el planeta tres
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Arthur C. Clarke
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-c-clarke-informe-sobre-el-planeta-tres/6741/
 

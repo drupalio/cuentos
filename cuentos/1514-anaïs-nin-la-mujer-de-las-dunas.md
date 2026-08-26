@@ -1,6 +1,6 @@
 # Anaïs Nin: La mujer de las dunas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Anais Nin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anais-nin-la-mujer-las-dunas/622/
 

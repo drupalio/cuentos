@@ -1,11 +1,11 @@
 ---
 title: "El primer paso"
-author: "Juan Pablo Guevara"
+author: "Julio Ramon Ribeyro"
 source: 'https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-el-primer-paso/6554/'
 image: "1240-el-primer-paso.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/julio-ramon-ribeyro
 ---
 
 # El primer paso

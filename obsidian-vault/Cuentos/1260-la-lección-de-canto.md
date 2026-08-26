@@ -1,11 +1,11 @@
 ---
 title: "La lección de canto"
-author: "Juan Pablo Guevara"
+author: "Katherine Mansfield"
 source: 'https://lecturia.org/cuentos-y-relatos/katherine-mansfield-la-leccion-de-canto/6433/'
 image: "1260-la-lección-de-canto.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/katherine-mansfield
 ---
 
 # La lección de canto

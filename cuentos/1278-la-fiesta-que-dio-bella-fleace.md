@@ -1,6 +1,6 @@
 # La fiesta que dio Bella Fleace
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Evelyn Waugh
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/evelyn-waugh-la-fiesta-que-dio-bella-fleace/4767/
 

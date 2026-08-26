@@ -1,6 +1,6 @@
 # El muchacho que escribía poesía
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Yukio Mishima
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/yukio-mishima-el-muchacho-que-escribia-poesia/145/
 

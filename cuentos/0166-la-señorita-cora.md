@@ -1,6 +1,6 @@
 # La señorita Cora
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Cortázar
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-la-senorita-cora/13550/
 

@@ -1,6 +1,6 @@
 # El escarabajo de oro
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edgar Allan Poe
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-el-escarabajo-de-oro/15853/
 

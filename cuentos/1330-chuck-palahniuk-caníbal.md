@@ -1,6 +1,6 @@
 # Chuck Palahniuk: Caníbal
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Chuck Palahniuk
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/chuck-palahniuk-canibal/5419/
 

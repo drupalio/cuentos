@@ -1,6 +1,6 @@
 # El círculo de cero
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Stanley G. Weinbaum
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stanley-g-weinbaum-el-circulo-de-cero/28562/
 

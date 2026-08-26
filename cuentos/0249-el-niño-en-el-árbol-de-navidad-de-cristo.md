@@ -1,6 +1,6 @@
 # El niño en el árbol de Navidad de Cristo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Fiódor Dostoyevski
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fiodor-dostoyevski-el-nino-en-el-arbol-de-navidad-de-cristo/25591/
 

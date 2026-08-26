@@ -1,6 +1,6 @@
 # El gato
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan Carlos Onetti
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-carlos-onetti-el-gato/9234/
 

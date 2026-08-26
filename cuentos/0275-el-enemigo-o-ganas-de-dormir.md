@@ -1,6 +1,6 @@
 # El enemigo (o Ganas de dormir)
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Antón Chéjov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-el-enemigo/12803/
 

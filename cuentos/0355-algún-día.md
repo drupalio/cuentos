@@ -1,6 +1,6 @@
 # Algún día
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isaac Asimov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-algun-dia/6805/
 

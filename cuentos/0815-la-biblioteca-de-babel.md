@@ -1,6 +1,6 @@
 # La biblioteca de Babel
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Jorge Luis Borges
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-la-biblioteca-de-babel/5260/
 

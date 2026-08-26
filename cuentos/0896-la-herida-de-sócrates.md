@@ -1,6 +1,6 @@
 # La herida de Sócrates
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Bertolt Brecht
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bertolt-brecht-la-herida-de-socrates/269/
 

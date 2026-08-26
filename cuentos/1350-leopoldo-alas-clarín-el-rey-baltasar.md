@@ -1,6 +1,6 @@
 # Leopoldo Alas (Clarín): El rey Baltasar
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Leopoldo Alas Clarin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/leopoldo-alas-clarin-el-rey-baltasar/4764/
 

@@ -1,6 +1,6 @@
 # Habrá que matar los perros
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Miguel Briante Habra
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/miguel-briante-habra-que-matar-los-perros/6322/
 

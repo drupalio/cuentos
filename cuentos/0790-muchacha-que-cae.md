@@ -1,6 +1,6 @@
 # Muchacha que cae
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Dino Buzzati
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/dino-buzzati-muchacha-que-cae/3055/
 

@@ -1,6 +1,6 @@
 # Gastrónomos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Roald Dahl
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roald-dahl-gastronomos/4084/
 

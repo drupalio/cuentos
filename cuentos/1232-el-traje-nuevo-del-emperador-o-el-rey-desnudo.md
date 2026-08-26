@@ -1,6 +1,6 @@
 # El traje nuevo del emperador (o El rey desnudo)
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Hans Christian Andersen
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hans-christian-andersen-el-traje-nuevo-del-emperador/5832/
 

@@ -1,6 +1,6 @@
 # Bernhard Schlink: La noche en Baden-Baden
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Bernhard Schlink
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bernhard-schlink-la-noche-baden-baden/508/
 

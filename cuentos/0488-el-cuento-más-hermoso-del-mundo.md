@@ -1,6 +1,6 @@
 # El cuento más hermoso del mundo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Rudyard Kipling
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/rudyard-kipling-cuento-mas-hermoso-del-mundo/648/
 

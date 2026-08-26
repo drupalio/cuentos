@@ -1,6 +1,6 @@
 # El signo amarillo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert W. Chambers
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-w-chambers-el-signo-amarillo/25883/
 

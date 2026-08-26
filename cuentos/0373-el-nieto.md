@@ -1,6 +1,6 @@
 # El nieto
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Margarita Aguirre
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/margarita-aguirre-el-nieto/2029/
 

@@ -1,11 +1,11 @@
 ---
 title: "El banquete"
-author: "Juan Pablo Guevara"
+author: "Julio Ramon Ribeyro"
 source: 'https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-el-banquete/2883/'
 image: "1285-el-banquete.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/julio-ramon-ribeyro
 ---
 
 # El banquete

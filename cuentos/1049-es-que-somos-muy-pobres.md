@@ -1,6 +1,6 @@
 # Es que somos muy pobres
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan Rulfo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-rulfo-es-que-somos-muy-pobres/2310/
 

@@ -1,6 +1,6 @@
 # El ausente
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ana María Matute
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ana-maria-matute-el-ausente/3429/
 

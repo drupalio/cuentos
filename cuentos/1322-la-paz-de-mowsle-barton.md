@@ -1,6 +1,6 @@
 # La paz de Mowsle Barton
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Saki
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-la-paz-de-mowsle-barton/5542/
 

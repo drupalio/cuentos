@@ -1,6 +1,6 @@
 # El fantasma de Canterville
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Oscar Wilde
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/oscar-wilde-fantasma-canterville-narracion-hilo-idealista/1015/
 

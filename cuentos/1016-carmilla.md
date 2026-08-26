@@ -1,6 +1,6 @@
 # Carmilla
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Sheridan Le Fanu
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/sheridan-le-fanu-carmilla/13556/
 

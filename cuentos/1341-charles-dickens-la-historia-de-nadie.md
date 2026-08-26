@@ -1,6 +1,6 @@
 # Charles Dickens: La historia de nadie
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Charles Dickens
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/charles-dickens-la-historia-de-nadie/4759/
 

@@ -1,6 +1,6 @@
 # Retrato de la Emperatriz
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Angelica Gorodischer Retrato
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/angelica-gorodischer-retrato-de-la-emperatriz/6770/
 

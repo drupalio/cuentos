@@ -1,6 +1,6 @@
 # La sonrisa muerta
 
-**Autor:** Juan Pablo Guevara
+**Autor:** F. Marion Crawford
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/f-marion-crawford-la-sonrisa-muerta/25417/
 

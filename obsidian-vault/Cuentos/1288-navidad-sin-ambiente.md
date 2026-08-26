@@ -1,11 +1,11 @@
 ---
 title: "Navidad sin ambiente"
-author: "Juan Pablo Guevara"
+author: 'Autor: Miguel DelibesTítulo: Navidad sin ambientePublicado en:La mortaja, 1957'
 source: 'https://lecturia.org/cuentos-y-relatos/miguel-delibes-navidad-sin-ambiente/4601/'
 image: "1288-navidad-sin-ambiente.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/autor-miguel-delibestítulo-navidad-sin-ambientepublicado-enl
 ---
 
 # Navidad sin ambiente

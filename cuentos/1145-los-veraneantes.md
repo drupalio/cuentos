@@ -1,6 +1,6 @@
 # Los veraneantes
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Shirley Jackson
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/shirley-jackson-los-veraneantes/16120/
 

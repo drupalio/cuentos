@@ -1,6 +1,6 @@
 # Sergio Pitol: Semejante a los dioses
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Sergio Pitol
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/sergio-pitol-semejante-a-los-dioses/2262/
 

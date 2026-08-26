@@ -1,6 +1,6 @@
 # El ciclista del San Cristóbal
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Antonio Skármeta
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/antonio-skarmeta-el-ciclista-del-san-cristobal/108/
 

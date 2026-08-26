@@ -1,6 +1,6 @@
 # La Cuesta de las Comadres
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan Rulfo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-rulfo-la-cuesta-de-las-comadres/2302/
 

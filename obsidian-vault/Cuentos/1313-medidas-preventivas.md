@@ -1,11 +1,11 @@
 ---
 title: "Medidas preventivas"
-author: "Juan Pablo Guevara"
+author: "Antón Chéjov"
 source: 'https://lecturia.org/cuentos-y-relatos/anton-chejov-medidas-preventivas/5817/'
 image: "1313-medidas-preventivas.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/antón-chéjov
 ---
 
 # Medidas preventivas

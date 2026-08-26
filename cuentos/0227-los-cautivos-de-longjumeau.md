@@ -1,6 +1,6 @@
 # Los cautivos de Longjumeau
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Léon Bloy
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/leon-bloy-los-cautivos-de-longjumeau/2197/
 

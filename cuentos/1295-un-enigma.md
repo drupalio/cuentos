@@ -1,6 +1,6 @@
 # Un enigma
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Anton Chejov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-un-enigma/6212/
 

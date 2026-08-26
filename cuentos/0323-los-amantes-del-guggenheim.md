@@ -1,6 +1,6 @@
 # Los amantes del Guggenheim
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isabel Allende
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isabel-allende-los-amantes-del-guggenheim/24754/
 

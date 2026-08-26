@@ -1,11 +1,11 @@
 ---
 title: "El budín esponjoso"
-author: "Juan Pablo Guevara"
+author: 'Autor: Hebe UhartTítulo: El budín esponjosoPublicado en:El budín esponjoso, 1977'
 source: 'https://lecturia.org/cuentos-y-relatos/hebe-uhart-el-budin-esponjoso/5569/'
 image: "1311-el-budín-esponjoso.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/autor-hebe-uharttítulo-el-budín-esponjosopublicado-enel-budí
 ---
 
 # El budín esponjoso

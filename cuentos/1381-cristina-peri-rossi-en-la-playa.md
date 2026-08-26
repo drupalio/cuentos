@@ -1,6 +1,6 @@
 # Cristina Peri Rossi: En la playa
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Cristina Peri Rossi
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/cristina-peri-rossi-en-la-playa/2684/
 

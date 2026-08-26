@@ -1,6 +1,6 @@
 # Adiós a Ruibarbo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Guillermo Blanco
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guillermo-blanco-adios-ruibarbo/853/
 

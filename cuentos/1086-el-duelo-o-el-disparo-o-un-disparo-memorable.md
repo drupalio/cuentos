@@ -1,6 +1,6 @@
 # El duelo (o El disparo; o Un disparo memorable)
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Aleksandr Pushkin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/aleksandr-pushkin-el-duelo/12829/
 

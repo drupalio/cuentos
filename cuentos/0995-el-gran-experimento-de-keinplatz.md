@@ -1,6 +1,6 @@
 # El gran experimento de Keinplatz
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Arthur Conan Doyle
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-conan-doyle-el-gran-experimento-de-keinplatz/6745/
 

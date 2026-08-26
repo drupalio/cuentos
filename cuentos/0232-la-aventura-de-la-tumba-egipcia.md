@@ -1,6 +1,6 @@
 # La aventura de la tumba egipcia
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Agatha Christie
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/agatha-christie-la-aventura-de-la-tumba-egipcia/21478/
 

@@ -1,6 +1,6 @@
 # Un viaje
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edith Wharton
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edith-wharton-un-viaje/7746/
 

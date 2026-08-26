@@ -1,6 +1,6 @@
 # Todas las lágrimas del mundo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Brian Aldiss
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/brian-aldiss-todas-las-lagrimas-del-mundo/2220/
 

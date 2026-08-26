@@ -1,6 +1,6 @@
 # El pelo del Profeta
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Salman Rushdie
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/salman-rushdie-el-pelo-del-profeta/26141/
 

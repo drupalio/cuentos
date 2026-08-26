@@ -1,6 +1,6 @@
 # Mario Benedetti: Como siempre
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mario Benedetti
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-siempre/1217/
 

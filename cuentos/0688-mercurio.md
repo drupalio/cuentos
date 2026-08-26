@@ -1,6 +1,6 @@
 # Mercurio
 
-**Autor:** Juan Pablo Guevara
+**Autor:** D. H. Lawrence
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/d-h-lawrence-mercurio/24807/
 

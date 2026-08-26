@@ -1,6 +1,6 @@
 # El secreto del oro que crece
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Bram Stoker
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bram-stoker-el-secreto-del-oro-que-crece/16241/
 

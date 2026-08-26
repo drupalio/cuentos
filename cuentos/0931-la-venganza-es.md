@@ -1,6 +1,6 @@
 # La venganza es.
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Theodore Sturgeon
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/theodore-sturgeon-la-venganza-es/23064/
 

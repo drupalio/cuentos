@@ -1,6 +1,6 @@
 # G. K. Chesterton: El muerto de la casa del pavo real
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gilbert Keith Chesterton
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/g-k-chesterton-muerto-la-casa-del-pavo-real/1021/
 

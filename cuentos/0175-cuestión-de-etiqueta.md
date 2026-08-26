@@ -1,6 +1,6 @@
 # Cuestión de etiqueta
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Bloch
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-cuestion-de-etiqueta/13159/
 

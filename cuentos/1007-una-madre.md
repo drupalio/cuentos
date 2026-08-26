@@ -1,6 +1,6 @@
 # Una madre
 
-**Autor:** Juan Pablo Guevara
+**Autor:** James Joyce
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/james-joyce-una-madre/21996/
 

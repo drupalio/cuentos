@@ -1,6 +1,6 @@
 # Teresa Wilms Montt: A la vera del brasero
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Teresa Wilms Montt
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/teresa-wilms-montt-a-la-vera-del-brasero/2054/
 

@@ -1,6 +1,6 @@
 # La capa
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Bloch
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-la-capa/14429/
 

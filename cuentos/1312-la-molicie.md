@@ -1,6 +1,6 @@
 # La molicie
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Ramon Ribeyro
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-la-molicie/5560/
 

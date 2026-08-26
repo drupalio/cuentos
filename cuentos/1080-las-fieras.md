@@ -1,6 +1,6 @@
 # Las fieras
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Roberto Arlt
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roberto-arlt-las-fieras/866/
 

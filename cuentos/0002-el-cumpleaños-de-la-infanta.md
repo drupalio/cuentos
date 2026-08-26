@@ -1,6 +1,6 @@
 # El cumpleaños de la Infanta
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Oscar Wilde
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/oscar-wilde-el-cumpleanos-de-la-infanta/3132/
 

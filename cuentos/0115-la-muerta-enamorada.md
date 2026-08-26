@@ -1,6 +1,6 @@
 # La muerta enamorada
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Théophile Gautier
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/theophile-gautier-la-muerta-enamorada/13394/
 

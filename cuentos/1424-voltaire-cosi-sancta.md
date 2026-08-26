@@ -1,6 +1,6 @@
 # Voltaire: Cosi-Sancta
 
-**Autor:** Juan Pablo Guevara
+**Autor:** François-Marie Arouet,Voltaire
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/voltaire-cosi-sancta/1137/
 

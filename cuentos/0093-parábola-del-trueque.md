@@ -1,6 +1,6 @@
 # Parábola del trueque
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan José Arreola
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-jose-arreola-parabola-del-trueque/816/
 

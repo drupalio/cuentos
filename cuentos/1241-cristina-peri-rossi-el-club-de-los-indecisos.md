@@ -1,6 +1,6 @@
 # Cristina Peri Rossi: El Club de los Indecisos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Cristina Peri Rossi
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/cristina-peri-rossi-el-club-de-los-indecisos/8275/
 

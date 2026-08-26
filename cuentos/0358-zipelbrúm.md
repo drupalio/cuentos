@@ -1,6 +1,6 @@
 # Zipelbrúm
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Alejandro Jodorowsky
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alejandro-jodorowsky-zipelbrum/69/
 

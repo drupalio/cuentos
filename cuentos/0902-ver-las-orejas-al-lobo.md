@@ -1,6 +1,6 @@
 # Ver las orejas al lobo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Alice Munro
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alice-munro-ver-las-orejas-al-lobo/2103/
 

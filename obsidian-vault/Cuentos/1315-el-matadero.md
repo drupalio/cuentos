@@ -1,11 +1,11 @@
 ---
 title: "El matadero"
-author: "Juan Pablo Guevara"
+author: "Esteban Echeverria"
 source: 'https://lecturia.org/cuentos-y-relatos/esteban-echeverria-el-matadero/5589/'
 image: "1315-el-matadero.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/esteban-echeverria
 ---
 
 # El matadero

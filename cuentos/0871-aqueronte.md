@@ -1,6 +1,6 @@
 # Aqueronte
 
-**Autor:** Juan Pablo Guevara
+**Autor:** José Emilio Pacheco
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-emilio-pacheco-aqueronte/14651/
 

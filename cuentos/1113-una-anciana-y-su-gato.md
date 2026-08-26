@@ -1,6 +1,6 @@
 # Una anciana y su gato
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Doris Lessing
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/doris-lessing-una-anciana-y-su-gato/21052/
 

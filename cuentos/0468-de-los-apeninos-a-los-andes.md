@@ -1,6 +1,6 @@
 # De los Apeninos a los Andes
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edmondo De Amicis
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edmondo-de-amicis-de-los-apeninos-a-los-andes/26022/
 

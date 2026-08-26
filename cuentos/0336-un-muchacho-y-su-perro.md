@@ -1,6 +1,6 @@
 # Un muchacho y su perro
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Harlan Ellison
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/harlan-ellison-un-muchacho-y-su-perro/25203/
 

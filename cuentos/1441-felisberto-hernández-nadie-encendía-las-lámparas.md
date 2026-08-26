@@ -1,6 +1,6 @@
 # Felisberto Hernández: Nadie encendía las lámparas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Felisberto Hernández
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/felisberto-hernandez-nadie-encendia-las-lamparas/142/
 

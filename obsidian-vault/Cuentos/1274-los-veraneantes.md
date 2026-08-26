@@ -1,11 +1,11 @@
 ---
 title: "Los veraneantes"
-author: "Juan Pablo Guevara"
+author: "Anton Chejov"
 source: 'https://lecturia.org/cuentos-y-relatos/anton-chejov-los-veraneantes/6731/'
 image: "1274-los-veraneantes.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/anton-chejov
 ---
 
 # Los veraneantes

@@ -1,6 +1,6 @@
 # Nicomedes Guzmán: Una moneda al río
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Nicomedes Guzmán
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/nicomedes-guzman-una-moneda-al-rio/373/
 

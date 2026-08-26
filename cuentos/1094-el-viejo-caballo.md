@@ -1,6 +1,6 @@
 # El viejo caballo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Lev Tolstói
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/lev-tolstoi-el-viejo-caballo/5335/
 

@@ -1,6 +1,6 @@
 # Axolotl
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Cortázar
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-axolotl/2551/
 

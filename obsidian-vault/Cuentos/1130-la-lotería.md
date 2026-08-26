@@ -1,11 +1,11 @@
 ---
 title: "La lotería"
-author: "Juan Pablo Guevara"
+author: "Shirley Jackson"
 source: 'https://lecturia.org/cuentos-y-relatos/shirley-jackson-la-loteria/2359/'
 image: "1130-la-lotería.webp"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/shirley-jackson
 ---
 
 # La lotería

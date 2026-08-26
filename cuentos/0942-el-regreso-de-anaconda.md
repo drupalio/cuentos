@@ -1,6 +1,6 @@
 # El regreso de anaconda
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Horacio Quiroga
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-regreso-de-anaconda/22781/
 

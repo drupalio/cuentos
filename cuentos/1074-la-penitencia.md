@@ -1,6 +1,6 @@
 # La penitencia
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Saki
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-la-penitencia/4399/
 

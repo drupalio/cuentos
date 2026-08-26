@@ -1,6 +1,6 @@
 # El banquete
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Ramon Ribeyro
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-el-banquete/2883/
 

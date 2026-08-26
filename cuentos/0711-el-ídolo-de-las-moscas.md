@@ -1,6 +1,6 @@
 # El ídolo de las moscas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Jane Rice
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jane-rice-el-idolo-de-las-moscas/24603/
 

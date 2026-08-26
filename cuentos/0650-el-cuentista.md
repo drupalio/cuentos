@@ -1,6 +1,6 @@
 # El cuentista
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Saki
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-el-cuentista/839/
 

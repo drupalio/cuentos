@@ -1,6 +1,6 @@
 # F. Scott Fitzgerald: Regreso a Babilonia
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Francis Scott Fitzgerald
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/f-scott-fitzgerald-regreso-a-babilonia/2041/
 

@@ -1,6 +1,6 @@
 # El canto del cisne
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Horacio Quiroga
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-canto-del-cisne/5842/
 

@@ -1,6 +1,6 @@
 # Los superjuguetes duran todo el verano
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Brian Aldiss
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/brian-aldiss-los-superjuguetes-duran-todo-el-verano/5353/
 

@@ -1,6 +1,6 @@
 # El demonio de la perversidad
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edgar Allan Poe
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-el-demonio-de-la-perversidad/28210/
 

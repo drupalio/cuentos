@@ -1,6 +1,6 @@
 # El espejo que huye
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Giovanni Papini
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/giovanni-papini-el-espejo-que-huye/26049/
 

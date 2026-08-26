@@ -1,6 +1,6 @@
 # El atajo de la señora Todd
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Stephen King
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stephen-king-el-atajo-de-la-senora-todd/21484/
 

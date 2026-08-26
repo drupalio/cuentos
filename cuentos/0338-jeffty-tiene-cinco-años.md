@@ -1,6 +1,6 @@
 # Jeffty tiene cinco años
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Harlan Ellison
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/harlan-ellison-jeffty-tiene-cinco-anos/8152/
 

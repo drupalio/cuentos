@@ -1,6 +1,6 @@
 # En las tierras perdidas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** George R. R. Martin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/george-r-r-martin-en-las-tierras-perdidas/17624/
 

@@ -1,6 +1,6 @@
 # Jhumpa Lahiri: El tercer y último continente
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Jhumpa Lahiri
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jhumpa-lahiri-el-tercer-y-ultimo-continente/2662/
 

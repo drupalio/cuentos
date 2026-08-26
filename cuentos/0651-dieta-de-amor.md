@@ -1,6 +1,6 @@
 # Dieta de amor
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Horacio Quiroga
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-dieta-de-amor/6425/
 

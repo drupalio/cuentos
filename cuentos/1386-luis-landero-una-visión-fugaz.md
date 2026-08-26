@@ -1,6 +1,6 @@
 # Luis Landero: Una visión fugaz
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Luis Landero
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/luis-landero-una-vision-fugaz/2493/
 

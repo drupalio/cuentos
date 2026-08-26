@@ -1,11 +1,11 @@
 ---
 title: "De qué hablamos cuando hablamos de amor"
-author: "Juan Pablo Guevara"
+author: "Raymond Carver"
 source: 'https://lecturia.org/cuentos-y-relatos/raymond-carver-de-que-hablamos-cuando-hablamos-de-amor/2694/'
 image: "1252-de-qué-hablamos-cuando-hablamos-de-amor.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/raymond-carver
 ---
 
 # De qué hablamos cuando hablamos de amor

@@ -1,6 +1,6 @@
 # Fin de semana
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mario Benedetti
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-fin-de-semana/3649/
 

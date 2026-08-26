@@ -1,6 +1,6 @@
 # Utopía de un hombre que está cansado
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Jorge Luis Borges
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-utopia-de-un-hombre-que-esta-cansado/5780/
 

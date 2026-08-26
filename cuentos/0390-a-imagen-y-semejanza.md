@@ -1,6 +1,6 @@
 # A imagen y semejanza
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mario Benedetti
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-a-imagen-y-semejanza/4372/
 

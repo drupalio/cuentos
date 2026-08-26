@@ -1,6 +1,6 @@
 # Las vestiduras peligrosas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Silvina Ocampo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/silvina-ocampo-las-vestiduras-peligrosas/6088/
 

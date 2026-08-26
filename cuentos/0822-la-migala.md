@@ -1,6 +1,6 @@
 # La migala
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan José Arreola
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-jose-arreola-la-migala/5464/
 

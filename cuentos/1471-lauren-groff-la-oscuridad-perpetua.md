@@ -1,6 +1,6 @@
 # Lauren Groff: La oscuridad perpetua
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Lauren Groff
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/lauren-groff-la-oscuridad-perpetua/2704/
 

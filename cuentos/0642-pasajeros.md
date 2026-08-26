@@ -1,6 +1,6 @@
 # Pasajeros
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Silverberg
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-silverberg-pasajeros/6858/
 

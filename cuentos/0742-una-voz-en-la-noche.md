@@ -1,6 +1,6 @@
 # Una voz en la noche
 
-**Autor:** Juan Pablo Guevara
+**Autor:** William Hope Hodgson
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/william-hope-hodgson-una-voz-en-la-noche/24364/
 

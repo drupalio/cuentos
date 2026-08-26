@@ -1,6 +1,6 @@
 # William Wilson
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edgar Allan Poe
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-william-wilson-2/95/
 

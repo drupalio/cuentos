@@ -1,6 +1,6 @@
 # Las ratas del cementerio
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Henry Kuttner
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/henry-kuttner-las-ratas-del-cementerio/16737/
 

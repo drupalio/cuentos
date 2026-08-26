@@ -1,6 +1,6 @@
 # El extraño caso de Benjamin Button
 
-**Autor:** Juan Pablo Guevara
+**Autor:** F. Scott Fitzgerald
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/f-scott-fitzgerald-el-extrano-caso-de-benjamin-button/2546/
 

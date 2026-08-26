@@ -1,6 +1,6 @@
 # El día que fuimos perros
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Elena Garro
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elena-garro-el-dia-que-fuimos-perros/2125/
 

@@ -1,6 +1,6 @@
 # Sol, Luna y Talía
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Giambattista Basile
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/giambattista-basile-sol-luna-y-talia/28462/
 

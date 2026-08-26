@@ -1,6 +1,6 @@
 # Ricardo Piglia: La loca y el relato del crimen
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ricardo Piglia
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ricardo-piglia-la-loca-relato-del-crimen/962/
 

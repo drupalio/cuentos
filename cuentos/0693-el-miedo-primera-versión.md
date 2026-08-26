@@ -1,6 +1,6 @@
 # El miedo (Primera versión)
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Guy de Maupassant
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-el-miedo-primera-version/16763/
 

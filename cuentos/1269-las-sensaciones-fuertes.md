@@ -1,6 +1,6 @@
 # Las sensaciones fuertes
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Anton Chejov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-las-sensaciones-fuertes/6854/
 

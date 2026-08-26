@@ -1,6 +1,6 @@
 # La nueva catacumba
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Arthur Conan Doyle
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-conan-doyle-la-nueva-catacumba/25780/
 

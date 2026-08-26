@@ -1,6 +1,6 @@
 # Ligeia
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edgar Allan Poe
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-ligeia/13999/
 

@@ -1,6 +1,6 @@
 # Exageró la nota
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Antón Chéjov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-exagero-la-nota/12948/
 

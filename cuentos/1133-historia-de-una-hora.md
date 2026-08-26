@@ -1,6 +1,6 @@
 # Historia de una hora
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Kate Chopin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/kate-chopin-historia-de-una-hora/4118/
 

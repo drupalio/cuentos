@@ -1,11 +1,11 @@
 ---
 title: "Los ganadores"
-author: "Juan Pablo Guevara"
+author: 'Autor: Arturo Uslar PietriTítulo: Los ganadoresPublicado en:Los ganadores, 1980'
 source: 'https://lecturia.org/cuentos-y-relatos/arturo-uslar-pietri-los-ganadores/6818/'
 image: "1276-los-ganadores.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/autor-arturo-uslar-pietritítulo-los-ganadorespublicado-enlos
 ---
 
 # Los ganadores

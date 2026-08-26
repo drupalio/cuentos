@@ -1,6 +1,6 @@
 # El hombre del paraguas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Roald Dahl
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roald-dahl-el-hombre-del-paraguas/6284/
 

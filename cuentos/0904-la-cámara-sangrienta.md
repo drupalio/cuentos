@@ -1,6 +1,6 @@
 # La cámara sangrienta
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Angela Carter
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/angela-carter-la-camara-sangrienta/4246/
 

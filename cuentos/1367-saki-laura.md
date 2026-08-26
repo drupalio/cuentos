@@ -1,6 +1,6 @@
 # Saki: Laura
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Saki (Hector Hugh Munro)
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-laura/3798/
 

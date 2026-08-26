@@ -1,6 +1,6 @@
 # El señor del pasado
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Bloch
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-el-senor-del-pasado/16977/
 

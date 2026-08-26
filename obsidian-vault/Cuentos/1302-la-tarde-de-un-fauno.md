@@ -1,11 +1,11 @@
 ---
 title: "La tarde de un fauno"
-author: "Juan Pablo Guevara"
+author: "Adolfo Bioy Casares"
 source: 'https://lecturia.org/cuentos-y-relatos/adolfo-bioy-casares-la-tarde-de-un-fauno/6292/'
 image: "1302-la-tarde-de-un-fauno.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/adolfo-bioy-casares
 ---
 
 # La tarde de un fauno

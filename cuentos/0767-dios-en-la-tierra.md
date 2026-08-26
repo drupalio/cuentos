@@ -1,6 +1,6 @@
 # Dios en la tierra
 
-**Autor:** Juan Pablo Guevara
+**Autor:** José Revueltas
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-revueltas-dios-en-la-tierra/24193/
 

@@ -1,6 +1,6 @@
 # El infierno de los espejos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edogawa Rampo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edogawa-rampo-el-infierno-de-los-espejos/22931/
 

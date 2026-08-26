@@ -1,6 +1,6 @@
 # Un señor muy viejo con unas alas enormes
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gabriel García Márquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-un-senor-muy-viejo-con-unas-alas-enormes/2698/
 

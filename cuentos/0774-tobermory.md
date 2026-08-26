@@ -1,6 +1,6 @@
 # Tobermory
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Saki
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-tobermory/2567/
 

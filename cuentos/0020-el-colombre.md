@@ -1,6 +1,6 @@
 # El colombre
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Dino Buzzati
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/dino-buzzati-el-colombre/28416/
 

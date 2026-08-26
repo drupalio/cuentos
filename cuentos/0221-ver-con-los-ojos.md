@@ -1,6 +1,6 @@
 # Ver con los ojos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Miguel de Unamuno
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/miguel-de-unamuno-ver-con-los-ojos/3668/
 

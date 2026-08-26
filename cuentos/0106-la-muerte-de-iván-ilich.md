@@ -1,6 +1,6 @@
 # La muerte de Iván Ilich
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Lev Tolstói
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/lev-tolstoi-la-muerte-de-ivan-ilich/27959/
 

@@ -1,11 +1,11 @@
 ---
 title: "Caza del tigre"
-author: "Juan Pablo Guevara"
+author: "Horacio Quiroga"
 source: 'https://lecturia.org/cuentos-y-relatos/horacio-quiroga-caza-del-tigre/6475/'
 image: "1286-caza-del-tigre.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/horacio-quiroga
 ---
 
 # Caza del tigre

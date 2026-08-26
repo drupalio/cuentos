@@ -1,6 +1,6 @@
 # Luz de luna
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Cixin Liu
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/cixin-liu-luz-de-luna/25156/
 

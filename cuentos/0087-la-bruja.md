@@ -1,6 +1,6 @@
 # La bruja
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Shirley Jackson
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/shirley-jackson-la-bruja/22767/
 

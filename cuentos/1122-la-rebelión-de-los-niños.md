@@ -1,6 +1,6 @@
 # La rebelión de los niños
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Cristina Peri Rossi
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/cristina-peri-rossi-la-rebelion-los-ninos/900/
 

@@ -1,11 +1,11 @@
 ---
 title: "Tan amigos"
-author: "Juan Pablo Guevara"
+author: 'Autor:Mario BenedettiTítulo: Tan amigosPublicado en:Montevideanos,1959'
 source: 'https://lecturia.org/cuentos-y-relatos/mario-benedetti-tan-amigos/6456/'
 image: "1283-tan-amigos.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/autormario-benedettitítulo-tan-amigospublicado-enmontevidean
 ---
 
 # Tan amigos

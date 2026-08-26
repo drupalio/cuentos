@@ -1,6 +1,6 @@
 # Patrón
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Abelardo Castillo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/abelardo-castillo-patron/785/
 

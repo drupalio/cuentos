@@ -1,6 +1,6 @@
 # El gato que iba solo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Rudyard Kipling
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/rudyard-kipling-el-gato-que-iba-solo/21721/
 

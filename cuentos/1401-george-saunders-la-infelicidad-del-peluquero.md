@@ -1,6 +1,6 @@
 # George Saunders: La infelicidad del peluquero
 
-**Autor:** Juan Pablo Guevara
+**Autor:** George Saunders
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/george-saunders-la-infelicidad-del-peluquero/2392/
 

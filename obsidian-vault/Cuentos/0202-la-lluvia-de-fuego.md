@@ -1,11 +1,11 @@
 ---
 title: "La lluvia de fuego"
-author: "Juan Pablo Guevara"
+author: "Leopoldo Lugones"
 source: 'https://lecturia.org/cuentos-y-relatos/leopoldo-lugones-la-lluvia-de-fuego/2834/'
 image: "0202-la-lluvia-de-fuego.webp"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/leopoldo-lugones
 ---
 
 # La lluvia de fuego

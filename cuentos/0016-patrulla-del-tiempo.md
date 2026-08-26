@@ -1,6 +1,6 @@
 # Patrulla del Tiempo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Poul Anderson
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/poul-anderson-patrulla-del-tiempo/21784/
 

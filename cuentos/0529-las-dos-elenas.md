@@ -1,6 +1,6 @@
 # Las dos Elenas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Carlos Fuentes
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/carlos-fuentes-las-dos-elenas/849/
 

@@ -1,11 +1,11 @@
 ---
 title: "Cartas desde la Tierra"
-author: "Juan Pablo Guevara"
+author: "Mark Twain"
 source: 'https://lecturia.org/cuentos-y-relatos/mark-twain-las-cartas-de-satan-desde-la-tierra/876/'
 image: "0204-cartas-desde-la-tierra.webp"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/mark-twain
 ---
 
 # Cartas desde la Tierra

@@ -1,6 +1,6 @@
 # Fin de curso
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mariana Enríquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mariana-enriquez-fin-de-curso/4122/
 

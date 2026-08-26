@@ -1,6 +1,6 @@
 # Veinte años después
 
-**Autor:** Juan Pablo Guevara
+**Autor:** O. Henry
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/o-henry-veinte-anos-despues/4743/
 

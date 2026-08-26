@@ -1,6 +1,6 @@
 # Argumento para una novela
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Horacio Quiroga
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-argumento-para-una-novela/6377/
 

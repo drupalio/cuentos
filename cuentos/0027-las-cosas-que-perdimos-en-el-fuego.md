@@ -1,6 +1,6 @@
 # Las cosas que perdimos en el fuego
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mariana Enríquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mariana-enriquez-las-cosas-que-perdimos-en-el-fuego/28400/
 

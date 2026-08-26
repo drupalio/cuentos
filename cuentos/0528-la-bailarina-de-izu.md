@@ -1,6 +1,6 @@
 # La bailarina de Izu
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Yasunari Kawabata
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/yasunari-kawabata-la-bailarina-de-izu/22847/
 

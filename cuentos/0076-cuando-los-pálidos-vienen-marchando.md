@@ -1,6 +1,6 @@
 # Cuando los pálidos vienen marchando
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Elsa Bornemann
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elsa-bornemann-cuando-los-palidos-vienen-marchando/28183/
 

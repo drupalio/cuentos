@@ -1,6 +1,6 @@
 # Aceite de perro
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ambrose Bierce
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ambrose-bierce-aceite-de-perro/2708/
 

@@ -1,6 +1,6 @@
 # Un artista del trapecio
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Franz Kafka
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/franz-kafka-un-artista-del-trapecio-o-la-primera-desgracia/2627/
 

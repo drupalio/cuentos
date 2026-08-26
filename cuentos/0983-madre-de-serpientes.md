@@ -1,6 +1,6 @@
 # Madre de serpientes
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Bloch
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-madre-de-serpientes/22314/
 

@@ -1,6 +1,6 @@
 # Mujeres desesperadas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Samanta Schweblin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/samanta-schweblin-mujeres-desesperadas/27450/
 

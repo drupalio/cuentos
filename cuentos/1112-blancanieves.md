@@ -1,6 +1,6 @@
 # Blancanieves
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Recopilado porJacob & Wilhelm Grimm
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermanos-grimm-blancanieves/10716/
 

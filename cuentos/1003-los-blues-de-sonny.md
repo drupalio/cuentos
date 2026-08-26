@@ -1,6 +1,6 @@
 # Los blues de Sonny
 
-**Autor:** Juan Pablo Guevara
+**Autor:** James Baldwin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/james-baldwin-los-blues-de-sonny/22121/
 

@@ -1,6 +1,6 @@
 # El Noúmeno
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Adolfo Bioy Casares
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/adolfo-bioy-casares-el-noumeno/6850/
 

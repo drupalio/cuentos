@@ -1,6 +1,6 @@
 # Solo para fumadores
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Ramón Ribeyro
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-solo-para-fumadores/15496/
 

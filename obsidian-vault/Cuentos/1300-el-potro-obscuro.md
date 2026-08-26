@@ -1,11 +1,11 @@
 ---
 title: "El potro obscuro"
-author: "Juan Pablo Guevara"
+author: "Miguel Hernandez"
 source: 'https://lecturia.org/cuentos-y-relatos/miguel-hernandez-el-potro-obscuro/6172/'
 image: "1300-el-potro-obscuro.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/miguel-hernandez
 ---
 
 # El potro obscuro

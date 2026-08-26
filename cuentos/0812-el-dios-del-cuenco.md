@@ -1,6 +1,6 @@
 # El dios del cuenco
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert E. Howard
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-e-howard-el-dios-del-cuenco/15413/
 

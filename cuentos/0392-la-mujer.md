@@ -1,6 +1,6 @@
 # La mujer
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan Bosch
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-bosch-la-mujer/6131/
 

@@ -1,6 +1,6 @@
 # De qué hablamos cuando hablamos de amor
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Raymond Carver
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/raymond-carver-de-que-hablamos-cuando-hablamos-de-amor/2694/
 

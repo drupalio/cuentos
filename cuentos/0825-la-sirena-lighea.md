@@ -1,6 +1,6 @@
 # La Sirena (Lighea)
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Giuseppe Tomasi di Lampedusa
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/giuseppe-tomasi-di-lampedusa-la-sirena/15378/
 

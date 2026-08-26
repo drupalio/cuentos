@@ -1,6 +1,6 @@
 # «Todos vosotros, zombies…»
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert A. Heinlein
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-a-heinlein-todos-vosotros-zombies/19410/
 

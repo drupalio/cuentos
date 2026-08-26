@@ -1,6 +1,6 @@
 # Máximo Gorki: El castigo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Máximo Gorki
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/maximo-gorki-el-castigo/165/
 

@@ -1,6 +1,6 @@
 # El Príncipe Feliz
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Oscar Wilde
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/oscar-wilde-el-principe-feliz/4074/
 

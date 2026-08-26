@@ -1,6 +1,6 @@
 # La última fiesta de Arlequín
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Thomas Ligotti
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/thomas-ligotti-la-ultima-fiesta-de-arlequin/27737/
 

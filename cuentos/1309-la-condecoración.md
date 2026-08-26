@@ -1,6 +1,6 @@
 # La condecoración
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Anton Chejov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-la-condecoracion/5565/
 

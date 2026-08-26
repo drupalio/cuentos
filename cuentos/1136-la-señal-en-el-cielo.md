@@ -1,6 +1,6 @@
 # La señal en el cielo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Agatha Christie
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/agatha-christie-la-senal-en-el-cielo/2844/
 

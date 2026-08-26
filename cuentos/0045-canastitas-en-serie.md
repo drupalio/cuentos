@@ -1,6 +1,6 @@
 # Canastitas en serie
 
-**Autor:** Juan Pablo Guevara
+**Autor:** B. Traven
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/b-traven-canastitas-en-serie/28334/
 

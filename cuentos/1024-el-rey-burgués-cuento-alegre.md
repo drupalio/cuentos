@@ -1,6 +1,6 @@
 # El rey burgués (Cuento alegre)
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Rubén Darío
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ruben-dario-rey-burgues-cuento-alegre/1057/
 

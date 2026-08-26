@@ -1,6 +1,6 @@
 # José Donoso: «China»
 
-**Autor:** Juan Pablo Guevara
+**Autor:** José Donoso
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-donoso-china/1003/
 

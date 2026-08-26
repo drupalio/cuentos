@@ -1,6 +1,6 @@
 # Aldous Huxley: El joven Arquímedes
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Aldous Huxley
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/aldous-huxley-joven-arquimedes/1030/
 

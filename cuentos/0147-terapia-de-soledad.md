@@ -1,6 +1,6 @@
 # Terapia de soledad
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mario Benedetti
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-terapia-de-soledad/6301/
 

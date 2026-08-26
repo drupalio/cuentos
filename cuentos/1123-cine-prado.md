@@ -1,6 +1,6 @@
 # Cine Prado
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Elena Poniatowska
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elena-poniatowska-cine-prado/4458/
 

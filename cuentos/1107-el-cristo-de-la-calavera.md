@@ -1,6 +1,6 @@
 # El Cristo de la calavera
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gustavo Adolfo Bécquer
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gustavo-adolfo-becquer-el-cristo-de-la-calavera/12886/
 

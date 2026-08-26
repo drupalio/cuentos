@@ -1,6 +1,6 @@
 # El paso del Yabebirí
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Horacio Quiroga
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-paso-del-yabebiri/26123/
 

@@ -1,6 +1,6 @@
 # La historia de Salomé
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Amelia Edwards
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/amelia-edwards-la-historia-de-salome/8129/
 

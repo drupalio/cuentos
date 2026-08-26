@@ -1,6 +1,6 @@
 # Wakefield
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Nathaniel Hawthorne
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/nathaniel-hawthorne-wakefield/2853/
 

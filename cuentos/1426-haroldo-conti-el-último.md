@@ -1,6 +1,6 @@
 # Haroldo Conti: El último
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Haroldo Conti
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/haroldo-conti-ultimo/1099/
 

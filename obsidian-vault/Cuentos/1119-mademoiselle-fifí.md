@@ -1,11 +1,11 @@
 ---
 title: "Mademoiselle Fifí"
-author: "Juan Pablo Guevara"
+author: "Guy de Maupassant"
 source: 'https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-mademoiselle-fifi/20798/'
 image: "1119-mademoiselle-fifí.webp"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/guy-de-maupassant
 ---
 
 # Mademoiselle Fifí

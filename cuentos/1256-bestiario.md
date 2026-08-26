@@ -1,6 +1,6 @@
 # Bestiario
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Autor:Julio CortázarTítulo:BestiarioPublicado en:Bestiario, 1951
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-bestiario/6885/
 

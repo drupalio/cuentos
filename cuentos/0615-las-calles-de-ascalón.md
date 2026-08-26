@@ -1,6 +1,6 @@
 # Las calles de Ascalón
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Harry Harrison
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/harry-harrison-las-calles-de-ascalon/25221/
 

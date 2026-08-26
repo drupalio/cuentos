@@ -1,6 +1,6 @@
 # Tierra ajena
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Autor: Oscar CastroTítulo: Tierra ajenaPublicado en:Huellas en la tierra, 1940
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/oscar-castro-tierra-ajena/6535/
 

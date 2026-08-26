@@ -1,6 +1,6 @@
 # La puerta condenada
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Cortázar
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-la-puerta-condenada/16826/
 

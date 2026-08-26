@@ -1,6 +1,6 @@
 # Los niños felices
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Arthur Machen
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-machen-los-ninos-felices/16716/
 

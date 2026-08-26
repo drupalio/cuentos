@@ -1,6 +1,6 @@
 # Pacto de sangre
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mario Benedetti
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-pacto-de-sangre/14250/
 

@@ -1,6 +1,6 @@
 # La embajada estadounidense
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Chimamanda Ngozi Adichie
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/chimamanda-ngozi-adichie-la-embajada-estadounidense/4174/
 

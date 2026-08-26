@@ -1,6 +1,6 @@
 # Kazuo Ishiguro: El cantante melódico
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Kazuo Ishiguro
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/kazuo-ishiguro-cantante-melodico/862/
 

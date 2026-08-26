@@ -1,6 +1,6 @@
 # Los amados muertos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** C. M. Eddy, Jr. & H. P. Lovecraft
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/c-m-eddy-jr-h-p-lovecraft-los-amados-muertos/21777/
 

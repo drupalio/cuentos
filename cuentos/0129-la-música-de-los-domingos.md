@@ -1,6 +1,6 @@
 # La música de los domingos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Liliana Heker
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/liliana-heker-la-musica-de-los-domingos/8371/
 

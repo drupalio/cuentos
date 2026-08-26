@@ -1,6 +1,6 @@
 # El rinoceronte
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan José Arreola
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-jose-arreola-rinoceronte/537/
 

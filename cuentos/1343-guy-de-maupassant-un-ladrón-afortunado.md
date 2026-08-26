@@ -1,6 +1,6 @@
 # Guy de Maupassant: Un ladrón afortunado
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Guy de Maupassant
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-un-ladron-afortunado/4472/
 

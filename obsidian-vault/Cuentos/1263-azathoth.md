@@ -1,11 +1,11 @@
 ---
 title: "Azathoth"
-author: "Juan Pablo Guevara"
+author: "H. P. Lovecraft"
 source: 'https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-azathoth-2/6168/'
 image: "1263-azathoth.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/h-p-lovecraft
 ---
 
 # Azathoth

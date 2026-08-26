@@ -1,6 +1,6 @@
 # Enrique Lihn: Agua de arroz
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Enrique Lihn
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/enrique-lihn-agua-de-arroz/119/
 

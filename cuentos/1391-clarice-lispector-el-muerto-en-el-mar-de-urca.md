@@ -1,6 +1,6 @@
 # Clarice Lispector: El muerto en el mar de Urca
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Clarice Lispector
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/clarice-lispector-el-muerto-en-el-mar-de-urca/2476/
 

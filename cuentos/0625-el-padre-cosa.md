@@ -1,6 +1,6 @@
 # El padre-cosa
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Philip K. Dick
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-el-padre-cosa/6443/
 

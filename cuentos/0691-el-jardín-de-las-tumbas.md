@@ -1,6 +1,6 @@
 # El jardín de las tumbas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Amparo Dávila
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/amparo-davila-el-jardin-de-las-tumbas/16768/
 

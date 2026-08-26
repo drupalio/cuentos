@@ -1,6 +1,6 @@
 # Nos han dado la tierra
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan Rulfo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-rulfo-nos-dado-la-tierra/831/
 

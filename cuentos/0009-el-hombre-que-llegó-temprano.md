@@ -1,6 +1,6 @@
 # El hombre que llegó temprano
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Poul Anderson
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/poul-anderson-el-hombre-que-llego-temprano/25749/
 

@@ -1,6 +1,6 @@
 # El Leonardo perdido
 
-**Autor:** Juan Pablo Guevara
+**Autor:** J. G. Ballard
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/j-g-ballard-el-leonardo-perdido/16318/
 

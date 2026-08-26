@@ -1,6 +1,6 @@
 # La línea de la vida
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert A. Heinlein
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-a-heinlein-la-linea-de-la-vida/19855/
 

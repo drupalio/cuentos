@@ -1,6 +1,6 @@
 # El camino de la Cruz y el Dragón
 
-**Autor:** Juan Pablo Guevara
+**Autor:** George R. R. Martin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/george-r-r-martin-el-camino-de-la-cruz-y-el-dragon/4201/
 

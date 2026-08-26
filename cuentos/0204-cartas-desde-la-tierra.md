@@ -1,6 +1,6 @@
 # Cartas desde la Tierra
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mark Twain
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mark-twain-las-cartas-de-satan-desde-la-tierra/876/
 

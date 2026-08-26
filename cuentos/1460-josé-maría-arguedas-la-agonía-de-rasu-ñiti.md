@@ -1,6 +1,6 @@
 # José María Arguedas: La agonía de Rasu-Ñiti
 
-**Autor:** Juan Pablo Guevara
+**Autor:** José María Arguedas
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-maria-arguedas-la-agonia-de-rasu-niti/3070/
 

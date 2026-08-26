@@ -1,6 +1,6 @@
 # Roberto Arlt: Un error judicial
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Roberto Arlt
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roberto-arlt-un-error-judicial/4673/
 

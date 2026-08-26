@@ -1,6 +1,6 @@
 # La capa
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Dino Buzzati
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/dino-buzzati-la-capa/3819/
 

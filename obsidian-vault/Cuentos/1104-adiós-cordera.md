@@ -1,11 +1,11 @@
 ---
 title: '¡Adiós, Cordera!'
-author: "Juan Pablo Guevara"
+author: "Leopoldo Alas (Clarín)"
 source: 'https://lecturia.org/cuentos-y-relatos/leopoldo-alas-clarin-adios-cordera/12682/'
 image: "1104-adiós-cordera.webp"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/leopoldo-alas-clarín
 ---
 
 # ¡Adiós, Cordera!

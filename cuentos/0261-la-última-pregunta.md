@@ -1,6 +1,6 @@
 # La última pregunta
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isaac Asimov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-la-ultima-pregunta/2411/
 

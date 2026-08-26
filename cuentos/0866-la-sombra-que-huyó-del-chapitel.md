@@ -1,6 +1,6 @@
 # La sombra que huyó del chapitel
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Bloch
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-la-sombra-que-huyo-del-chapitel/15244/
 

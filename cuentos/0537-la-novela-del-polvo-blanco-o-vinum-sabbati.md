@@ -1,6 +1,6 @@
 # La novela del polvo blanco o Vinum Sabbati
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Arthur Machen
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-machen-la-novela-del-polvo-blanco/15732/
 

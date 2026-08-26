@@ -1,6 +1,6 @@
 # Lágrimas negras
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Lin Carter & L. Sprague de Camp
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/lin-carter-l-sprague-de-camp-lagrimas-negras/22058/
 

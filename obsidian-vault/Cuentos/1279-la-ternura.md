@@ -1,11 +1,11 @@
 ---
 title: "La ternura"
-author: "Juan Pablo Guevara"
+author: "Nicomedes Guzman"
 source: 'https://lecturia.org/cuentos-y-relatos/nicomedes-guzman-la-ternura/993/'
 image: "1279-la-ternura.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/nicomedes-guzman
 ---
 
 # La ternura

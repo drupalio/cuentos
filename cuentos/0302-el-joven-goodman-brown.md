@@ -1,6 +1,6 @@
 # El joven Goodman Brown
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Nathaniel Hawthorne
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/nathaniel-hawthorne-joven-goodman-brown/1160/
 

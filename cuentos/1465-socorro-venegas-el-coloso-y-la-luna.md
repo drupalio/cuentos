@@ -1,6 +1,6 @@
 # Socorro Venegas: El coloso y la luna
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Socorro Venegas
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/socorro-venegas-el-coloso-y-la-luna/2728/
 

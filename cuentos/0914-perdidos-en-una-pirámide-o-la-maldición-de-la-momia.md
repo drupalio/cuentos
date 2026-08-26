@@ -1,6 +1,6 @@
 # Perdidos en una pirámide, o la maldición de la momia
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Louisa May Alcott
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/louisa-may-alcott-perdidos-en-una-piramide-o-la-maldicion-de-la-momia/23100/
 

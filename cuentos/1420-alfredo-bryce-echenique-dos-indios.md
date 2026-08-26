@@ -1,6 +1,6 @@
 # Alfredo Bryce Echenique: Dos indios
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Alfredo Bryce Echenique
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alfredo-bryce-echenique-dos-indios/1262/
 

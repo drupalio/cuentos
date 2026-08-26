@@ -1,6 +1,6 @@
 # Profunda siesta de Remi
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Cortázar
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-profunda-siesta-de-remi/3633/
 

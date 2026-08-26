@@ -1,6 +1,6 @@
 # Carta de un loco
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Guy de Maupassant
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-carta-de-un-loco/11544/
 

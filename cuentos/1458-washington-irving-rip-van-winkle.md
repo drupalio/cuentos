@@ -1,6 +1,6 @@
 # Washington Irving: Rip van Winkle
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Washington Irving
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/washington-irving-rip-van-winkle/2090/
 

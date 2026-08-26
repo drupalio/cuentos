@@ -1,6 +1,6 @@
 # El famoso cohete
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Oscar Wilde
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/oscar-wilde-el-famoso-cohete/28172/
 

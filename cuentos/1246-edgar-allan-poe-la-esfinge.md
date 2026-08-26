@@ -1,6 +1,6 @@
 # Edgar Allan Poe: La esfinge
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edgar Allan Poe
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-la-esfinge/8388/
 

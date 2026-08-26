@@ -1,6 +1,6 @@
 # La muñeca reina
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Carlos Fuentes
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/carlos-fuentes-la-muneca-reina/13814/
 

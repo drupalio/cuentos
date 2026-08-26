@@ -1,6 +1,6 @@
 # Hija de sangre
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Octavia E. Butler
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/octavia-e-butler-hija-de-sangre/4366/
 

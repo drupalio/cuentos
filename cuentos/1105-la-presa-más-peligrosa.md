@@ -1,6 +1,6 @@
 # La presa más peligrosa
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Richard Connell
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/richard-connell-la-presa-mas-peligrosa/21173/
 

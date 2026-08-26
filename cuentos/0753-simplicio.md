@@ -1,6 +1,6 @@
 # Simplicio
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Émile Zola
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emile-zola-simplicio/24290/
 

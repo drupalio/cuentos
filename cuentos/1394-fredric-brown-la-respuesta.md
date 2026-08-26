@@ -1,6 +1,6 @@
 # Fredric Brown: La respuesta
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Fredric Brown
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fredric-brown-la-respuesta/2450/
 

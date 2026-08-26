@@ -1,6 +1,6 @@
 # El niño en la tumba
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Hans Christian Andersen
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hans-christian-andersen-el-nino-en-la-tumba/28108/
 

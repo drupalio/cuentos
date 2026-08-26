@@ -1,6 +1,6 @@
 # Ernest Hemingway: El anciano del puente
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ernest Hemingway
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ernest-hemingway-el-anciano-del-puente/4567/
 

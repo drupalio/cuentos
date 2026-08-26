@@ -1,6 +1,6 @@
 # Juan Carlos Onetti: Avenida de Mayo-Diagonal-Avenida de Mayo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan Carlos Onetti
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-carlos-onetti-avenida-mayo-diagonal-avenida-mayo/972/
 

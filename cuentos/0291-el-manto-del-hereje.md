@@ -1,6 +1,6 @@
 # El manto del hereje
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Bertolt Brecht
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bertolt-brecht-manto-del-hereje/1001/
 

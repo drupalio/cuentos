@@ -1,6 +1,6 @@
 # El amor que asalta
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Miguel de Unamuno
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/miguel-de-unamuno-el-amor-que-asalta/28568/
 

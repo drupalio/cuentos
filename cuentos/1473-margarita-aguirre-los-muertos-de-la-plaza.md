@@ -1,6 +1,6 @@
 # Margarita Aguirre: Los muertos de la plaza
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Margarita Aguirre
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/margarita-aguirre-los-muertos-la-plaza/1173/
 

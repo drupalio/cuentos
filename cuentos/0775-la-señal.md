@@ -1,6 +1,6 @@
 # La señal
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Inés Arredondo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ines-arredondo-la-senal/24064/
 

@@ -1,6 +1,6 @@
 # Bertolt Brecht: Los dos hijos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Bertolt Brecht
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bertolt-brecht-los-dos-hijos/2190/
 

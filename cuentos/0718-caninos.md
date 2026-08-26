@@ -1,6 +1,6 @@
 # Caninos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mónica Ojeda
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/monica-ojeda-caninos/24545/
 

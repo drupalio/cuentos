@@ -1,11 +1,11 @@
 ---
 title: "El álbum"
-author: "Juan Pablo Guevara"
+author: "Anton Chejov"
 source: 'https://lecturia.org/cuentos-y-relatos/anton-chejov-el-album/5316/'
 image: "1325-el-álbum.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/anton-chejov
 ---
 
 # El álbum

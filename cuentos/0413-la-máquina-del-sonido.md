@@ -1,6 +1,6 @@
 # La máquina del sonido
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Roald Dahl
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roald-dahl-la-maquina-del-sonido/4580/
 

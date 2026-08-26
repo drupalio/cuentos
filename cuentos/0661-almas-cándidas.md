@@ -1,6 +1,6 @@
 # Almas cándidas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Horacio Quiroga
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-almas-candidas/6328/
 

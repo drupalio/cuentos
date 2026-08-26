@@ -1,6 +1,6 @@
 # La tumba
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Guy de Maupassant
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-la-tumba/25081/
 

@@ -1,6 +1,6 @@
 # La casa que se cobraba un precio
 
-**Autor:** Juan Pablo Guevara
+**Autor:** W. W. Jacobs
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/w-w-jacobs-la-casa-que-se-cobraba-un-precio/28585/
 

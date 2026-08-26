@@ -1,6 +1,6 @@
 # Pablito clavó un clavito: Una evocación del Petiso Orejudo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mariana Enríquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mariana-enriquez-pablito-clavo-un-clavito-una-evocacion-del-petiso-orejudo/3853/
 

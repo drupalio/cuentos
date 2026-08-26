@@ -1,6 +1,6 @@
 # El fantasma
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Enrique Anderson Imbert
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/enrique-anderson-imbert-el-fantasma/22308/
 

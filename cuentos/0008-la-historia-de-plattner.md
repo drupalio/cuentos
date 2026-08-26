@@ -1,6 +1,6 @@
 # La historia de Plattner
 
-**Autor:** Juan Pablo Guevara
+**Autor:** H. G. Wells
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-g-wells-la-historia-de-plattner/28512/
 

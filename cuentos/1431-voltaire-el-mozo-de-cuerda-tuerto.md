@@ -1,6 +1,6 @@
 # Voltaire: El mozo de cuerda tuerto
 
-**Autor:** Juan Pablo Guevara
+**Autor:** François-Marie Arouet,Voltaire
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/voltaire-mozo-cuerda-tuerto/959/
 

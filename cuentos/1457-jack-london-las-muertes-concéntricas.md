@@ -1,6 +1,6 @@
 # Jack London: Las muertes concéntricas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Jack London
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jack-london-las-muertes-concentricas/4241/
 

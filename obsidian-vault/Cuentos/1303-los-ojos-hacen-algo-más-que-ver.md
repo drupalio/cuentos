@@ -1,11 +1,11 @@
 ---
 title: "Los ojos hacen algo más que ver"
-author: "Juan Pablo Guevara"
+author: "Isaac Asimov"
 source: 'https://lecturia.org/cuentos-y-relatos/isaac-asimov-los-ojos-hacen-algo-mas-que-ver/6058/'
 image: "1303-los-ojos-hacen-algo-más-que-ver.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/isaac-asimov
 ---
 
 # Los ojos hacen algo más que ver

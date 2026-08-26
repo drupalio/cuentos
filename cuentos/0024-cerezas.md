@@ -1,6 +1,6 @@
 # Cerezas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Osamu Dazai
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/osamu-dazai-cerezas/27752/
 

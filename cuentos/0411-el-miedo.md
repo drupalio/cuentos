@@ -1,6 +1,6 @@
 # El miedo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ramón del Valle-Inclán
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ramon-del-valle-inclan-miedo/512/
 

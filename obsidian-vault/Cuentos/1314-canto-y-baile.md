@@ -1,11 +1,11 @@
 ---
 title: "Canto y baile"
-author: "Juan Pablo Guevara"
+author: "Manuel Rojas"
 source: 'https://lecturia.org/cuentos-y-relatos/manuel-rojas-canto-baile/776/'
 image: "1314-canto-y-baile.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/manuel-rojas
 ---
 
 # Canto y baile

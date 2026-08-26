@@ -1,6 +1,6 @@
 # El viajero del tiempo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isaac Asimov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-el-viajero-del-tiempo/26095/
 

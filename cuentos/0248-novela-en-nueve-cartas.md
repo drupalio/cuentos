@@ -1,6 +1,6 @@
 # Novela en nueve cartas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Fiódor Dostoyevski
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fiodor-dostoyevski-novela-en-nueve-cartas/27332/
 

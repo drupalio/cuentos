@@ -1,6 +1,6 @@
 # Julio Llamazares: Piloto suicida
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Llamazares
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-llamazares-piloto-suicida/5331/
 

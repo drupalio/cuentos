@@ -1,6 +1,6 @@
 # Cuando las cosas cambiaron
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Joanna Russ
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/joanna-russ-cuando-las-cosas-cambiaron/23831/
 

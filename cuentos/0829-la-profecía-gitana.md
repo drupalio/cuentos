@@ -1,6 +1,6 @@
 # La profecía gitana
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Bram Stoker
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bram-stoker-la-profecia-gitana/15573/
 

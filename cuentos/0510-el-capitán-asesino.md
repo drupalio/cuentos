@@ -1,6 +1,6 @@
 # El capitán asesino
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Charles Dickens
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/charles-dickens-el-capitan-asesino/3452/
 

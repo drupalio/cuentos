@@ -1,6 +1,6 @@
 # Un lugar embrujado
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Nikolái Gógol
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/nikolai-gogol-un-lugar-embrujado/2058/
 

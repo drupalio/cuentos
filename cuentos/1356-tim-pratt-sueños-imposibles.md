@@ -1,6 +1,6 @@
 # Tim Pratt: Sueños imposibles
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Tim Pratt
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/tim-pratt-suenos-imposibles/4198/
 

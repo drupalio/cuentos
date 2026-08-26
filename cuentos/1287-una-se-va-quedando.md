@@ -1,6 +1,6 @@
 # Una se va quedando
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Autor: Hebe UhartTítulo: Una se va quedandoPublicado en:Guiando la hiedra, 1997
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hebe-uhart-una-se-va-quedando/6334/
 

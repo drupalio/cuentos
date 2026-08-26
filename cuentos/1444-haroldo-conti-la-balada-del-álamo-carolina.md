@@ -1,6 +1,6 @@
 # Haroldo Conti: La balada del álamo Carolina
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Haroldo Conti
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/haroldo-conti-la-balada-del-alamo-carolina/116/
 

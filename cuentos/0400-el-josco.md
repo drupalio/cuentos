@@ -1,6 +1,6 @@
 # El Josco
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Abelardo Díaz Alfaro
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/abelardo-diaz-alfaro-el-josco/26386/
 

@@ -1,6 +1,6 @@
 # Las islas nuevas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** María Luisa Bombal
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/maria-luisa-bombal-las-islas-nuevas/22559/
 

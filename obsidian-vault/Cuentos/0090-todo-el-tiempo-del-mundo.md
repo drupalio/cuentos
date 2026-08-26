@@ -1,11 +1,11 @@
 ---
 title: "Todo el tiempo del mundo"
-author: "Juan Pablo Guevara"
+author: "Arthur C. Clarke"
 source: 'https://lecturia.org/cuentos-y-relatos/arthur-c-clarke-todo-el-tiempo-del-mundo/22418/'
 image: "0090-todo-el-tiempo-del-mundo.webp"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/arthur-c-clarke
 ---
 
 # Todo el tiempo del mundo

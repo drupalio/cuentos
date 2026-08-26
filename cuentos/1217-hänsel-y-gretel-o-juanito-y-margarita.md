@@ -1,6 +1,6 @@
 # Hänsel y Gretel (o Juanito y Margarita)
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Hermanos Grimm
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermanos-grimm-hansel-y-gretel/12984/
 

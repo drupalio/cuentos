@@ -1,6 +1,6 @@
 # El asesinato de Santa Claus
 
-**Autor:** Juan Pablo Guevara
+**Autor:** P. D. James
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/p-d-james-el-asesinato-de-santa-claus/17945/
 

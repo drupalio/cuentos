@@ -1,6 +1,6 @@
 # Democracia electrónica (o Sufragio universal; o Privilegio)
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isaac Asimov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-democracia-electronica/16953/
 

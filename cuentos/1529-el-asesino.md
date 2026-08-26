@@ -1,6 +1,6 @@
 # El asesino
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ray Bradbury
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-el-asesino/28532/
 

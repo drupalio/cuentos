@@ -1,6 +1,6 @@
 # El bacilo robado
 
-**Autor:** Juan Pablo Guevara
+**Autor:** H. G. Wells
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-g-wells-el-bacilo-robado/5170/
 

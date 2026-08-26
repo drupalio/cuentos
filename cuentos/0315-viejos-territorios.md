@@ -1,6 +1,6 @@
 # Viejos territorios
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Richard Matheson
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/richard-matheson-viejos-territorios/20662/
 

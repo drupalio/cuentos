@@ -1,6 +1,6 @@
 # Sueño de flauta
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Hermann Hesse
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermann-hesse-sueno-de-flauta/28164/
 

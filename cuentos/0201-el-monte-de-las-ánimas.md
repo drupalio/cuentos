@@ -1,6 +1,6 @@
 # El Monte de las Ánimas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gustavo Adolfo Bécquer
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gustavo-adolfo-becquer-el-monte-de-las-animas/4433/
 

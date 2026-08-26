@@ -1,6 +1,6 @@
 # Mario Benedetti: Compensaciones
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mario Benedetti
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-compensaciones/2472/
 

@@ -1,6 +1,6 @@
 # Pieza de colección
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Philip K. Dick
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-pieza-de-coleccion/27320/
 

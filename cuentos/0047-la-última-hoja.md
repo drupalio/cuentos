@@ -1,6 +1,6 @@
 # La última hoja
 
-**Autor:** Juan Pablo Guevara
+**Autor:** O. Henry
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/o-henry-la-ultima-hoja/28322/
 

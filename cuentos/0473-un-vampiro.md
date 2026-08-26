@@ -1,6 +1,6 @@
 # Un vampiro
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Luigi Capuana
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/luigi-capuana-un-vampiro/18985/
 

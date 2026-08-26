@@ -1,6 +1,6 @@
 # Foster, estás muerto
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Philip K. Dick
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-foster-estas-muerto/17783/
 

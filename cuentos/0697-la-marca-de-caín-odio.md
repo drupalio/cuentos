@@ -1,6 +1,6 @@
 # La marca de Caín (Odio)
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Arthur C. Clarke
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-c-clarke-la-marca-de-cain/17212/
 

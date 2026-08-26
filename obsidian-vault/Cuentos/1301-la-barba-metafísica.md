@@ -1,11 +1,11 @@
 ---
 title: "La barba metafísica"
-author: "Juan Pablo Guevara"
+author: "Felisberto Hernandez"
 source: 'https://lecturia.org/cuentos-y-relatos/felisberto-hernandez-la-barba-metafisica/6296/'
 image: "1301-la-barba-metafísica.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/felisberto-hernandez
 ---
 
 # La barba metafísica

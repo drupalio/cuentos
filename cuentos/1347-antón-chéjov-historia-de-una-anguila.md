@@ -1,6 +1,6 @@
 # Antón Chéjov: Historia de una anguila
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Anton Chejov Historia
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-historia-de-una-anguila/4807/
 

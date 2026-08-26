@@ -1,6 +1,6 @@
 # Los viejos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Alphonse Daudet
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alphonse-daudet-los-viejos/27262/
 

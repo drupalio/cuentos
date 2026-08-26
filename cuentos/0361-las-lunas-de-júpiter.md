@@ -1,6 +1,6 @@
 # Las lunas de Júpiter
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Alice Munro
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alice-munro-las-lunas-de-jupiter/26552/
 

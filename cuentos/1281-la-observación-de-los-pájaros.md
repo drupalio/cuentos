@@ -1,6 +1,6 @@
 # La observación de los pájaros
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Roberto Fontanarrosa
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roberto-fontanarrosa-la-observacion-de-los-pajaros/6400/
 

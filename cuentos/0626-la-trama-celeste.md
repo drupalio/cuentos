@@ -1,6 +1,6 @@
 # La trama celeste
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Adolfo Bioy Casares
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/adolfo-bioy-casares-la-trama-celeste/25150/
 

@@ -1,6 +1,6 @@
 # Tarde de agosto
 
-**Autor:** Juan Pablo Guevara
+**Autor:** José Emilio Pacheco
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-emilio-pacheco-tarde-de-agosto/11762/
 

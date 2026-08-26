@@ -1,6 +1,6 @@
 # La dama oval
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Leonora Carrington
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/leonora-carrington-la-dama-oval/28201/
 

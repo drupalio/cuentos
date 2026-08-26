@@ -1,6 +1,6 @@
 # El hombre de la multitud
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edgar Allan Poe
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-el-hombre-de-la-multitud/25575/
 

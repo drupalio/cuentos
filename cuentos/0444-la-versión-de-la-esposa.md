@@ -1,6 +1,6 @@
 # La versión de la esposa
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ursula K. Le Guin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ursula-k-le-guin-la-version-de-la-esposa/4096/
 

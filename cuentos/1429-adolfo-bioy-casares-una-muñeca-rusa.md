@@ -1,6 +1,6 @@
 # Adolfo Bioy Casares: Una muñeca rusa
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Adolfo Bioy Casares
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/adolfo-bioy-casares-una-muneca-rusa/1024/
 

@@ -1,6 +1,6 @@
 # El lobo-hombre
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Boris Vian
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/boris-vian-el-lobo-hombre/2051/
 

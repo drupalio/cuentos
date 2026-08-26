@@ -1,6 +1,6 @@
 # Un toque de mal humor
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ray Bradbury
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-un-toque-de-mal-humor/23077/
 

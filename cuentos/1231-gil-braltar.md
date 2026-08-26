@@ -1,6 +1,6 @@
 # Gil Braltar
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Jules Verne
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jules-verne-gil-braltar/11758/
 

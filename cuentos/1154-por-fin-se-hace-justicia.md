@@ -1,6 +1,6 @@
 # Por fin se hace justicia
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Elizabeth Gaskell
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elizabeth-gaskell-fin-se-justicia/1026/
 

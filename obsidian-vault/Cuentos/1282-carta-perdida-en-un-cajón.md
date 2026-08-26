@@ -1,11 +1,11 @@
 ---
 title: "Carta perdida en un cajón"
-author: "Juan Pablo Guevara"
+author: "Silvina Ocampo"
 source: 'https://lecturia.org/cuentos-y-relatos/silvina-ocampo-carta-perdida-en-un-cajon/6503/'
 image: "1282-carta-perdida-en-un-cajón.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/silvina-ocampo
 ---
 
 # Carta perdida en un cajón

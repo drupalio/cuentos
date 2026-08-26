@@ -1,6 +1,6 @@
 # La gabardina
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Max Aub
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/max-aub-la-gabardina/24355/
 

@@ -1,6 +1,6 @@
 # Aire frío
 
-**Autor:** Juan Pablo Guevara
+**Autor:** H. P. Lovecraft
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-aire-frio/6796/
 

@@ -1,6 +1,6 @@
 # ¿Quién mató a la viuda?
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mario Benedetti
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-quien-mato-a-la-viuda/6182/
 

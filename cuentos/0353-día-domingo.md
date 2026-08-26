@@ -1,6 +1,6 @@
 # Día domingo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mario Vargas Llosa
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-vargas-llosa-dia-domingo/4449/
 

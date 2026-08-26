@@ -1,6 +1,6 @@
 # Leyenda de la calculadora que luchó contra el dragón
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Stanislaw Lem
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stanislaw-lem-leyenda-de-la-calculadora-que-lucho-contra-el-dragon/6539/
 

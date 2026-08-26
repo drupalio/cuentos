@@ -1,6 +1,6 @@
 # El caballero sobre el hielo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Hermann Hesse
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermann-hesse-caballero-hielo/1013/
 

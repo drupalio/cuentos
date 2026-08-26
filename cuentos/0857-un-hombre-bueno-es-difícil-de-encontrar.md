@@ -1,6 +1,6 @@
 # Un hombre bueno es difícil de encontrar
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Flannery O’Connor
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/flannery-oconnor-un-hombre-bueno-es-dificil-de-encontrar/2274/
 

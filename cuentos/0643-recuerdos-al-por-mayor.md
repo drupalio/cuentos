@@ -1,6 +1,6 @@
 # Recuerdos al por mayor
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Philip K. Dick
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-recuerdos-al-por-mayor/15272/
 

@@ -1,6 +1,6 @@
 # Felisberto Hernández: Muebles «El canario»
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Felisberto Hernández
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/felisberto-hernandez-muebles-el-canario/2455/
 

@@ -1,6 +1,6 @@
 # Los amotinados del Bounty
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Jules Verne
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jules-verne-los-amotinados-del-bounty/14931/
 

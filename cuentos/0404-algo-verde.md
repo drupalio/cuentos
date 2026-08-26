@@ -1,6 +1,6 @@
 # Algo verde
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Fredric Brown
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fredric-brown-algo-verde/24935/
 

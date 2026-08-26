@@ -1,6 +1,6 @@
 # Todos los hijos de Drácula
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Dan Simmons
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/dan-simmons-todos-los-hijos-de-dracula/22458/
 

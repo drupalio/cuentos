@@ -1,6 +1,6 @@
 # Graham Greene: Un indicio de explicación
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Graham Greene
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/graham-greene-un-indicio-de-explicacion/2073/
 

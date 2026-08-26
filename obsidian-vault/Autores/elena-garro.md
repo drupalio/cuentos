@@ -16,6 +16,7 @@ tags:
 - [[0511-el-árbol|El árbol]]
 - [[0971-invitación-al-campo|Invitación al campo]]
 - [[0496-la-culpa-es-de-los-tlaxcaltecas|La culpa es de los tlaxcaltecas]]
+- [[1257-la-semana-de-colores|La semana de colores]]
 - [[0644-luna-de-miel|Luna de miel]]
 - [[0574-perfecto-luna|Perfecto Luna]]
 - [[0169-qué-hora-es|¿Qué hora es?]]

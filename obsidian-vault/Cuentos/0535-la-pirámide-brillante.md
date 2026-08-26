@@ -1,11 +1,11 @@
 ---
 title: "La pirámide brillante"
-author: "Juan Pablo Guevara"
+author: "Arthur Machen"
 source: 'https://lecturia.org/cuentos-y-relatos/arthur-machen-la-piramide-brillante-2/25459/'
 image: "0535-la-pirámide-brillante.webp"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/arthur-machen
 ---
 
 # La pirámide brillante

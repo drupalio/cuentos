@@ -1,6 +1,6 @@
 # La araña
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Hanns Heinz Ewers
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hanns-heinz-ewers-la-arana/15106/
 

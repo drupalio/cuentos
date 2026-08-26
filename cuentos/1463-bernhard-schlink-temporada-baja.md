@@ -1,6 +1,6 @@
 # Bernhard Schlink: Temporada baja
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Bernhard Schlink
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bernhard-schlink-temporada-baja/676/
 

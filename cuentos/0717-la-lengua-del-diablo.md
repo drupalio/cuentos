@@ -1,6 +1,6 @@
 # La lengua del diablo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Kaita Murayama
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/kaita-murayama-la-lengua-del-diablo/17086/
 

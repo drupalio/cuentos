@@ -1,6 +1,6 @@
 # Muerte constante más allá del amor
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gabriel García Márquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-muerte-constante-mas-alla-del-amor/23366/
 

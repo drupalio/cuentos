@@ -1,11 +1,11 @@
 ---
 title: "Coppelius (o El hombre de arena)"
-author: "Juan Pablo Guevara"
+author: "E.T.A. Hoffmann"
 source: 'https://lecturia.org/cuentos-y-relatos/e-t-a-hoffmann-coppelius-o-el-hombre-de-arena/15713/'
 image: "0833-coppelius-o-el-hombre-de-arena.webp"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/eta-hoffmann
 ---
 
 # Coppelius (o El hombre de arena)

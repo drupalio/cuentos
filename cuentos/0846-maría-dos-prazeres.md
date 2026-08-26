@@ -1,6 +1,6 @@
 # María dos Prazeres
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gabriel García Márquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-maria-dos-prazeres/15658/
 

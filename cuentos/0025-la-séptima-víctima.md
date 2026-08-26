@@ -1,6 +1,6 @@
 # La séptima víctima
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Sheckley
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-sheckley-la-septima-victima/28412/
 

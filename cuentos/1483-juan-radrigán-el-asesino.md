@@ -1,6 +1,6 @@
 # Juan Radrigán: El asesino
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan Radrigán
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-radrigan-asesino/1091/
 

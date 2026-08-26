@@ -1,6 +1,6 @@
 # Los que se van de Omelas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ursula K. Le Guin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ursula-k-le-guin-los-que-se-van-de-omelas/2421/
 

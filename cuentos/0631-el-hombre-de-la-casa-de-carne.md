@@ -1,6 +1,6 @@
 # El hombre de la casa de carne
 
-**Autor:** Juan Pablo Guevara
+**Autor:** George R. R. Martin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/george-r-r-martin-el-hombre-de-la-casa-de-carne/17378/
 

@@ -1,6 +1,6 @@
 # 19 de diciembre de 1971
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Roberto Fontanarrosa 19
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roberto-fontanarrosa-19-de-diciembre-de-1971/6191/
 

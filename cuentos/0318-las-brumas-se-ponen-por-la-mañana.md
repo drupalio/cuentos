@@ -1,6 +1,6 @@
 # Las brumas se ponen por la mañana
 
-**Autor:** Juan Pablo Guevara
+**Autor:** George R. R. Martin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/george-r-r-martin-las-brumas-se-ponen-por-la-manana/20741/
 

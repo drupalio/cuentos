@@ -1,6 +1,6 @@
 # Ernest Hemingway: La capital del mundo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ernest Hemingway
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ernest-hemingway-la-capital-del-mundo/1285/
 

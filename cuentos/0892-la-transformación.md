@@ -1,6 +1,6 @@
 # La transformación
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mary Shelley
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mary-shelley-la-transformacion/15204/
 

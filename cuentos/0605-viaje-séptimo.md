@@ -1,6 +1,6 @@
 # Viaje séptimo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Stanislaw Lem
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stanislaw-lem-viaje-septimo/25261/
 

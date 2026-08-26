@@ -1,6 +1,6 @@
 # Algunas peculiaridades de los ojos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Philip K. Dick
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-algunas-peculiaridades-de-los-ojos/2381/
 

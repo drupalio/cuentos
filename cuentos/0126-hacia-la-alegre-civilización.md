@@ -1,6 +1,6 @@
 # Hacia la alegre civilización
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Samanta Schweblin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/samanta-schweblin-hacia-la-alegre-civilizacion/3933/
 

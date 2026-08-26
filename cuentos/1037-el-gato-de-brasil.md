@@ -1,6 +1,6 @@
 # El gato de Brasil
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Arthur Conan Doyle
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-conan-doyle-el-gato-de-brasil/2838/
 

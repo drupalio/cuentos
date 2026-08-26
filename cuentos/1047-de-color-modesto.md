@@ -1,6 +1,6 @@
 # De color modesto
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Ramón Ribeyro
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-de-color-modesto/6841/
 

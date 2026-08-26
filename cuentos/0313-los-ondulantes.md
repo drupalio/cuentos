@@ -1,6 +1,6 @@
 # Los ondulantes
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Fredric Brown
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fredric-brown-los-ondulantes/24128/
 

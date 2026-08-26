@@ -1,11 +1,11 @@
 ---
 title: "La pata de palo"
-author: "Juan Pablo Guevara"
+author: 'Autor: José de EsproncedaTítulo: La pata de paloPublicado en:El Artista, 1835'
 source: 'https://lecturia.org/cuentos-y-relatos/jose-de-espronceda-la-pata-de-palo/5520/'
 image: "1321-la-pata-de-palo.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/autor-josé-de-esproncedatítulo-la-pata-de-palopublicado-enel
 ---
 
 # La pata de palo

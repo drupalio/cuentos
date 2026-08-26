@@ -1,6 +1,6 @@
 # Las moscas (Réplica de El hombre muerto)
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Horacio Quiroga
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-las-moscas-replica-del-hombre-muerto/685/
 

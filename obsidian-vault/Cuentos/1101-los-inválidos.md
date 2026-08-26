@@ -1,11 +1,11 @@
 ---
 title: "Los inválidos"
-author: "Juan Pablo Guevara"
+author: "Baldomero Lillo"
 source: 'https://lecturia.org/cuentos-y-relatos/baldomero-lillo-los-invalidos/12721/'
 image: "1101-los-inválidos.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/baldomero-lillo
 ---
 
 # Los inválidos

@@ -1,6 +1,6 @@
 # Graham Greene: La segunda muerte
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Graham Greene
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/graham-greene-la-segunda-muerte/4102/
 

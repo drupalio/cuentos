@@ -1,6 +1,6 @@
 # Leopoldo Alas (Clarín): La rosa de oro
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Leopoldo Alas Clarin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/leopoldo-alas-clarin-la-rosa-de-oro/4583/
 

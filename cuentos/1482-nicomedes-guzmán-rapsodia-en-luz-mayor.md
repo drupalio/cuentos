@@ -1,6 +1,6 @@
 # Nicomedes Guzmán: Rapsodia en luz mayor
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Nicomedes Guzmán
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/nicomedes-guzman-rapsodia-en-luz-mayor/2314/
 

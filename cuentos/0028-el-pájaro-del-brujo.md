@@ -1,6 +1,6 @@
 # El pájaro del brujo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Hermanos Grimm
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermanos-grimm-el-pajaro-del-brujo/28386/
 

@@ -1,6 +1,6 @@
 # Boris Vian: El peligro de los clásicos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Boris Vian
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/boris-vian-el-peligro-de-los-clasicos/5255/
 

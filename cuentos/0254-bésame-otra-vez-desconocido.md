@@ -1,6 +1,6 @@
 # Bésame otra vez, desconocido
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Daphne du Maurier
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/daphne-du-maurier-besame-otra-vez-desconocido/27311/
 

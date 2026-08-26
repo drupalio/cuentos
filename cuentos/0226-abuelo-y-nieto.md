@@ -1,6 +1,6 @@
 # Abuelo y nieto
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Miguel de Unamuno
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/miguel-de-unamuno-abuelo-y-nieto/12395/
 

@@ -1,6 +1,6 @@
 # José Bianco: Sombras suele vestir
 
-**Autor:** Juan Pablo Guevara
+**Autor:** José Bianco
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-bianco-sombras-suele-vestir/4261/
 

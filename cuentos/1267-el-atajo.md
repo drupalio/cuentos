@@ -1,6 +1,6 @@
 # El atajo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Autor: Adolfo Bioy CasaresTítulo: El atajoPublicado en:El gran Serafín, 1967
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/adolfo-bioy-casares-el-atajo/7668/
 

@@ -1,6 +1,6 @@
 # El patito feo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Hans Christian Andersen
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hans-christian-andersen-el-patito-feo/6339/
 

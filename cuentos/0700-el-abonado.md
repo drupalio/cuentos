@@ -1,6 +1,6 @@
 # El abonado
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Philip K. Dick
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-el-abonado/2855/
 

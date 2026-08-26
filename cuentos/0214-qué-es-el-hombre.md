@@ -1,6 +1,6 @@
 # ¿Qué es el hombre?
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isaac Asimov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-que-es-el-hombre/21545/
 

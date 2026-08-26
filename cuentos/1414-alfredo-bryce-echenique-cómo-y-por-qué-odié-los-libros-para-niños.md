@@ -1,6 +1,6 @@
 # Alfredo Bryce Echenique: Cómo y por qué odié los libros para niños
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Alfredo Bryce Echenique
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alfredo-bryce-echenique-como-y-por-que-odie-los-libros-para-ninos/2048/
 

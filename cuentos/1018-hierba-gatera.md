@@ -1,6 +1,6 @@
 # Hierba gatera
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Bloch
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-hierba-gatera/13513/
 

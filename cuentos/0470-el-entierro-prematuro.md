@@ -1,6 +1,6 @@
 # El entierro prematuro
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edgar Allan Poe
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-el-entierro-prematuro/18760/
 

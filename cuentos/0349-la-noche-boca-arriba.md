@@ -1,6 +1,6 @@
 # La noche boca arriba
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Cortázar
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-la-noche-boca/610/
 

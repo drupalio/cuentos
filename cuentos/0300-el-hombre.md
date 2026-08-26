@@ -1,6 +1,6 @@
 # El hombre
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan Rulfo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-rulfo-el-hombre/2312/
 

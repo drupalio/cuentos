@@ -1,6 +1,6 @@
 # La cámara de los tapices
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Walter Scott
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/walter-scott-la-camara-los-tapices/1240/
 

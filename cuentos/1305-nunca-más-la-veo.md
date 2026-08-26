@@ -1,6 +1,6 @@
 # Nunca más la veo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ray Bradbury
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-nunca-mas-la-veo/6018/
 

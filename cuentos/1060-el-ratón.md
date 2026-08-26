@@ -1,6 +1,6 @@
 # El ratón
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Saki
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-el-raton/4856/
 

@@ -1,6 +1,6 @@
 # Acaso irreparable
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mario Benedetti
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-acaso-irreparable/8343/
 

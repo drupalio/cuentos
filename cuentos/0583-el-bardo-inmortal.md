@@ -1,6 +1,6 @@
 # El bardo inmortal
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isaac Asimov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-el-bardo-inmortal/22961/
 

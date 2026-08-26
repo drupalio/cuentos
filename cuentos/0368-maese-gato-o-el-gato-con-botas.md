@@ -1,6 +1,6 @@
 # Maese gato o el gato con botas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Charles Perrault
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/charles-perrault-maese-gato-o-el-gato-con-botas/12765/
 

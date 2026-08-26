@@ -1,6 +1,6 @@
 # El matrimonio
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Max Aub
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/max-aub-el-matrimonio/4275/
 

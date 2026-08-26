@@ -1,6 +1,6 @@
 # Finis desolatrix veritae
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Abraham Valdelomar
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/abraham-valdelomar-finis-desolatrix-veritae/26389/
 

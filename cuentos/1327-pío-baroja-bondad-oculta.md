@@ -1,6 +1,6 @@
 # Pío Baroja: Bondad oculta
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Autor: Pío BarojaTítulo: Bondad ocultaPublicado en:Vidas sombrías, 1900
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/pio-baroja-bondad-oculta/5216/
 

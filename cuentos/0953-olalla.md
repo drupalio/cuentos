@@ -1,6 +1,6 @@
 # Olalla
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Louis Stevenson
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-louis-stevenson-olalla/14161/
 

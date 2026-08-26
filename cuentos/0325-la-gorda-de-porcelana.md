@@ -1,6 +1,6 @@
 # La gorda de porcelana
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isabel Allende
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isabel-allende-la-gorda-de-porcelana/24152/
 

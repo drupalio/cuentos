@@ -1,6 +1,6 @@
 # El rayo de luna
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gustavo Adolfo Bécquer
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gustavo-adolfo-becquer-el-rayo-de-luna/12351/
 

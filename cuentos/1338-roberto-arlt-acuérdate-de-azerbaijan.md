@@ -1,6 +1,6 @@
 # Roberto Arlt: Acuérdate de Azerbaijan
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Roberto Arlt Acuerdate
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roberto-arlt-acuerdate-de-azerbaijan/1282/
 

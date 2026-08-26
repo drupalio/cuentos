@@ -1,6 +1,6 @@
 # Graham Greene: Una salita cerca de la calle Edgware
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Graham Greene
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/graham-greene-una-salita-cerca-de-la-calle-edgware/8402/
 

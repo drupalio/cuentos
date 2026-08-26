@@ -1,6 +1,6 @@
 # Cruce de caminos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Miguel de Unamuno
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/miguel-de-unamuno-cruce-de-caminos/4437/
 

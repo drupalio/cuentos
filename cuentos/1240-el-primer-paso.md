@@ -1,6 +1,6 @@
 # El primer paso
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Ramon Ribeyro
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-el-primer-paso/6554/
 

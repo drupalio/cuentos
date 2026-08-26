@@ -1,6 +1,6 @@
 # El cuento del niño malo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mark Twain
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mark-twain-el-cuento-del-nino-malo/2330/
 

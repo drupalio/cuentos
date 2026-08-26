@@ -1,6 +1,6 @@
 # La noche de los feos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mario Benedetti
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-la-noche-de-los-feos/2506/
 

@@ -1,6 +1,6 @@
 # Rubem Fonseca: Corazones solitarios
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Rubem Fonseca
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/rubem-fonseca-corazones-solitarios/2385/
 

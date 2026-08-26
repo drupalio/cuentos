@@ -1,6 +1,6 @@
 # Bertolt Brecht: El viaje en el compartimiento
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Bertolt Brecht
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bertolt-brecht-el-viaje-en-el-compartimiento/2796/
 

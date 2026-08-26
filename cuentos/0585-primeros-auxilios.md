@@ -1,6 +1,6 @@
 # Primeros auxilios
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Margaret Atwood
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/margaret-atwood-primeros-auxilios/17478/
 

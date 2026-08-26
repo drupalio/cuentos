@@ -1,6 +1,6 @@
 # J. M. Coetzee: Una historia
 
-**Autor:** Juan Pablo Guevara
+**Autor:** J. M. Coetzee
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/j-m-coetzee-una-historia/3421/
 

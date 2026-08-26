@@ -1,11 +1,11 @@
 ---
 title: "Los mejores cuentos para leer en Halloween. Selección 2024"
-author: "Juan Pablo Guevara"
+author: "Los Mejores Cuentos"
 source: 'https://lecturia.org/cuentos-y-relatos/los-mejores-cuentos-para-leer-en-halloween/17009/'
 image: "0712-los-mejores-cuentos-para-leer-en-halloween-selección-2024.webp"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/los-mejores-cuentos
 ---
 
 # Los mejores cuentos para leer en Halloween. Selección 2024

@@ -1,6 +1,6 @@
 # Los músicos de Bremen
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Hermanos Grimm
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermanos-grimm-los-musicos-de-bremen/14308/
 

@@ -1,6 +1,6 @@
 # Los mejores cuentos para leer en Halloween. Selección 2024
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Los Mejores Cuentos
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/los-mejores-cuentos-para-leer-en-halloween/17009/
 

@@ -1,6 +1,6 @@
 # Rashômon
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ryunosuke Akutagawa
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ryunosuke-akutagawa-rashomon/730/
 

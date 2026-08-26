@@ -1,6 +1,6 @@
 # Cabo de Hornos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Francisco Coloane
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/francisco-coloane-cabo-de-hornos/13358/
 

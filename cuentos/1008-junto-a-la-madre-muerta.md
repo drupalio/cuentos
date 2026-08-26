@@ -1,6 +1,6 @@
 # Junto a la madre muerta
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Horacio Quiroga
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-junto-a-la-madre-muerta/22002/
 

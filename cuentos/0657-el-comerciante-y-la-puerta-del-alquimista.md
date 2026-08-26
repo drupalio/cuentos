@@ -1,6 +1,6 @@
 # El comerciante y la puerta del alquimista
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ted Chiang
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ted-chiang-el-comerciante-y-la-puerta-del-alquimista/19545/
 

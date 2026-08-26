@@ -1,6 +1,6 @@
 # Drive my car
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Haruki Murakami
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/haruki-murakami-drive-my-car/6760/
 

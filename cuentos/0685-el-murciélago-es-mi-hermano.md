@@ -1,6 +1,6 @@
 # El murciélago es mi hermano
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Bloch
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-el-murcielago-es-mi-hermano/17277/
 

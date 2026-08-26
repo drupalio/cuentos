@@ -1,6 +1,6 @@
 # Andrés Caicedo: El ideal
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Andrés Caicedo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/andres-caicedo-el-ideal/1275/
 

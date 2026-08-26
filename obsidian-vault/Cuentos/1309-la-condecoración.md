@@ -1,11 +1,11 @@
 ---
 title: "La condecoración"
-author: "Juan Pablo Guevara"
+author: "Anton Chejov"
 source: 'https://lecturia.org/cuentos-y-relatos/anton-chejov-la-condecoracion/5565/'
 image: "1309-la-condecoración.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/anton-chejov
 ---
 
 # La condecoración

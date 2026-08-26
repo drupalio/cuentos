@@ -1,6 +1,6 @@
 # William M. Thackeray: La mujer de Dennis Haggarty
 
-**Autor:** Juan Pablo Guevara
+**Autor:** William Makepeace Thackeray
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/william-m-thackeray-la-mujer-dennis-haggarty/1045/
 

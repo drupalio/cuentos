@@ -1,6 +1,6 @@
 # La oruga
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edogawa Rampo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edogawa-rampo-la-oruga/22752/
 

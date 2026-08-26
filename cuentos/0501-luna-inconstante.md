@@ -1,6 +1,6 @@
 # Luna inconstante
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Larry Niven
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/larry-niven-luna-inconstante/25817/
 

@@ -1,6 +1,6 @@
 # El maleficio de las runas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** M. R. James
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/m-r-james-el-maleficio-de-las-runas/16141/
 

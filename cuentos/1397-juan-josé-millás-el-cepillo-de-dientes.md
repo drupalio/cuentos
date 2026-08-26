@@ -1,6 +1,6 @@
 # Juan José Millás: El cepillo de dientes
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan José Millás
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-jose-millas-el-cepillo-de-dientes/2436/
 

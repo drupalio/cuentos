@@ -1,6 +1,6 @@
 # Chac Mool
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Carlos Fuentes
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/carlos-fuentes-chac-mool/9256/
 

@@ -1,6 +1,6 @@
 # Moisés y Gaspar
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Amparo Dávila
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/amparo-davila-moises-y-gaspar/28433/
 

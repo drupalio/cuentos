@@ -1,6 +1,6 @@
 # El día ha muerto
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Lester del Rey
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/lester-del-rey-el-dia-ha-muerto/16866/
 

@@ -1,6 +1,6 @@
 # El hijo de Désirée
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Kate Chopin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/kate-chopin-el-hijo-de-desiree/22197/
 

@@ -1,6 +1,6 @@
 # Anacleto Morones
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan Rulfo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-rulfo-anacleto-morones/26626/
 

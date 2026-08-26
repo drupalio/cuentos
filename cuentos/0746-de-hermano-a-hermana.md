@@ -1,6 +1,6 @@
 # De hermano a hermana
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Cristina Peri Rossi
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/cristina-peri-rossi-de-hermano-a-hermana/2668/
 

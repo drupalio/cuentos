@@ -1,6 +1,6 @@
 # Katherine Mansfield: En la bahía
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Katherine Mansfield
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/katherine-mansfield-en-la-bahia/2283/
 

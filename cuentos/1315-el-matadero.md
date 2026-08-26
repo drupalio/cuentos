@@ -1,6 +1,6 @@
 # El matadero
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Esteban Echeverria
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/esteban-echeverria-el-matadero/5589/
 

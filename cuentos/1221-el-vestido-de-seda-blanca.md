@@ -1,6 +1,6 @@
 # El vestido de seda blanca
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Richard Matheson
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/richard-matheson-el-vestido-de-seda-blanca/9129/
 

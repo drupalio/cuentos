@@ -1,6 +1,6 @@
 # Todo el tiempo del mundo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Arthur C. Clarke
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-c-clarke-todo-el-tiempo-del-mundo/22418/
 

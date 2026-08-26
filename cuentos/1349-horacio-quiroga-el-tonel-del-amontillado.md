@@ -1,6 +1,6 @@
 # Horacio Quiroga: El tonel del amontillado
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Horacio Quiroga
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-tonel-del-amontillado/4752/
 

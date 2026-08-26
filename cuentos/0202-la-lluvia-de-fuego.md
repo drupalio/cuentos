@@ -1,6 +1,6 @@
 # La lluvia de fuego
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Leopoldo Lugones
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/leopoldo-lugones-la-lluvia-de-fuego/2834/
 

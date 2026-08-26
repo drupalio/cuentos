@@ -1,6 +1,6 @@
 # La transferencia
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Algernon Blackwood
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/algernon-blackwood-la-transferencia/13498/
 

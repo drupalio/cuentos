@@ -1,6 +1,6 @@
 # Arrepentimiento
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Kate Chopin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/kate-chopin-arrepentimiento/22049/
 

@@ -1,11 +1,11 @@
 ---
 title: "Las sensaciones fuertes"
-author: "Juan Pablo Guevara"
+author: "Anton Chejov"
 source: 'https://lecturia.org/cuentos-y-relatos/anton-chejov-las-sensaciones-fuertes/6854/'
 image: "1269-las-sensaciones-fuertes.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/anton-chejov
 ---
 
 # Las sensaciones fuertes

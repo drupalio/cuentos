@@ -11,6 +11,7 @@ tags:
 
 - [[1048-el-beso|El beso]]
 - [[1107-el-cristo-de-la-calavera|El Cristo de la calavera]]
+- [[0128-el-gnomo|El gnomo]]
 - [[0201-el-monte-de-las-ánimas|El Monte de las Ánimas]]
 - [[0316-el-rayo-de-luna|El rayo de luna]]
 - [[0464-la-ajorca-de-oro|La ajorca de oro]]

@@ -1,11 +1,11 @@
 ---
 title: "El Noúmeno"
-author: "Juan Pablo Guevara"
+author: "Adolfo Bioy Casares"
 source: 'https://lecturia.org/cuentos-y-relatos/adolfo-bioy-casares-el-noumeno/6850/'
 image: "1270-el-noúmeno.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/adolfo-bioy-casares
 ---
 
 # El Noúmeno

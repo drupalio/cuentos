@@ -1,6 +1,6 @@
 # Richard Matheson: Nacido de hombre y mujer
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Richard Matheson
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/richard-matheson-nacido-de-hombre-y-mujer/3916/
 

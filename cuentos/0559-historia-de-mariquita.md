@@ -1,6 +1,6 @@
 # Historia de Mariquita
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Guadalupe Dueñas
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guadalupe-duenas-historia-de-mariquita/16744/
 

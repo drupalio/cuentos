@@ -1,6 +1,6 @@
 # En este pueblo no hay ladrones
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gabriel García Márquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-este-pueblo-no-ladrones/1101/
 

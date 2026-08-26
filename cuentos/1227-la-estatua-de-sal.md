@@ -1,6 +1,6 @@
 # La estatua de sal
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Leopoldo Lugones
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/leopoldo-lugones-la-estatua-sal/543/
 

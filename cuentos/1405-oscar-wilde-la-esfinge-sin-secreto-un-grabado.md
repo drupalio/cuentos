@@ -1,6 +1,6 @@
 # Oscar Wilde: La esfinge sin secreto. Un grabado
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Oscar Wilde
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/oscar-wilde-la-esfinge-sin-secreto-un-grabado/2338/
 

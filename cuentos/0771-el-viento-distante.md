@@ -1,6 +1,6 @@
 # El viento distante
 
-**Autor:** Juan Pablo Guevara
+**Autor:** José Emilio Pacheco
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-emilio-pacheco-el-viento-distante/24122/
 

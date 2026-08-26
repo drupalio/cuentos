@@ -1,6 +1,6 @@
 # Poli Délano: Como la hiena
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Poli Délano
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/poli-delano-la-hiena/820/
 

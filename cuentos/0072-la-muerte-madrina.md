@@ -1,6 +1,6 @@
 # La Muerte madrina
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Hermanos Grimm
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermanos-grimm-la-muerte-madrina/28204/
 

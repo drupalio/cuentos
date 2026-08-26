@@ -22,6 +22,7 @@ tags:
 - [[1366-mario-benedetti-conciliar-el-sueño|Conciliar el sueño]]
 - [[1204-conversa|Conversa]]
 - [[1379-mario-benedetti-corazonada|Corazonada]]
+- [[1289-el-otro-yo|El Otro Yo]]
 - [[0527-el-sexo-de-los-ángeles|El sexo de los ángeles]]
 - [[1248-mario-benedetti-esa-boca|Esa boca]]
 - [[0495-esta-mañana|Esta mañana]]
@@ -38,3 +39,4 @@ tags:
 - [[0784-réquiem-con-tostadas|Réquiem con tostadas]]
 - [[0147-terapia-de-soledad|Terapia de soledad]]
 - [[1415-mario-benedetti-un-boliviano-con-salida-al-mar|Un boliviano con salida al mar]]
+- [[1242-quién-mató-a-la-viuda|¿Quién mató a la viuda?]]

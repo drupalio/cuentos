@@ -1,6 +1,6 @@
 # Los inválidos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Baldomero Lillo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/baldomero-lillo-los-invalidos/12721/
 

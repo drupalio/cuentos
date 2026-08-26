@@ -1,6 +1,6 @@
 # Juan Radrigán: Difusa esperanza
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan Radrigán
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-radrigan-difusa-esperanza/2241/
 

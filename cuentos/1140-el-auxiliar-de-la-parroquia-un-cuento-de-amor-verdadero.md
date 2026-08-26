@@ -1,6 +1,6 @@
 # El auxiliar de la parroquia. Un cuento de amor verdadero
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Charles Dickens
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/charles-dickens-auxiliar-la-parroquia-cuento-amor-verdadero/1249/
 

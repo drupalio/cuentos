@@ -1,6 +1,6 @@
 # Los chicos del maíz
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Stephen King
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stephen-king-los-chicos-del-maiz/14268/
 

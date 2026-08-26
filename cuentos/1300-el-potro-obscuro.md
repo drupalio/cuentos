@@ -1,6 +1,6 @@
 # El potro obscuro
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Miguel Hernandez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/miguel-hernandez-el-potro-obscuro/6172/
 

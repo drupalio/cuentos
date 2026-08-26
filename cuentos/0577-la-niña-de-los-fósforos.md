@@ -1,6 +1,6 @@
 # La niña de los fósforos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Hans Christian Andersen
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hans-christian-andersen-la-muchachita-de-los-fosforos/6588/
 

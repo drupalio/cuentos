@@ -1,6 +1,6 @@
 # La especialidad de la casa
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Stanley Ellin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stanley-ellin-la-especialidad-de-la-casa/25723/
 

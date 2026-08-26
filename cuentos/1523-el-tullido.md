@@ -1,6 +1,6 @@
 # El tullido
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Hans Christian Andersen
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hans-christian-andersen-el-tullido/28556/
 

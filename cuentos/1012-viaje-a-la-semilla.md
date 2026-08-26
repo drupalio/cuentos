@@ -1,6 +1,6 @@
 # Viaje a la semilla
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Alejo Carpentier
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alejo-carpentier-viaje-a-la-semilla/21985/
 

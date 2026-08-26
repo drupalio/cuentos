@@ -1,6 +1,6 @@
 # La muerte de Halpin Frayser
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ambrose Bierce
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ambrose-bierce-la-muerte-de-halpin-frayser/8146/
 

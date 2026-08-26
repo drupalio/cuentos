@@ -1,6 +1,6 @@
 # El indigno
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Jorge Luis Borges
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-el-indigno/3416/
 

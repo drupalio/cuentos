@@ -1,6 +1,6 @@
 # El chico sucio
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mariana Enríquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mariana-enriquez-el-chico-sucio/4044/
 

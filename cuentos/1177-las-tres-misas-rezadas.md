@@ -1,6 +1,6 @@
 # Las tres misas rezadas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Alphonse Daudet
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alphonse-daudet-las-tres-misas-rezadas/4606/
 

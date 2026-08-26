@@ -1,6 +1,6 @@
 # La célebre rana saltadora del condado de Calaveras
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mark Twain
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mark-twain-la-celebre-rana-saltadora-del-condado-de-calaveras/6915/
 

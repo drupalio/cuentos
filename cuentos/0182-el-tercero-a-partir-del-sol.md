@@ -1,6 +1,6 @@
 # El tercero a partir del sol
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Richard Matheson
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/richard-matheson-el-tercero-a-partir-del-sol/4196/
 

@@ -1,6 +1,6 @@
 # Casa tomada
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Cortázar
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-casa-tomada/1171/
 

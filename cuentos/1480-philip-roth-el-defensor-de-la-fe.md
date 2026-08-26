@@ -1,6 +1,6 @@
 # Philip Roth: El defensor de la fe
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Philip Roth
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-roth-el-defensor-de-la-fe/2363/
 

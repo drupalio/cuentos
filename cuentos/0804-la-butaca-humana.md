@@ -1,6 +1,6 @@
 # La butaca humana
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edogawa Rampo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edogawa-rampo-la-butaca-humana/16159/
 

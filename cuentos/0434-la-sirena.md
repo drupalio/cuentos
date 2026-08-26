@@ -1,6 +1,6 @@
 # La sirena
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ray Bradbury
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-la-sirena/5921/
 

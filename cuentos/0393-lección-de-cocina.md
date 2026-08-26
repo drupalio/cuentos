@@ -1,6 +1,6 @@
 # Lección de cocina
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Rosario Castellanos
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/rosario-castellanos-leccion-de-cocina/20431/
 

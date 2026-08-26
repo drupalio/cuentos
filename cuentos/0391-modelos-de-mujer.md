@@ -1,6 +1,6 @@
 # Modelos de mujer
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Almudena Grandes
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/almudena-grandes-modelos-de-mujer/6526/
 

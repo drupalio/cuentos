@@ -1,6 +1,6 @@
 # Historia completamente absurda
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Giovanni Papini
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/giovanni-papini-historia-completamente-absurda/2288/
 

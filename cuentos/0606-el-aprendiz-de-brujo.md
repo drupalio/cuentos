@@ -1,6 +1,6 @@
 # El aprendiz de brujo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Bloch
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-el-aprendiz-de-brujo/14701/
 

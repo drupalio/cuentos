@@ -1,6 +1,6 @@
 # La marca de la bestia
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Rudyard Kipling
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/rudyard-kipling-la-marca-de-la-bestia/6672/
 

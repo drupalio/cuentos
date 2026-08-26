@@ -1,6 +1,6 @@
 # Cómo se salvó Wang-Fô
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Marguerite Yourcenar
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/marguerite-yourcenar-como-se-salvo-wang-fo/2157/
 

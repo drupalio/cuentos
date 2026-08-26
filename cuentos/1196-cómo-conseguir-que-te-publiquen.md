@@ -1,6 +1,6 @@
 # Cómo conseguir que te publiquen
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Charles Bukowski
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/charles-bukowski-conseguir-te-publiquen/855/
 

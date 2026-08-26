@@ -1,6 +1,6 @@
 # Mil grullas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Elsa Bornemann
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elsa-bornemann-mil-grullas/28097/
 

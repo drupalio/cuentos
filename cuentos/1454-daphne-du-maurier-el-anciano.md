@@ -1,6 +1,6 @@
 # Daphne du Maurier: El anciano
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Daphne du Maurier
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/daphne-du-maurier-el-anciano/4256/
 

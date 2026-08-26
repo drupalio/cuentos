@@ -1,6 +1,6 @@
 # Flores para Algernon
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Daniel Keyes
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/daniel-keyes-flores-para-algernon/13849/
 

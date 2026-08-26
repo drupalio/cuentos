@@ -1,6 +1,6 @@
 # La brevísima historia de la humanidad
 
-**Autor:** Juan Pablo Guevara
+**Autor:** John Steinbeck
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/john-steinbeck-la-brevisima-historia-de-la-humanidad/28371/
 

@@ -1,6 +1,6 @@
 # La botella de plata
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Truman Capote
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/truman-capote-la-botella-de-plata/25515/
 

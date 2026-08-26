@@ -1,6 +1,6 @@
 # Bâtard
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Jack London
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jack-london-batard/27877/
 

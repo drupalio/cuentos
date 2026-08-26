@@ -10,6 +10,7 @@ tags:
 ## Cuentos
 
 - [[0708-katherine-mansfield-en-la-bahía|En la bahía]]
+- [[1260-la-lección-de-canto|La lección de canto]]
 - [[1254-katherine-mansfield-sopla-el-viento|Sopla el viento]]
 - [[0702-veneno|Veneno]]
 - [[0706-éxtasis|Éxtasis]]

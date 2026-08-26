@@ -1,6 +1,6 @@
 # Las almas gemelas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Bram Stoker
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bram-stoker-las-almas-gemelas/15800/
 

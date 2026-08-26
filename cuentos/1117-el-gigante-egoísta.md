@@ -1,6 +1,6 @@
 # El gigante egoísta
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Oscar Wilde
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/oscar-wilde-el-gigante-egoista/4682/
 

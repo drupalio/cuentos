@@ -1,6 +1,6 @@
 # El pequeño asesino
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ray Bradbury
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-el-pequeno-asesino/6716/
 

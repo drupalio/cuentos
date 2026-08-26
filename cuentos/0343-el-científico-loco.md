@@ -1,6 +1,6 @@
 # El científico loco
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isaac Asimov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-el-cientifico-loco/26555/
 

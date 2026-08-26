@@ -1,6 +1,6 @@
 # El demonio de dos centímetros
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isaac Asimov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-el-demonio-de-dos-centimetros/5447/
 

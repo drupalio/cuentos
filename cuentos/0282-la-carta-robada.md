@@ -1,6 +1,6 @@
 # La carta robada
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edgar Allan Poe
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-la-carta-robada/27183/
 

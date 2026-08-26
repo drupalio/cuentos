@@ -1,6 +1,6 @@
 # El parque de juegos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ray Bradbury
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-el-parque-de-juegos/2632/
 

@@ -1,6 +1,6 @@
 # El costo de la vida
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Carlos Fuentes
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/carlos-fuentes-el-costo-de-la-vida/6364/
 

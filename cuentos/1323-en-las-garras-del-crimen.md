@@ -1,6 +1,6 @@
 # En las garras del crimen
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Andres Caicedo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/andres-caicedo-en-las-garras-del-crimen/5553/
 

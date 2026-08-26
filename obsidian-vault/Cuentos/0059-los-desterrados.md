@@ -1,11 +1,11 @@
 ---
 title: "Los desterrados"
-author: "Juan Pablo Guevara"
+author: "Ray Bradbury"
 source: 'https://lecturia.org/cuentos-y-relatos/ray-bradbury-los-desterrados/8218/'
 image: "0059-los-desterrados.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/ray-bradbury
 ---
 
 # Los desterrados

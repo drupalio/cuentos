@@ -1,6 +1,6 @@
 # Un destripador de antaño
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Emilia Pardo Bazán
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-un-destripador-de-antano/20470/
 

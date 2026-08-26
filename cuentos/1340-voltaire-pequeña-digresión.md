@@ -1,6 +1,6 @@
 # Voltaire: Pequeña digresión
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Voltaire
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/voltaire-pequena-digresion/4859/
 

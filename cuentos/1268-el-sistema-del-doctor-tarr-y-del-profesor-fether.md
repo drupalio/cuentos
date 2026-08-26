@@ -1,6 +1,6 @@
 # El sistema del doctor Tarr y del profesor Fether
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edgar Allan Poe
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-el-sistema-del-doctor-tarr-y-del-profesor-fether/6777/
 

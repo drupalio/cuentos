@@ -1,6 +1,6 @@
 # La máscara de plata
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Hugh Walpole
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hugh-walpole-la-mascara-de-plata/23050/
 

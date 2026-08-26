@@ -1,6 +1,6 @@
 # El crimen de lord Arthur Savile
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Oscar Wilde
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/oscar-wilde-crimen-lord-arthur-savile-una-reflexion-deber/982/
 

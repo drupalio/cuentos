@@ -1,6 +1,6 @@
 # Guillermo Blanco: Pesadilla
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Guillermo Blanco
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guillermo-blanco-pesadilla/752/
 

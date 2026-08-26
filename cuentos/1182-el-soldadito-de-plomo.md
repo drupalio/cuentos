@@ -1,6 +1,6 @@
 # El soldadito de plomo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Hans Christian Andersen
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hans-christian-andersen-el-soldadito-de-plomo/6014/
 

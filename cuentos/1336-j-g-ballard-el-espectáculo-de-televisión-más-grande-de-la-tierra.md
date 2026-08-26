@@ -1,6 +1,6 @@
 # J. G. Ballard: El espectáculo de televisión más grande de la tierra
 
-**Autor:** Juan Pablo Guevara
+**Autor:** J G Ballard
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/j-g-ballard-el-espectaculo-de-television-mas-grande-de-la-tierra/4411/
 

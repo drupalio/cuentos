@@ -1,6 +1,6 @@
 # Antón Chéjov: Una sesión de hipnotismo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Antón Chéjov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-una-sesion-hipnotismo/934/
 

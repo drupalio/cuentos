@@ -1,6 +1,6 @@
 # El gato blanco de Drumgunniol
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Sheridan Le Fanu
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/sheridan-le-fanu-el-gato-blanco-de-drumgunniol/18889/
 

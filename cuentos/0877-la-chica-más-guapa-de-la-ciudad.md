@@ -1,6 +1,6 @@
 # La chica más guapa de la ciudad
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Charles Bukowski
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/charles-bukowski-la-chica-mas-guapa-la-ciudad/733/
 

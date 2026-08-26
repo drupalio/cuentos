@@ -1,6 +1,6 @@
 # El hombre que escribía libros en su cabeza
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Patricia Highsmith
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/patricia-highsmith-el-hombre-que-escribia-libros-en-su-cabeza/5165/
 

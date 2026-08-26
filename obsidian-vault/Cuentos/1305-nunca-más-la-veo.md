@@ -1,11 +1,11 @@
 ---
 title: "Nunca más la veo"
-author: "Juan Pablo Guevara"
+author: "Ray Bradbury"
 source: 'https://lecturia.org/cuentos-y-relatos/ray-bradbury-nunca-mas-la-veo/6018/'
 image: "1305-nunca-más-la-veo.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/ray-bradbury
 ---
 
 # Nunca más la veo

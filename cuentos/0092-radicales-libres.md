@@ -1,6 +1,6 @@
 # Radicales libres
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Alice Munro
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alice-munro-radicales-libres/2255/
 

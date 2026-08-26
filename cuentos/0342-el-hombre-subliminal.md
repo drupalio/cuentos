@@ -1,6 +1,6 @@
 # El hombre subliminal
 
-**Autor:** Juan Pablo Guevara
+**Autor:** J. G. Ballard
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/j-g-ballard-el-hombre-subliminal/24983/
 

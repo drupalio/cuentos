@@ -1,6 +1,6 @@
 # Honoré de Balzac: El elixir de larga vida
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Honoré de Balzac
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/honore-de-balzac-el-elixir-de-larga-vida/2095/
 

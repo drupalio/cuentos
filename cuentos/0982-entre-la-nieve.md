@@ -1,6 +1,6 @@
 # Entre la nieve
 
-**Autor:** Juan Pablo Guevara
+**Autor:** August Derleth
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/august-derleth-entre-la-nieve/22331/
 

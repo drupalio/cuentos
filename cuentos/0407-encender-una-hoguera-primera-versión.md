@@ -1,6 +1,6 @@
 # Encender una hoguera (Primera versión)
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Jack London
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jack-london-encender-una-hoguera-primera-version/19615/
 

@@ -1,6 +1,6 @@
 # La amante del demonio
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Elizabeth Bowen
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elizabeth-bowen-la-amante-del-demonio/4440/
 

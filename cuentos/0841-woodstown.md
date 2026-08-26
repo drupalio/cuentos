@@ -1,6 +1,6 @@
 # Wood’stown
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Alphonse Daudet
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alphonse-daudet-woodstown/23652/
 

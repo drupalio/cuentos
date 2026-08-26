@@ -1,6 +1,6 @@
 # Al margen del tiempo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Murray Leinster
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/murray-leinster-al-margen-del-tiempo/27279/
 

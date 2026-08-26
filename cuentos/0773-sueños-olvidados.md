@@ -1,6 +1,6 @@
 # Sueños olvidados
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Stefan Zweig
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stefan-zweig-suenos-olvidados/24106/
 

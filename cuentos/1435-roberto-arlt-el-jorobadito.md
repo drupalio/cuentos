@@ -1,6 +1,6 @@
 # Roberto Arlt: El jorobadito
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Roberto Arlt
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roberto-arlt-jorobadito/896/
 

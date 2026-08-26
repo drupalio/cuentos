@@ -1,6 +1,6 @@
 # Jhumpa Lahiri: La frontera
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Jhumpa Lahiri
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jhumpa-lahiri-la-frontera/8496/
 

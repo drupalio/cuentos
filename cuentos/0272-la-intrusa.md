@@ -1,6 +1,6 @@
 # La intrusa
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Jorge Luis Borges
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jorge-luis-borges-la-intrusa/6103/
 

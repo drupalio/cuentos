@@ -1,6 +1,6 @@
 # Don Quijote y el molino de viento
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Poul Anderson
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/poul-anderson-don-quijote-y-el-molino-de-viento/25963/
 

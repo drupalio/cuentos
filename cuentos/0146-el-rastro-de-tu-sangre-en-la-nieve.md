@@ -1,6 +1,6 @@
 # El rastro de tu sangre en la nieve
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gabriel García Márquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-el-rastro-de-tu-sangre-en-la-nieve/5493/
 

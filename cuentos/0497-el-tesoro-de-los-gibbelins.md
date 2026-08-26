@@ -1,6 +1,6 @@
 # El tesoro de los gibbelins
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Lord Dunsany
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/lord-dunsany-el-tesoro-de-los-gibbelins/25847/
 

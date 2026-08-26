@@ -1,11 +1,11 @@
 ---
 title: "Wood’stown"
-author: "Juan Pablo Guevara"
+author: "Alphonse Daudet"
 source: 'https://lecturia.org/cuentos-y-relatos/alphonse-daudet-woodstown/23652/'
 image: "0841-woodstown.webp"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/alphonse-daudet
 ---
 
 # Wood’stown

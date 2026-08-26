@@ -1,6 +1,6 @@
 # El mal de ojo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mary Shelley
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mary-shelley-el-mal-de-ojo/25739/
 

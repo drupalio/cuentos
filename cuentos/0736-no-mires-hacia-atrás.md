@@ -1,6 +1,6 @@
 # No mires hacia atrás
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Frederic Brown
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fredric-brown-no-mires-hacia-atras/24406/
 

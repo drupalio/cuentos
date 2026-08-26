@@ -1,6 +1,6 @@
 # Final del juego
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Cortázar
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-final-del-juego/5992/
 

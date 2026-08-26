@@ -1,6 +1,6 @@
 # Música concreta
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Amparo Dávila
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/amparo-davila-musica-concreta/13830/
 

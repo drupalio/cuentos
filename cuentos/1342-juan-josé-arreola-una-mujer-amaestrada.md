@@ -1,6 +1,6 @@
 # Juan José Arreola: Una mujer amaestrada
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan Jose Arreola
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-jose-arreola-una-mujer-amaestrada/4520/
 

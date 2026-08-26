@@ -1,6 +1,6 @@
 # La sirenita
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Hans Christian Andersen
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hans-christian-andersen-la-sirenita/12107/
 

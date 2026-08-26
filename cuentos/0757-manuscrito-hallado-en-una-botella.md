@@ -1,6 +1,6 @@
 # Manuscrito hallado en una botella
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edgar Allan Poe
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-manuscrito-hallado-en-una-botella/6204/
 

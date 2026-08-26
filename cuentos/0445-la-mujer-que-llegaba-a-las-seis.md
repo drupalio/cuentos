@@ -1,6 +1,6 @@
 # La mujer que llegaba a las seis
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gabriel García Márquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-la-mujer-que-llegaba-a-las-seis/12185/
 

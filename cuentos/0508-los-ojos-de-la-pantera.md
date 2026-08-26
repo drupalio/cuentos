@@ -1,6 +1,6 @@
 # Los ojos de la pantera
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ambrose Bierce
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ambrose-bierce-los-ojos-de-la-pantera/25806/
 

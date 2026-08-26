@@ -1,6 +1,6 @@
 # Ramón del Valle-Inclán: Un cabecilla
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ramón María del Valle-Inclán
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ramon-del-valle-inclan-un-cabecilla/2786/
 

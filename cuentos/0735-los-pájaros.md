@@ -1,6 +1,6 @@
 # Los pájaros
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Daphne du Maurier
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/daphne-du-maurier-los-pajaros/14474/
 

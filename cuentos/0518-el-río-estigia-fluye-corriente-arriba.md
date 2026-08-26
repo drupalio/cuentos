@@ -1,6 +1,6 @@
 # El río Estigia fluye corriente arriba
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Dan Simmons
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/dan-simmons-el-rio-estigia-fluye-corriente-arriba/18177/
 

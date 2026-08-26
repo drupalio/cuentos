@@ -1,6 +1,6 @@
 # El manuscrito de un loco
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Charles Dickens
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/charles-dickens-el-manuscrito-de-un-loco/12944/
 

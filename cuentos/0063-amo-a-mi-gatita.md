@@ -1,6 +1,6 @@
 # Amo a mi gatita
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isaac Asimov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-amo-a-mi-gatita/25897/
 

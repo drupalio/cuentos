@@ -1,6 +1,6 @@
 # Almuerzo y dudas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mario Benedetti
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-almuerzo-y-dudas/6007/
 

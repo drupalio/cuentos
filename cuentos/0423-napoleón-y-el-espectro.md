@@ -1,6 +1,6 @@
 # Napoleón y el espectro
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Charlotte Brontë
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/charlotte-bronte-napoleon-y-el-espectro/12047/
 

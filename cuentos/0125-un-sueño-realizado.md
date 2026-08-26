@@ -1,6 +1,6 @@
 # Un sueño realizado
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan Carlos Onetti
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-carlos-onetti-sueno-realizado/778/
 

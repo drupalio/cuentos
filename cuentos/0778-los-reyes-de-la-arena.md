@@ -1,6 +1,6 @@
 # Los reyes de la arena
 
-**Autor:** Juan Pablo Guevara
+**Autor:** George R. R. Martin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/george-r-r-martin-los-reyes-de-la-arena/16303/
 

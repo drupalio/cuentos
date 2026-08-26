@@ -1,6 +1,6 @@
 # La tercera resignación
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gabriel García Márquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-la-tercera-resignacion/530/
 

@@ -1,6 +1,6 @@
 # Los perros de Tíndalos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Frank Belknap Long
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/frank-belknap-long-los-perros-de-tindalos/16562/
 

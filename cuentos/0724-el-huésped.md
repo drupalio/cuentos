@@ -1,6 +1,6 @@
 # El huésped
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Amparo Dávila
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/amparo-davila-el-huesped/2469/
 

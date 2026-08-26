@@ -1,6 +1,6 @@
 # Fredric Brown & Mack Reynolds: Oscuro interludio
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Fredric Brown & Mack Reynolds
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fredric-brown-mack-reynolds-oscuro-interludio/4221/
 

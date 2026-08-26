@@ -1,6 +1,6 @@
 # Miguel de Unamuno: Ramón Nonnato, suicida
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Miguel de Unamuno
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/miguel-de-unamuno-ramon-nonnato-suicida/4187/
 

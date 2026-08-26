@@ -1,6 +1,6 @@
 # Encuentro nocturno
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ray Bradbury
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-encuentro-nocturno/22472/
 

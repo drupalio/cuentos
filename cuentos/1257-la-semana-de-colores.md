@@ -1,6 +1,6 @@
 # La semana de colores
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Elena Garro
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elena-garro-la-semana-de-colores/6881/
 

@@ -1,6 +1,6 @@
 # ¡Cómo se divertían!
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isaac Asimov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-como-se-divertian/3877/
 

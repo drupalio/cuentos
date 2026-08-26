@@ -1,6 +1,6 @@
 # El zoo de papel
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ken Liu
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ken-liu-el-zoo-de-papel/28195/
 

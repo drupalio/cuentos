@@ -1,6 +1,6 @@
 # Hijo de sangre
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Richard Matheson
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/richard-matheson-hijo-de-sangre/6543/
 

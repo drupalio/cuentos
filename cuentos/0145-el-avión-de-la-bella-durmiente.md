@@ -1,6 +1,6 @@
 # El avión de la Bella Durmiente
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gabriel García Márquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-el-avion-de-la-bella-durmiente/24210/
 

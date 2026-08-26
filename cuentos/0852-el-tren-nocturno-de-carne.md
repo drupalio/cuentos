@@ -1,6 +1,6 @@
 # El tren nocturno de carne
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Clive Barker
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/clive-barker-el-tren-nocturno-de-carne/15449/
 

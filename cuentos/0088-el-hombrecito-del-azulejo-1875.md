@@ -1,6 +1,6 @@
 # El hombrecito del azulejo (1875)
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Manuel Mujica Láinez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/manuel-mujica-lainez-el-hombrecito-del-azulejo-1875/5416/
 

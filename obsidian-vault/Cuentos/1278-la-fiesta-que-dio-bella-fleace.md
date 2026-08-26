@@ -1,11 +1,11 @@
 ---
 title: "La fiesta que dio Bella Fleace"
-author: "Juan Pablo Guevara"
+author: "Evelyn Waugh"
 source: 'https://lecturia.org/cuentos-y-relatos/evelyn-waugh-la-fiesta-que-dio-bella-fleace/4767/'
 image: "1278-la-fiesta-que-dio-bella-fleace.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/evelyn-waugh
 ---
 
 # La fiesta que dio Bella Fleace

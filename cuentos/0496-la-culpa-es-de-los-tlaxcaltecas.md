@@ -1,6 +1,6 @@
 # La culpa es de los tlaxcaltecas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Elena Garro
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elena-garro-la-culpa-los-tlaxcaltecas/1093/
 

@@ -1,6 +1,6 @@
 # La lección de canto
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Katherine Mansfield
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/katherine-mansfield-la-leccion-de-canto/6433/
 

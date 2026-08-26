@@ -1,6 +1,6 @@
 # Viaje alrededor del porvenir
 
-**Autor:** Juan Pablo Guevara
+**Autor:** César Vallejo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/cesar-vallejo-viaje-alrededor-del-porvenir/13989/
 

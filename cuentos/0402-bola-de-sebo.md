@@ -1,6 +1,6 @@
 # Bola de sebo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Guy de Maupassant
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-bola-de-sebo/12139/
 

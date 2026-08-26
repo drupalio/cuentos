@@ -1,6 +1,6 @@
 # La chica de los ojos hambrientos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Fritz Leiber
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fritz-leiber-la-chica-de-los-ojos-hambrientos/12853/
 

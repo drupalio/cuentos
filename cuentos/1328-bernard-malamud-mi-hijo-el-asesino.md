@@ -1,6 +1,6 @@
 # Bernard Malamud: Mi hijo el asesino
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Bernard Malamud
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bernard-malamud-mi-hijo-el-asesino/5364/
 

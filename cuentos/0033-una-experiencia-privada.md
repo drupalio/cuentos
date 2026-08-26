@@ -1,6 +1,6 @@
 # Una experiencia privada
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Chimamanda Ngozi Adichie
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/chimamanda-ngozi-adichie-una-experiencia-privada/2873/
 

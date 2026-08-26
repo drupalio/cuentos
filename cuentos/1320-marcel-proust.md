@@ -1,6 +1,6 @@
 # Marcel Proust
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Marcel Proust Pauline
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/marcel-proust-pauline-de-s/5969/
 

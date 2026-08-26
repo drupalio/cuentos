@@ -1,6 +1,6 @@
 # La mancha indeleble
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan Bosch
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-bosch-la-mancha-indeleble/6265/
 

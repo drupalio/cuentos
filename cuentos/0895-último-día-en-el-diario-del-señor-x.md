@@ -1,6 +1,6 @@
 # Último día en el diario del señor X
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Emiliano González
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emiliano-gonzalez-ultimo-dia-en-el-diario-del-senor-x/14613/
 

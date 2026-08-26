@@ -1,6 +1,6 @@
 # El hacha pequeña de los indios
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Abelardo Castillo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/abelardo-castillo-el-hacha-pequena-de-los-indios/19489/
 

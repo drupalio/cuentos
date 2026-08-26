@@ -1,11 +1,11 @@
 ---
 title: "La observación de los pájaros"
-author: "Juan Pablo Guevara"
+author: "Roberto Fontanarrosa"
 source: 'https://lecturia.org/cuentos-y-relatos/roberto-fontanarrosa-la-observacion-de-los-pajaros/6400/'
 image: "1281-la-observación-de-los-pájaros.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/roberto-fontanarrosa
 ---
 
 # La observación de los pájaros

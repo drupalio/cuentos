@@ -1,6 +1,6 @@
 # El ruido de un trueno
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ray Bradbury
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-el-ruido-de-un-trueno/2415/
 

@@ -1,6 +1,6 @@
 # Margarita García Robayo: Los álamos y el cielo de frente
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Margarita García Robayo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/margarita-garcia-robayo-los-alamos-y-el-cielo-de-frente/3925/
 

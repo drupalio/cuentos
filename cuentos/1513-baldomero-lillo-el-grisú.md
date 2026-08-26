@@ -1,6 +1,6 @@
 # Baldomero Lillo: El grisú
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Baldomero Lillo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/baldomero-lillo-grisu/681/
 

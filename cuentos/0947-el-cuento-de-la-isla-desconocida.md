@@ -1,6 +1,6 @@
 # El cuento de la isla desconocida
 
-**Autor:** Juan Pablo Guevara
+**Autor:** José Saramago
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-saramago-el-cuento-de-la-isla-desconocida/14325/
 

@@ -1,6 +1,6 @@
 # Las fotografías
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Silvina Ocampo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/silvina-ocampo-las-fotografias/6330/
 

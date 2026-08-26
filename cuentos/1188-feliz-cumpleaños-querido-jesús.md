@@ -1,6 +1,6 @@
 # Feliz cumpleaños, querido Jesús
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Frederik Pohl
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/frederik-pohl-feliz-cumpleanos-querido-jesus/17999/
 

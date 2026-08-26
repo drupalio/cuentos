@@ -1,11 +1,11 @@
 ---
 title: "Las invitadas"
-author: "Juan Pablo Guevara"
+author: 'Autor: Silvina OcampoTítulo: Las invitadasPublicado en:Las invitadas,1961'
 source: 'https://lecturia.org/cuentos-y-relatos/silvina-ocampo-las-invitadas/6846/'
 image: "1259-las-invitadas.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/autor-silvina-ocampotítulo-las-invitadaspublicado-enlas-invi
 ---
 
 # Las invitadas

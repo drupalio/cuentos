@@ -1,6 +1,6 @@
 # Botón, botón
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Richard Matheson
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/richard-matheson-boton-boton/16874/
 

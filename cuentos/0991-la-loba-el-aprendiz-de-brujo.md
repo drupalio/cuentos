@@ -1,6 +1,6 @@
 # La loba (El aprendiz de brujo)
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Saki
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-la-loba/13873/
 

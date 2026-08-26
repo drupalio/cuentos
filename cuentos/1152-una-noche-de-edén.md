@@ -1,6 +1,6 @@
 # Una noche de Edén
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Horacio Quiroga
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-una-noche-de-eden/12530/
 

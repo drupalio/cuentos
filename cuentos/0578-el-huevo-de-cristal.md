@@ -1,6 +1,6 @@
 # El huevo de cristal
 
-**Autor:** Juan Pablo Guevara
+**Autor:** H. G. Wells
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-g-wells-el-huevo-de-cristal/16630/
 

@@ -1,6 +1,6 @@
 # El cuerpo robado
 
-**Autor:** Juan Pablo Guevara
+**Autor:** H. G. Wells
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-g-wells-el-cuerpo-robado/7539/
 

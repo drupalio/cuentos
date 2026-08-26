@@ -1,6 +1,6 @@
 # Graham Greene: El billete de lotería
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Graham Greene
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/graham-greene-el-billete-de-loteria/2753/
 

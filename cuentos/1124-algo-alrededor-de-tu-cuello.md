@@ -1,6 +1,6 @@
 # Algo alrededor de tu cuello
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Chimamanda Ngozi Adichie
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/chimamanda-ngozi-adichie-algo-alrededor-de-tu-cuello/4080/
 

@@ -1,6 +1,6 @@
 # Llámame Joe
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Poul Anderson
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/poul-anderson-llamame-joe/28497/
 

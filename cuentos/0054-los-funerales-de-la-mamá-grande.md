@@ -1,6 +1,6 @@
 # Los funerales de la Mamá Grande
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gabriel García Márquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-los-funerales-de-la-mama-grande-2/28281/
 

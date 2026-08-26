@@ -1,6 +1,6 @@
 # Caperucita Roja
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Teresa Wilms Montt
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/teresa-wilms-montt-caperucita-roja/1139/
 

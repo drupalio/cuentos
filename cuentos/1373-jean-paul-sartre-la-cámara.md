@@ -1,6 +1,6 @@
 # Jean Paul Sartre: La cámara
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Jean Paul Sartre
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jean-paul-sartre-la-camara/671/
 

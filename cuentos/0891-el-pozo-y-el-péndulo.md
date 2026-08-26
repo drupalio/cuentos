@@ -1,6 +1,6 @@
 # El pozo y el péndulo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edgar Allan Poe
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-el-pozo-y-el-pendulo/6889/
 

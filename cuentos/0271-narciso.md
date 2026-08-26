@@ -1,6 +1,6 @@
 # Narciso
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Manuel Mujica Láinez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/manuel-mujica-lainez-narciso/2187/
 

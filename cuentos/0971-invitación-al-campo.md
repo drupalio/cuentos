@@ -1,6 +1,6 @@
 # Invitación al campo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Elena Garro
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elena-garro-invitacion-al-campo/6720/
 

@@ -1,6 +1,6 @@
 # El pan bajo la bota
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Nicomedes Guzmán
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/nicomedes-guzman-pan-la-bota/697/
 

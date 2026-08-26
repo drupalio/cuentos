@@ -1,6 +1,6 @@
 # La hormiga eléctrica
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Philip K. Dick
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-la-hormiga-electrica/5351/
 

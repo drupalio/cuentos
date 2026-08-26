@@ -1,6 +1,6 @@
 # Henry James: La lección del maestro
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Henry James
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/henry-james-la-leccion-del-maestro/44/
 

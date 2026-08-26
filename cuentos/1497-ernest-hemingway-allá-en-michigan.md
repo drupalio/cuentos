@@ -1,6 +1,6 @@
 # Ernest Hemingway: Allá en Michigan
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ernest Hemingway
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ernest-hemingway-alla-michigan/1162/
 

@@ -1,11 +1,11 @@
 ---
 title: "Un canario como regalo"
-author: "Juan Pablo Guevara"
+author: "Ernest Hemingway"
 source: 'https://lecturia.org/cuentos-y-relatos/ernest-hemingway-un-canario-como-regalo/6833/'
 image: "1275-un-canario-como-regalo.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/ernest-hemingway
 ---
 
 # Un canario como regalo

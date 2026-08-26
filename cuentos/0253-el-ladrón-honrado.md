@@ -1,6 +1,6 @@
 # El ladrón honrado
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Fiódor Dostoyevski
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fiodor-dostoyevski-el-ladron-honrado/26451/
 

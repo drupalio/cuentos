@@ -1,6 +1,6 @@
 # El vampiro estelar
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Bloch
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-el-vampiro-estelar/5789/
 

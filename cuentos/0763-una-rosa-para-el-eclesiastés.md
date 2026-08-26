@@ -1,6 +1,6 @@
 # Una rosa para el Eclesiastés
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Roger Zelazny
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roger-zelazny-una-rosa-para-el-eclesiastes/24243/
 

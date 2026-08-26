@@ -1,6 +1,6 @@
 # La ventana abierta
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Saki
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-la-ventana-abierta/3449/
 

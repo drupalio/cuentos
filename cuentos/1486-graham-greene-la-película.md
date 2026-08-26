@@ -1,6 +1,6 @@
 # Graham Greene: La película
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Graham Greene
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/graham-greene-la-pelicula/1113/
 

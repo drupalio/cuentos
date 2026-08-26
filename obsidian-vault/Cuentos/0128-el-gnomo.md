@@ -1,11 +1,11 @@
 ---
 title: "El gnomo"
-author: "Juan Pablo Guevara"
+author: "Gustavo Adolfo Bécquer"
 source: 'https://lecturia.org/cuentos-y-relatos/gustavo-adolfo-becquer-el-gnomo/27964/'
 image: "0128-el-gnomo.webp"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/gustavo-adolfo-bécquer
 ---
 
 # El gnomo

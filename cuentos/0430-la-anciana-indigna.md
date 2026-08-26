@@ -1,6 +1,6 @@
 # La anciana indigna
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Bertolt Brecht
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bertolt-brecht-la-anciana-indigna/23690/
 

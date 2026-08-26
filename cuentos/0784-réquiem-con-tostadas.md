@@ -1,6 +1,6 @@
 # Réquiem con tostadas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mario Benedetti
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-requiem-con-tostadas/24034/
 

@@ -1,6 +1,6 @@
 # En las ruinas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Roald Dahl
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roald-dahl-en-las-ruinas/23417/
 

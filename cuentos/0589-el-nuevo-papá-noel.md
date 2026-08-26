@@ -1,6 +1,6 @@
 # El nuevo Papá Noel
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Brian Aldiss
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/brian-aldiss-el-nuevo-papa-noel/17894/
 

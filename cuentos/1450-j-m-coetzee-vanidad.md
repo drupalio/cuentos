@@ -1,6 +1,6 @@
 # J. M. Coetzee: Vanidad
 
-**Autor:** Juan Pablo Guevara
+**Autor:** J. M. Coetzee
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/j-m-coetzee-vanidad/3607/
 

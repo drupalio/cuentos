@@ -1,6 +1,6 @@
 # Vago espinazo de la noche
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Adela Fernández
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/adela-fernandez-vago-espinazo-de-la-noche/24488/
 

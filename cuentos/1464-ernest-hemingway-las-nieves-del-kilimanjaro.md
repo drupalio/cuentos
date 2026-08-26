@@ -1,6 +1,6 @@
 # Ernest Hemingway: Las nieves del Kilimanjaro
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ernest Hemingway
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ernest-hemingway-las-nieves-del-kilimanjaro/765/
 

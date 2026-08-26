@@ -1,6 +1,6 @@
 # Conversaciones en una lengua muerta
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Thomas Ligotti
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/thomas-ligotti-conversaciones-en-una-lengua-muerta/17265/
 

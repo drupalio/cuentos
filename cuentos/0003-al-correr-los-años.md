@@ -1,6 +1,6 @@
 # Al correr los años
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Miguel de Unamuno
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/miguel-de-unamuno-al-correr-los-anos/28465/
 

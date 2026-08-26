@@ -1,6 +1,6 @@
 # El túnel adelante
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Alice Glaser
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alice-glaser-el-tunel-adelante/25117/
 

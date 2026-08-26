@@ -1,6 +1,6 @@
 # Villa Ruiseñor
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Agatha Christie
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/agatha-christie-villa-ruisenor/21597/
 

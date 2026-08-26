@@ -1,6 +1,6 @@
 # Lo que necesita
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Henry Kuttner & C. L. Moore
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/henry-kuttner-c-l-moore-lo-que-necesita/24913/
 

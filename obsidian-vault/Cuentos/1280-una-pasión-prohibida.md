@@ -1,11 +1,11 @@
 ---
 title: "Una pasión prohibida"
-author: "Juan Pablo Guevara"
+author: "Cristina Peri Rossi"
 source: 'https://lecturia.org/cuentos-y-relatos/cristina-peri-rossi-una-pasion-prohibida/6429/'
 image: "1280-una-pasión-prohibida.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/cristina-peri-rossi
 ---
 
 # Una pasión prohibida

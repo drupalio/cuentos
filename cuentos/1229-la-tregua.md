@@ -1,6 +1,6 @@
 # La tregua
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Rosario Castellanos
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/rosario-castellanos-la-tregua/11993/
 

@@ -1,6 +1,6 @@
 # Thomas de Quincey: Los dados
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Thomas de Quincey
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/thomas-quincey-los-dados/1155/
 

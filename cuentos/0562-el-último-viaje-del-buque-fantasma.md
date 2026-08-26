@@ -1,6 +1,6 @@
 # El último viaje del buque fantasma
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gabriel García Márquez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-el-ultimo-viaje-del-buque-fantasma/4067/
 

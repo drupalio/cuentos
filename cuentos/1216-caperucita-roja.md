@@ -1,6 +1,6 @@
 # Caperucita Roja
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Recopilado porJacob & Wilhelm Grimm
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermanos-grimm-caperucita-roja/9260/
 

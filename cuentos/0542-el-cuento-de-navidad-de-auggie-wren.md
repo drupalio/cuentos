@@ -1,6 +1,6 @@
 # El cuento de navidad de Auggie Wren
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Paul Auster
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/paul-auster-el-cuento-de-navidad-de-auggie-wren/13443/
 

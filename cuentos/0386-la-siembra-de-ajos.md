@@ -1,6 +1,6 @@
 # La siembra de ajos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Arturo Uslar Pietri
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arturo-uslar-pietri-la-siembra-de-ajos/26481/
 

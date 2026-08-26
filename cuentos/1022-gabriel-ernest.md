@@ -1,6 +1,6 @@
 # Gabriel-Ernest
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Saki
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-gabriel-ernest/4062/
 

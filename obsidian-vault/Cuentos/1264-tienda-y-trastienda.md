@@ -1,11 +1,11 @@
 ---
 title: "Tienda y trastienda"
-author: "Juan Pablo Guevara"
+author: "Baldomero Lillo"
 source: 'https://lecturia.org/cuentos-y-relatos/baldomero-lillo-tienda-y-trastienda/7737/'
 image: "1264-tienda-y-trastienda.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/baldomero-lillo
 ---
 
 # Tienda y trastienda

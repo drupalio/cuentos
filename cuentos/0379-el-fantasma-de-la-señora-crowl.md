@@ -1,6 +1,6 @@
 # El fantasma de la señora Crowl
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Sheridan Le Fanu
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/sheridan-le-fanu-el-fantasma-de-la-senora-crowl/20934/
 

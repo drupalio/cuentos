@@ -1,6 +1,6 @@
 # Modesta Gómez
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Rosario Castellanos
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/rosario-castellanos-modesta-gomez/4772/
 

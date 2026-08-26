@@ -1,6 +1,6 @@
 # Giovanni Papini: El día no restituido
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Giovanni Papini
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/giovanni-papini-el-dia-no-restituido/2711/
 

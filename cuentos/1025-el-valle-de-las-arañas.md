@@ -1,6 +1,6 @@
 # El valle de las arañas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** H. G. Wells
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-g-wells-el-valle-de-las-aranas/21854/
 

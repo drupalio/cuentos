@@ -1,11 +1,11 @@
 ---
 title: "“Inamible”"
-author: "Juan Pablo Guevara"
+author: 'Autor: Baldomero LilloTítulo: “Inamible”Publicado en:Sub sole,2a. edición, 1931'
 source: 'https://lecturia.org/cuentos-y-relatos/baldomero-lillo-inamible/6825/'
 image: "1265-inamible.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/autor-baldomero-lillotítulo-inamiblepublicado-ensub-sole2a-e
 ---
 
 # “Inamible”

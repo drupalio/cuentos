@@ -1,6 +1,6 @@
 # Segunda variedad
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Philip K. Dick
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-segunda-variedad/22466/
 

@@ -1,6 +1,6 @@
 # El esqueleto
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ray Bradbury
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-el-esqueleto/12664/
 

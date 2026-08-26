@@ -1,6 +1,6 @@
 # No tenía lunares
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mario Benedetti
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-no-tenia-lunares/182/
 

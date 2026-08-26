@@ -1,6 +1,6 @@
 # El pacto de Sir Dominick
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Sheridan Le Fanu
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/sheridan-le-fanu-el-pacto-de-sir-dominick/14184/
 

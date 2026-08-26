@@ -1,6 +1,6 @@
 # El alimento de los dioses
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Arthur C. Clarke
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-c-clarke-el-alimento-de-los-dioses/8550/
 

@@ -1,6 +1,6 @@
 # La voz del viento
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Francisco Coloane
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/francisco-coloane-la-voz-del-viento/6097/
 

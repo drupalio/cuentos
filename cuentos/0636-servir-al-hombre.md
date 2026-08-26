@@ -1,6 +1,6 @@
 # Servir al hombre
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Damon Knight
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/damon-knight-servir-al-hombre/25063/
 

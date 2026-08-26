@@ -1,6 +1,6 @@
 # El tránsito de la Tierra
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Arthur C. Clarke
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-c-clarke-el-transito-de-la-tierra/26604/
 

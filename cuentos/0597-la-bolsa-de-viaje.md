@@ -1,6 +1,6 @@
 # La bolsa de viaje
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Algernon Blackwood
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/algernon-blackwood-la-bolsa-de-viaje/25387/
 

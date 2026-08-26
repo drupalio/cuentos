@@ -1,6 +1,6 @@
 # Samanta Schweblin: Pasa siempre en esta casa
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Samanta Schweblin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/samanta-schweblin-pasa-siempre-en-esta-casa/2499/
 

@@ -1,6 +1,6 @@
 # La leyenda de Sleepy Hollow
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Washington Irving
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/washington-irving-la-leyenda-de-sleepy-hollow/22949/
 

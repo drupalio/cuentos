@@ -1,6 +1,6 @@
 # Markheim
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Louis Stevenson
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-louis-stevenson-markheim/15228/
 

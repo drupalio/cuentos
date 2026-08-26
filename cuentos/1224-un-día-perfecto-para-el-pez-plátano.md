@@ -1,6 +1,6 @@
 # Un día perfecto para el pez plátano
 
-**Autor:** Juan Pablo Guevara
+**Autor:** J. D. Salinger
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/j-d-salinger-un-dia-perfecto-para-el-pez-platano/2115/
 

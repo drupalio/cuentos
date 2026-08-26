@@ -1,6 +1,6 @@
 # Superviviente
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Stephen King
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/stephen-king-superviviente/14728/
 

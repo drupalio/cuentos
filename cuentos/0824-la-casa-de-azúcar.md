@@ -1,6 +1,6 @@
 # La casa de azúcar
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Silvina Ocampo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/silvina-ocampo-la-casa-de-azucar/5452/
 

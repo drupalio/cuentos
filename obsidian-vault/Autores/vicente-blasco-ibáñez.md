@@ -10,4 +10,5 @@ tags:
 ## Cuentos
 
 - [[1041-el-despertar-del-buda|El despertar del Buda]]
+- [[1548-el-despertar-del-buda|El despertar del Buda]]
 - [[1346-vicente-blasco-ibáñez-un-silbido|Un silbido]]

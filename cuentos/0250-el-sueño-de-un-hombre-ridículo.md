@@ -1,6 +1,6 @@
 # El sueño de un hombre ridículo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Fiódor Dostoyevski
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fiodor-dostoyevski-el-sueno-de-un-hombre-ridiculo/25998/
 

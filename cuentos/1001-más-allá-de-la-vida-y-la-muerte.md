@@ -1,6 +1,6 @@
 # Más allá de la vida y la muerte
 
-**Autor:** Juan Pablo Guevara
+**Autor:** César Vallejo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/cesar-vallejo-mas-alla-de-la-vida-y-la-muerte/5474/
 

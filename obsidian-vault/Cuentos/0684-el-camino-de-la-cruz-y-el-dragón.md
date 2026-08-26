@@ -1,11 +1,11 @@
 ---
 title: "El camino de la Cruz y el Dragón"
-author: "Juan Pablo Guevara"
+author: "George R. R. Martin"
 source: 'https://lecturia.org/cuentos-y-relatos/george-r-r-martin-el-camino-de-la-cruz-y-el-dragon/4201/'
 image: "0684-el-camino-de-la-cruz-y-el-dragón.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/george-r-r-martin
 ---
 
 # El camino de la Cruz y el Dragón

@@ -1,6 +1,6 @@
 # Carlos Fuentes: El que inventó la pólvora
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Carlos Fuentes
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/carlos-fuentes-el-que-invento-la-polvora/2543/
 

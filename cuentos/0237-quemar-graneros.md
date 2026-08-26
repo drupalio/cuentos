@@ -1,6 +1,6 @@
 # Quemar graneros
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Haruki Murakami
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/haruki-murakami-quemar-graneros/2212/
 

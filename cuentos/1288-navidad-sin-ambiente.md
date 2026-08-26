@@ -1,6 +1,6 @@
 # Navidad sin ambiente
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Autor: Miguel DelibesTítulo: Navidad sin ambientePublicado en:La mortaja, 1957
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/miguel-delibes-navidad-sin-ambiente/4601/
 

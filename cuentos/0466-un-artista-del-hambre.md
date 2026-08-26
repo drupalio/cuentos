@@ -1,6 +1,6 @@
 # Un artista del hambre
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Franz Kafka
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/franz-kafka-un-artista-del-hambre/12001/
 

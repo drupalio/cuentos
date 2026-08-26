@@ -1,6 +1,6 @@
 # El árbol
 
-**Autor:** Juan Pablo Guevara
+**Autor:** María Luisa Bombal
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/maria-luisa-bombal-arbol/893/
 

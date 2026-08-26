@@ -1,6 +1,6 @@
 # Albert Camus: El renegado o Un espíritu confuso
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Albert Camus
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/albert-camus-renegado-espiritu-confuso/694/
 

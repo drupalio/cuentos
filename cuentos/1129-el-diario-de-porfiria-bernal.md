@@ -1,6 +1,6 @@
 # El diario de Porfiria Bernal
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Silvina Ocampo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/silvina-ocampo-el-diario-de-porfiria-bernal/3035/
 

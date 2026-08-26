@@ -1,6 +1,6 @@
 # La isla a mediodía
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Cortázar
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-la-isla-a-mediodia/5269/
 

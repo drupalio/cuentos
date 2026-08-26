@@ -1,6 +1,6 @@
 # La conciencia
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ana María Matute
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ana-maria-matute-la-conciencia/5505/
 

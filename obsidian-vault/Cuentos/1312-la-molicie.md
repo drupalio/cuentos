@@ -1,11 +1,11 @@
 ---
 title: "La molicie"
-author: "Juan Pablo Guevara"
+author: "Julio Ramon Ribeyro"
 source: 'https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-la-molicie/5560/'
 image: "1312-la-molicie.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/julio-ramon-ribeyro
 ---
 
 # La molicie

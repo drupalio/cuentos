@@ -1,6 +1,6 @@
 # Trasplante obligatorio
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Silverberg
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-silverberg-trasplante-obligatorio/23171/
 

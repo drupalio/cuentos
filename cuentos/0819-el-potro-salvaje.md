@@ -1,6 +1,6 @@
 # El potro salvaje
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Horacio Quiroga
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-el-potro-salvaje/15817/
 

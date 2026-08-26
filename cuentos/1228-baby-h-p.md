@@ -1,6 +1,6 @@
 # Baby H. P.
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan José Arreola
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-jose-arreola-baby-h-p/8106/
 

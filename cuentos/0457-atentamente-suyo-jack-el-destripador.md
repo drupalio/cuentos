@@ -1,6 +1,6 @@
 # Atentamente suyo, Jack el Destripador
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Bloch
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-atentamente-suyo-jack-el-destripador/12808/
 

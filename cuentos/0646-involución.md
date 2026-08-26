@@ -1,6 +1,6 @@
 # Involución
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edmond Hamilton
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edmond-hamilton-involucion/25046/
 

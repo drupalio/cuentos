@@ -1,6 +1,6 @@
 # Un hogar hospitalario
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Bloch
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-un-hogar-hospitalario/13381/
 

@@ -1,6 +1,6 @@
 # Julio Cortázar: Las babas del diablo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Cortázar
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-las-babas-del-diablo/5441/
 

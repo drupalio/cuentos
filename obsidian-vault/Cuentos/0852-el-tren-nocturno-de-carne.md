@@ -1,11 +1,11 @@
 ---
 title: "El tren nocturno de carne"
-author: "Juan Pablo Guevara"
+author: "Clive Barker"
 source: 'https://lecturia.org/cuentos-y-relatos/clive-barker-el-tren-nocturno-de-carne/15449/'
 image: "0852-el-tren-nocturno-de-carne.webp"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/clive-barker
 ---
 
 # El tren nocturno de carne

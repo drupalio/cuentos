@@ -1,6 +1,6 @@
 # Bajo el ocaso
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Bram Stoker
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bram-stoker-bajo-el-ocaso/15874/
 

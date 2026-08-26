@@ -1,6 +1,6 @@
 # El sueño de Armageddon
 
-**Autor:** Juan Pablo Guevara
+**Autor:** H. G. Wells
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-g-wells-un-sueno-de-armageddon/16037/
 

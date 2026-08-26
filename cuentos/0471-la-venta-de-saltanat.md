@@ -1,6 +1,6 @@
 # La venta de Saltanat
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Kemal Bilbaşar
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/kemal-bilbasar-la-venta-saltanat/873/
 

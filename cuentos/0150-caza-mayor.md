@@ -1,6 +1,6 @@
 # Caza mayor
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isaac Asimov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-caza-mayor/5245/
 

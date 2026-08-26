@@ -1,11 +1,11 @@
 ---
 title: "La paz de Mowsle Barton"
-author: "Juan Pablo Guevara"
+author: "Saki"
 source: 'https://lecturia.org/cuentos-y-relatos/saki-la-paz-de-mowsle-barton/5542/'
 image: "1322-la-paz-de-mowsle-barton.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/saki
 ---
 
 # La paz de Mowsle Barton

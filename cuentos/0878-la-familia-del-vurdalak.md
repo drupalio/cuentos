@@ -1,6 +1,6 @@
 # La familia del vurdalak
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Alekséi Tolstói
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/aleksei-tolstoi-la-familia-del-vurdalak/14491/
 

@@ -1,6 +1,6 @@
 # La cena
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Alfonso Reyes
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alfonso-reyes-la-cena/5173/
 

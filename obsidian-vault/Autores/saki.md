@@ -14,6 +14,7 @@ tags:
 - [[1060-el-ratón|El ratón]]
 - [[1022-gabriel-ernest|Gabriel-Ernest]]
 - [[0991-la-loba-el-aprendiz-de-brujo|La loba (El aprendiz de brujo)]]
+- [[1322-la-paz-de-mowsle-barton|La paz de Mowsle Barton]]
 - [[1074-la-penitencia|La penitencia]]
 - [[1244-saki-la-reticencia-de-lady-anne|La reticencia de lady Anne]]
 - [[0306-la-ventana-abierta|La ventana abierta]]

@@ -1,6 +1,6 @@
 # Silvio en El Rosedal
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Ramón Ribeyro
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-silvio-en-el-rosedal/28456/
 

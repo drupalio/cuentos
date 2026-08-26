@@ -1,6 +1,6 @@
 # Los fugitivos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Alejo Carpentier
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alejo-carpentier-los-fugitivos/1083/
 

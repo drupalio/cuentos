@@ -1,6 +1,6 @@
 # El Árbol
 
-**Autor:** Juan Pablo Guevara
+**Autor:** H. P. Lovecraft
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-p-lovecraft-el-arbol/12754/
 

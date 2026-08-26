@@ -1,6 +1,6 @@
 # Italo Calvino: El conductor nocturno
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Italo Calvino
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/italo-calvino-el-conductor-nocturno/2689/
 

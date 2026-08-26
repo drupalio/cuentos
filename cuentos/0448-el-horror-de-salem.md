@@ -1,6 +1,6 @@
 # El horror de Salem
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Henry Kuttner
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/henry-kuttner-el-horror-de-salem/19382/
 

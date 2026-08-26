@@ -1,6 +1,6 @@
 # Acuérdate
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan Rulfo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-rulfo-acuerdate/10801/
 

@@ -1,11 +1,11 @@
 ---
 title: 'Feathertop: una leyenda con moraleja'
-author: "Juan Pablo Guevara"
+author: "Una leyenda con moralejaNathaniel Hawthorne"
 source: 'https://lecturia.org/cuentos-y-relatos/nathaniel-hawthorne-feathertop-una-leyenda-con-moraleja/27069/'
 image: "0303-feathertop-una-leyenda-con-moraleja.webp"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/una-leyenda-con-moralejanathaniel-hawthorne
 ---
 
 # Feathertop: una leyenda con moraleja

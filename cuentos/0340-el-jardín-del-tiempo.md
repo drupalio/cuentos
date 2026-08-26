@@ -1,6 +1,6 @@
 # El jardín del tiempo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** J. G. Ballard
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/j-g-ballard-el-jardin-del-tiempo/13546/
 

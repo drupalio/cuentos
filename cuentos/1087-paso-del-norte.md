@@ -1,6 +1,6 @@
 # Paso del Norte
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan Rulfo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-rulfo-paso-del-norte/11966/
 

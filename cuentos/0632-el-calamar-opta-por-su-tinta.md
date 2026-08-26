@@ -1,6 +1,6 @@
 # El calamar opta por su tinta
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Adolfo Bioy Casares
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/adolfo-bioy-casares-calamar-opta-tinta/841/
 

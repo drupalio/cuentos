@@ -1,6 +1,6 @@
 # Destructor negro
 
-**Autor:** Juan Pablo Guevara
+**Autor:** A. E. van Vogt
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/a-e-van-vogt-destructor-negro/16895/
 

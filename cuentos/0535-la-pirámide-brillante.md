@@ -1,6 +1,6 @@
 # La pirámide brillante
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Arthur Machen
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/arthur-machen-la-piramide-brillante-2/25459/
 

@@ -1,6 +1,6 @@
 # La pata de mono
 
-**Autor:** Juan Pablo Guevara
+**Autor:** W. W. Jacobs
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/w-w-jacobs-la-pata-de-mono/2804/
 

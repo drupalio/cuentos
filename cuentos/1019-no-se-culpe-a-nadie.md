@@ -1,6 +1,6 @@
 # No se culpe a nadie
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Cortázar
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-no-se-culpe-a-nadie/6348/
 

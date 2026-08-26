@@ -1,6 +1,6 @@
 # La casa en la playa
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Ramón Ribeyro
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-la-casa-en-la-playa/27397/
 

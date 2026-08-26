@@ -1,6 +1,6 @@
 # Las noches blancas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Fiódor Dostoyevski
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fiodor-dostoyevski-las-noches-blancas/20954/
 

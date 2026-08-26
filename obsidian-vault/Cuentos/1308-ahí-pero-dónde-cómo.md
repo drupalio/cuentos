@@ -1,11 +1,11 @@
 ---
 title: 'Ahí pero dónde, cómo'
-author: "Juan Pablo Guevara"
+author: 'Autor:Julio CortázarTítulo: Ahí pero dónde, cómoPublicado en:Octaedro, 1974'
 source: 'https://lecturia.org/cuentos-y-relatos/julio-cortazar-ahi-pero-donde-como/5623/'
 image: "1308-ahí-pero-dónde-cómo.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/autorjulio-cortázartítulo-ahí-pero-dónde-cómopublicado-enoct
 ---
 
 # Ahí pero dónde, cómo

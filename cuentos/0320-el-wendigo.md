@@ -1,6 +1,6 @@
 # El Wendigo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Algernon Blackwood
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/algernon-blackwood-el-wendigo/16062/
 

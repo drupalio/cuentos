@@ -4,7 +4,7 @@ import os
 import json
 import xml.etree.ElementTree as ET
 from bs4 import BeautifulSoup
-from urllib.parse import urlparse
+from urllib.parse import urlparse, urljoin
 from concurrent.futures import ThreadPoolExecutor, as_completed
 
 SITEMAP_URLS = [
@@ -13,11 +13,23 @@ SITEMAP_URLS = [
     "https://lecturia.org/post-sitemap3.xml",
 ]
 
+CRAWL_PAGES = [
+    "https://lecturia.org/",
+    "https://lecturia.org/cuentos/",
+    "https://lecturia.org/cuentos-completos/",
+    "https://lecturia.org/ciencia-ficcion/",
+    "https://lecturia.org/horror/",
+    "https://lecturia.org/realismo/",
+    "https://lecturia.org/poesia/",
+]
+
 OUTPUT_DIR = "cuentos"
 STATE_FILE = "scraped_urls.json"
 NS = {"s": "http://www.sitemaps.org/schemas/sitemap/0.9"}
 
 session = requests.Session()
+session.headers.update({"User-Agent": "Mozilla/5.0 (compatible; CuentosBot/1.0)"})
+
 
 def load_scraped():
     if os.path.exists(STATE_FILE):
@@ -25,22 +37,54 @@ def load_scraped():
             return set(json.load(f))
     return set()
 
+
 def save_scraped(urls):
     with open(STATE_FILE, "w") as f:
         json.dump(sorted(urls), f, indent=2)
 
-def get_story_urls():
-    urls = []
+
+def normalize_url(url):
+    p = urlparse(url)
+    path = p.path.rstrip("/") + "/"
+    return f"{p.scheme}://{p.netloc}{path}"
+
+
+def get_story_urls_from_sitemaps():
+    urls = set()
     for sitemap_url in SITEMAP_URLS:
-        resp = session.get(sitemap_url, timeout=30)
-        resp.raise_for_status()
-        root = ET.fromstring(resp.content)
-        for url_elem in root.findall("s:url", NS):
-            loc = url_elem.find("s:loc", NS).text
-            path = urlparse(loc).path
-            if "/cuentos-y-relatos/" in path and not path.startswith("/en/") and not path.startswith("/fr/"):
-                urls.append(loc)
+        try:
+            resp = session.get(sitemap_url, timeout=30)
+            resp.raise_for_status()
+            root = ET.fromstring(resp.content)
+            for url_elem in root.findall("s:url", NS):
+                loc = url_elem.find("s:loc", NS).text
+                path = urlparse(loc).path
+                if "/cuentos-y-relatos/" in path and not path.startswith("/en/") and not path.startswith("/fr/"):
+                    urls.add(normalize_url(loc))
+        except Exception as e:
+            print(f"  Error en {sitemap_url}: {e}")
     return urls
+
+
+def get_story_urls_from_pages():
+    urls = set()
+    for page_url in CRAWL_PAGES:
+        try:
+            resp = session.get(page_url, timeout=15)
+            if resp.status_code != 200:
+                continue
+            soup = BeautifulSoup(resp.text, "lxml")
+            for a in soup.find_all("a", href=True):
+                href = urljoin(page_url, a["href"])
+                path = urlparse(href).path
+                if "/cuentos-y-relatos/" in path and not path.startswith("/en/") and not path.startswith("/fr/"):
+                    # Only story URLs (have numeric ID at end)
+                    if re.search(r'/cuentos-y-relatos/[^/]+/\d+/?$', path):
+                        urls.add(normalize_url(href))
+        except Exception as e:
+            print(f"  Error en {page_url}: {e}")
+    return urls
+
 
 def scrape_story(url):
     try:
@@ -56,25 +100,6 @@ def scrape_story(url):
             title = og_title["content"] if og_title else "Sin titulo"
 
         author = "Desconocido"
-        for script in soup.find_all("script", type="application/ld+json"):
-            try:
-                data = json.loads(script.string)
-                if isinstance(data, dict):
-                    if "author" in data:
-                        a = data["author"]
-                        author = a.get("name", a) if isinstance(a, dict) else str(a)
-                    elif "@graph" in data:
-                        for item in data["@graph"]:
-                            if "author" in item:
-                                a = item["author"]
-                                author = a.get("name", a) if isinstance(a, dict) else str(a)
-                                break
-            except Exception:
-                pass
-        if author == "Desconocido":
-            author_tag = soup.select_one('a[rel="author"]') or soup.select_one('.author-name')
-            if author_tag:
-                author = author_tag.get_text(strip=True)
 
         content_div = soup.find("div", class_="entry-content")
         if not content_div:
@@ -83,6 +108,17 @@ def scrape_story(url):
         if content_div:
             for tag in content_div.find_all(["script", "style", "nav", "aside", "footer"]):
                 tag.decompose()
+            
+            # Extract author from body text pattern: "AuthorName(Cuento completo)"
+            for p in content_div.find_all("p")[:5]:
+                text = p.get_text(strip=True)
+                if text.startswith("Sinopsis"):
+                    continue
+                match = re.match(r'^(.+?)\s*\(', text)
+                if match and len(match.group(1)) > 2:
+                    author = match.group(1).strip()
+                    break
+            
             paras = content_div.find_all("p")
             text_parts = [p.get_text(strip=True) for p in paras if p.get_text(strip=True)]
             story_text = "\n\n".join(text_parts)
@@ -95,17 +131,20 @@ def scrape_story(url):
             img_url = og_image.get("content")
 
         return {"title": title, "author": author, "url": url, "text": story_text, "image_url": img_url}
-    except Exception as e:
+    except Exception:
         return None
+
 
 def sanitize_filename(name):
     name = re.sub(r'[^\w\s-]', '', name)
     name = re.sub(r'\s+', '-', name)
     return name[:100].lower()
 
+
 def get_image_ext(url):
     ext = os.path.splitext(urlparse(url).path)[1].lower()
     return ext if ext in (".jpg", ".jpeg", ".png", ".gif", ".webp") else ".jpg"
+
 
 def download_image(url, filepath):
     try:
@@ -116,6 +155,7 @@ def download_image(url, filepath):
         return True
     except Exception:
         return False
+
 
 def save_story(story, index):
     basename = f"{index:04d}-{sanitize_filename(story['title'])}"
@@ -139,6 +179,7 @@ def save_story(story, index):
         f.write(md)
     return filepath
 
+
 def get_next_index():
     existing = [f for f in os.listdir(OUTPUT_DIR) if f.endswith(".md")]
     if not existing:
@@ -151,14 +192,22 @@ def get_next_index():
             continue
     return max(nums) + 1 if nums else 1
 
+
 def main():
     os.makedirs(OUTPUT_DIR, exist_ok=True)
     scraped = load_scraped()
     print(f"Ya raspados: {len(scraped)} cuentos")
 
     print("Obteniendo URLs del sitemap...")
-    all_urls = get_story_urls()
-    print(f"Total en sitemap: {len(all_urls)}")
+    sitemap_urls = get_story_urls_from_sitemaps()
+    print(f"  Sitemap: {len(sitemap_urls)} URLs unicas")
+
+    print("Rastreando paginas de listado...")
+    page_urls = get_story_urls_from_pages()
+    print(f"  Paginas: {len(page_urls)} URLs encontradas")
+
+    all_urls = sitemap_urls | page_urls
+    print(f"  Total unico: {len(all_urls)}")
 
     new_urls = [u for u in all_urls if u not in scraped]
     print(f"Cuentos nuevos: {len(new_urls)}")
@@ -182,6 +231,7 @@ def main():
 
     save_scraped(scraped)
     print(f"\nListo! {saved} cuentos nuevos agregados a '{OUTPUT_DIR}/'")
+
 
 if __name__ == "__main__":
     main()

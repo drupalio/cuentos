@@ -1,11 +1,11 @@
 ---
 title: "Tierra ajena"
-author: "Juan Pablo Guevara"
+author: 'Autor: Oscar CastroTítulo: Tierra ajenaPublicado en:Huellas en la tierra, 1940'
 source: 'https://lecturia.org/cuentos-y-relatos/oscar-castro-tierra-ajena/6535/'
 image: "1292-tierra-ajena.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/autor-oscar-castrotítulo-tierra-ajenapublicado-enhuellas-en-
 ---
 
 # Tierra ajena

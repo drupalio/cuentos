@@ -1,6 +1,6 @@
 # Una narración de Jerusalén
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edgar Allan Poe
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-una-narracion-de-jerusalen/4749/
 

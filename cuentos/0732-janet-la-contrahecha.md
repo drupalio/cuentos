@@ -1,6 +1,6 @@
 # Janet la contrahecha
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Louis Stevenson
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-louis-stevenson-janet-la-contrahecha/24429/
 

@@ -1,6 +1,6 @@
 # La calavera del Marqués de Sade
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Bloch
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-la-calavera-del-marques-de-sade/15177/
 

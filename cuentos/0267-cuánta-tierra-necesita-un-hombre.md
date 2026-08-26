@@ -1,6 +1,6 @@
 # ¿Cuánta tierra necesita un hombre?
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Lev Tolstói
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/lev-tolstoi-cuanta-tierra-necesita-un-hombre/6208/
 

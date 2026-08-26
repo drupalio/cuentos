@@ -1,6 +1,6 @@
 # Una visita médica (o Un caso profesional)
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Antón Chéjov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-una-visita-medica/23275/
 

@@ -1,6 +1,6 @@
 # La muerte tiene permiso
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edmundo Valadés
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edmundo-valades-la-muerte-tiene-permiso/24088/
 

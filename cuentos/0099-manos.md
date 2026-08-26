@@ -1,6 +1,6 @@
 # Manos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Elsa Bornemann
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/elsa-bornemann-manos/16692/
 

@@ -1,6 +1,6 @@
 # Josefina la cantora o el pueblo de los ratones
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Franz Kafka
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/franz-kafka-josefina-la-cantora-o-el-pueblo-de-los-ratones/27744/
 

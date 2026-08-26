@@ -1,6 +1,6 @@
 # Soñar es un asunto privado
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isaac Asimov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-sonar-es-un-asunto-privado/4238/
 

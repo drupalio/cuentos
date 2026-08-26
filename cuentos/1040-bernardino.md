@@ -1,6 +1,6 @@
 # Bernardino
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ana María Matute
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ana-maria-matute-bernardino/21757/
 

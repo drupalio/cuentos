@@ -1,6 +1,6 @@
 # Sredni Vashtar
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Saki
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/saki-sredni-vashtar/564/
 

@@ -1,6 +1,6 @@
 # ¡Adiós, Cordera!
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Leopoldo Alas (Clarín)
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/leopoldo-alas-clarin-adios-cordera/12682/
 

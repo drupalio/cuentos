@@ -1,11 +1,11 @@
 ---
 title: "El hombre sin cabeza"
-author: "Juan Pablo Guevara"
+author: "Gene Wolfe"
 source: 'https://lecturia.org/cuentos-y-relatos/gene-wolfe-el-hombre-sin-cabeza/6864/'
 image: "1258-el-hombre-sin-cabeza.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/gene-wolfe
 ---
 
 # El hombre sin cabeza

@@ -1,6 +1,6 @@
 # Harrison Bergeron
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Kurt Vonnegut
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/kurt-vonnegut-harrison-bergeron/2278/
 

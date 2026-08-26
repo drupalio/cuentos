@@ -1,6 +1,6 @@
 # El sexo de los ángeles
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mario Benedetti
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-el-sexo-de-los-angeles/10701/
 

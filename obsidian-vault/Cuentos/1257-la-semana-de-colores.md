@@ -1,11 +1,11 @@
 ---
 title: "La semana de colores"
-author: "Juan Pablo Guevara"
+author: "Elena Garro"
 source: 'https://lecturia.org/cuentos-y-relatos/elena-garro-la-semana-de-colores/6881/'
 image: "1257-la-semana-de-colores.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/elena-garro
 ---
 
 # La semana de colores

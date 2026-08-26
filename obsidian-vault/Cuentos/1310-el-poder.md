@@ -1,11 +1,11 @@
 ---
 title: "El poder"
-author: "Juan Pablo Guevara"
+author: "Fredric Brown"
 source: 'https://lecturia.org/cuentos-y-relatos/fredric-brown-el-poder/5959/'
 image: "1310-el-poder.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/fredric-brown
 ---
 
 # El poder

@@ -1,6 +1,6 @@
 # El enebro
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Hermanos Grimm
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/hermanos-grimm-el-enebro/28318/
 

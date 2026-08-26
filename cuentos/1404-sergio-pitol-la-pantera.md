@@ -1,6 +1,6 @@
 # Sergio Pitol: La pantera
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Sergio Pitol
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/sergio-pitol-la-pantera/2307/
 

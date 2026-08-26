@@ -1,6 +1,6 @@
 # Las doradas manzanas del sol
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ray Bradbury
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-las-doradas-manzanas-del-sol/15695/
 

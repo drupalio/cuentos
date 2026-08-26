@@ -1,6 +1,6 @@
 # Mario Benedetti: Como un ladrón
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mario Benedetti
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-ladron-1947/521/
 

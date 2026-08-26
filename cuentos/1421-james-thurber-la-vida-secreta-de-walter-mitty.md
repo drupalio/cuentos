@@ -1,6 +1,6 @@
 # James Thurber: La vida secreta de Walter Mitty
 
-**Autor:** Juan Pablo Guevara
+**Autor:** James Thurber
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/james-thurber-la-vida-secreta-walter-mitty/1243/
 

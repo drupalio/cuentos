@@ -1,6 +1,6 @@
 # Un pacto con el diablo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan José Arreola
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-jose-arreola-un-pacto-con-el-diablo/9410/
 

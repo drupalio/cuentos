@@ -1,6 +1,6 @@
 # Vicente Blasco Ibáñez: Un silbido
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Vicente Blasco Ibanez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/vicente-blasco-ibanez-un-silbido/4570/
 

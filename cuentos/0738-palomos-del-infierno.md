@@ -1,6 +1,6 @@
 # Palomos del infierno
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert E. Howard
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-e-howard-palomos-del-infierno/15098/
 

@@ -1,6 +1,6 @@
 # Te digo más…
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Roberto Fontanarrosa
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roberto-fontanarrosa-te-digo-mas/17470/
 

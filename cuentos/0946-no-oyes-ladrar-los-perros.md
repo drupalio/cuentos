@@ -1,6 +1,6 @@
 # No oyes ladrar los perros
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan Rulfo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-rulfo-no-oyes-ladrar-los-perros/4746/
 

@@ -1,6 +1,6 @@
 # La ciudad
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ray Bradbury
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-la-ciudad/23967/
 

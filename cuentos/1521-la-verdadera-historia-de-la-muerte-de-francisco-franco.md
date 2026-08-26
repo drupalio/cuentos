@@ -1,6 +1,6 @@
 # La verdadera historia de la muerte de Francisco Franco
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Max Aub
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/max-aub-la-verdadera-historia-de-la-muerte-de-francisco-franco/28619/
 

@@ -1,6 +1,6 @@
 # La habitación en la torre
 
-**Autor:** Juan Pablo Guevara
+**Autor:** E. F. Benson
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/e-f-benson-la-habitacion-en-la-torre/21623/
 

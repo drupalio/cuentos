@@ -1,6 +1,6 @@
 # La imperfecta casada
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Leopoldo Alas (Clarín)
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/leopoldo-alas-clarin-la-imperfecta-casada/5807/
 

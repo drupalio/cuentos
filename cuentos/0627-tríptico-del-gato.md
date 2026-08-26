@@ -1,6 +1,6 @@
 # Tríptico del gato
 
-**Autor:** Juan Pablo Guevara
+**Autor:** José Emilio Pacheco
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-emilio-pacheco-triptico-del-gato/13877/
 

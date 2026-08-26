@@ -1,6 +1,6 @@
 # El pequeño escribiente florentino
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edmondo De Amicis
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edmondo-de-amicis-el-pequeno-escribiente-florentino/26210/
 

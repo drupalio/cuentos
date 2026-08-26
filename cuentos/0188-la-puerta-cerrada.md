@@ -1,6 +1,6 @@
 # La puerta cerrada
 
-**Autor:** Juan Pablo Guevara
+**Autor:** José Donoso
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-donoso-la-puerta-cerrada/941/
 

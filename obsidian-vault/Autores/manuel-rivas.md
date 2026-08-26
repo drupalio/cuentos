@@ -10,3 +10,4 @@ tags:
 ## Cuentos
 
 - [[0478-la-lengua-de-las-mariposas|La lengua de las mariposas]]
+- [[1559-la-lengua-de-las-mariposas|La lengua de las mariposas]]

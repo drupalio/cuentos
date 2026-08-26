@@ -1,6 +1,6 @@
 # Las medias de los flamencos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Horacio Quiroga
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-las-medias-de-los-flamencos/6195/
 

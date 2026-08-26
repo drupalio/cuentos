@@ -1,6 +1,6 @@
 # Cuento de Navidad
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Guy de Maupassant
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-cuento-de-navidad/25473/
 

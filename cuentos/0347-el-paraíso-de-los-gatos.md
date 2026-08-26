@@ -1,6 +1,6 @@
 # El paraíso de los gatos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Émile Zola
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emile-zola-el-paraiso-de-los-gatos/2654/
 

@@ -1,6 +1,6 @@
 # Bartleby, el escribiente
 
-**Autor:** Juan Pablo Guevara
+**Autor:** UNA HISTORIA DE WALL STREETHerman Melville
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/herman-melville-bartleby-el-escribiente/28063/
 

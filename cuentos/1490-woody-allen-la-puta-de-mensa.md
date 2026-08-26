@@ -1,6 +1,6 @@
 # Woody Allen: La puta de Mensa
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Woody Allen
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/woody-allen-la-puta-de-mensa/2167/
 

@@ -1,6 +1,6 @@
 # La cueva de la Mora
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Gustavo Adolfo Bécquer
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/gustavo-adolfo-becquer-la-cueva-de-la-mora/12503/
 

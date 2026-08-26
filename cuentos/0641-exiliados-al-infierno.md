@@ -1,6 +1,6 @@
 # Exiliados al infierno
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isaac Asimov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-exiliados-al-infierno/7638/
 

@@ -1,6 +1,6 @@
 # El hombre que nunca se hizo joven
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Fritz Leiber
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fritz-leiber-el-hombre-que-nunca-se-hizo-joven/27453/
 

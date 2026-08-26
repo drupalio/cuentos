@@ -1,6 +1,6 @@
 # Jhumpa Lahiri: Un Durwan de verdad
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Jhumpa Lahiri
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jhumpa-lahiri-un-durwan-de-verdad/2659/
 

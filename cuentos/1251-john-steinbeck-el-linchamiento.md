@@ -1,6 +1,6 @@
 # John Steinbeck: El linchamiento
 
-**Autor:** Juan Pablo Guevara
+**Autor:** John Steinbeck
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/john-steinbeck-el-linchamiento/8176/
 

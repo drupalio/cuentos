@@ -1,6 +1,6 @@
 # La ventana tapiada
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ambrose Bierce
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ambrose-bierce-la-ventana-tapiada/15464/
 

@@ -1,6 +1,6 @@
 # Nicomedes Guzmán: Aún quedan madreselvas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Nicomedes Guzmán
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/nicomedes-guzman-aun-quedan-madreselvas/666/
 

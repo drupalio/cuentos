@@ -1,6 +1,6 @@
 # Esa mujer
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Rodolfo Walsh
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/rodolfo-walsh-esa-mujer/1088/
 

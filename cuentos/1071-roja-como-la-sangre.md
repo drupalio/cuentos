@@ -1,6 +1,6 @@
 # Roja como la sangre
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Tanith Lee
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/tanith-lee-roja-como-la-sangre/21493/
 

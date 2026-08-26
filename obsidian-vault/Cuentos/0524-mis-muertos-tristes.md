@@ -1,11 +1,11 @@
 ---
 title: "Mis muertos tristes"
-author: "Juan Pablo Guevara"
+author: "Mariana Enríquez"
 source: 'https://lecturia.org/cuentos-y-relatos/mariana-enriquez-mis-muertos-tristes/17882/'
 image: "0524-mis-muertos-tristes.webp"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/mariana-enríquez
 ---
 
 # Mis muertos tristes

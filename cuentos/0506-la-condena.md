@@ -1,6 +1,6 @@
 # La condena
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Franz Kafka
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/franz-kafka-la-condena/4214/
 

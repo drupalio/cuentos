@@ -1,6 +1,6 @@
 # El dios de los muertos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Clark Ashton Smith
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/clark-ashton-smith-el-dios-de-los-muertos/15284/
 

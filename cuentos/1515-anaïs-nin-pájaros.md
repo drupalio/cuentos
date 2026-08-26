@@ -1,6 +1,6 @@
 # Anaïs Nin: Pájaros
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Anaïs Nin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anais-nin-pajaros/662/
 

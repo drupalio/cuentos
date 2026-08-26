@@ -1,6 +1,6 @@
 # Las manos que crecen
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Cortázar
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-cortazar-las-manos-crecen/755/
 

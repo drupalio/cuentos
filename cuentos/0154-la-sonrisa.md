@@ -1,6 +1,6 @@
 # La sonrisa
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ray Bradbury
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-la-sonrisa/13807/
 

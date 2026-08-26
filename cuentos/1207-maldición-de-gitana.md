@@ -1,6 +1,6 @@
 # Maldición de gitana
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Emilia Pardo Bazán
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/emilia-pardo-bazan-maldicion-de-gitana/6126/
 

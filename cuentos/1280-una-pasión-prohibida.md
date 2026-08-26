@@ -1,6 +1,6 @@
 # Una pasión prohibida
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Cristina Peri Rossi
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/cristina-peri-rossi-una-pasion-prohibida/6429/
 

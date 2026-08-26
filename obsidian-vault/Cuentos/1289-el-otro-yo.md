@@ -1,11 +1,11 @@
 ---
 title: "El Otro Yo"
-author: "Juan Pablo Guevara"
+author: "Mario Benedetti"
 source: 'https://lecturia.org/cuentos-y-relatos/mario-benedetti-el-otro-yo/6344/'
 image: "1289-el-otro-yo.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/mario-benedetti
 ---
 
 # El Otro Yo

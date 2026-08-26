@@ -1,6 +1,6 @@
 # Bárbara
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Autor:Julio Ramón RibeyroTítulo: BárbaraPublicado en:Los cautivos, 1972
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-barbara/6782/
 

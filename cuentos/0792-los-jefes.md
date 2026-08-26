@@ -1,6 +1,6 @@
 # Los Jefes
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mario Vargas Llosa
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-vargas-llosa-los-jefes/1065/
 

@@ -1,6 +1,6 @@
 # Aquí se respira bien
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mario Benedetti
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-aqui-se-respira-bien/4756/
 

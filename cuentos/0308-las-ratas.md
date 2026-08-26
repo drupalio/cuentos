@@ -1,6 +1,6 @@
 # Las ratas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Guadalupe Dueñas
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guadalupe-duenas-las-ratas/21131/
 

@@ -1,6 +1,6 @@
 # La casa del valle
 
-**Autor:** Juan Pablo Guevara
+**Autor:** August Derleth
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/august-derleth-la-casa-del-valle/20689/
 

@@ -1,6 +1,6 @@
 # El regreso de Abel Behenna
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Bram Stoker
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bram-stoker-el-regreso-de-abel-behenna/23260/
 

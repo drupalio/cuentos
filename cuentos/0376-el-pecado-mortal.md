@@ -1,6 +1,6 @@
 # El pecado mortal
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Silvina Ocampo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/silvina-ocampo-el-pecado-mortal/4867/
 

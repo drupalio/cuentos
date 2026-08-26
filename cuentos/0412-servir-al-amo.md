@@ -1,6 +1,6 @@
 # Servir al amo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Philip K. Dick
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-servir-al-amo/26332/
 

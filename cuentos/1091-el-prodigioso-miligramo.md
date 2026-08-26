@@ -1,6 +1,6 @@
 # El prodigioso miligramo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan José Arreola
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-jose-arreola-el-prodigioso-miligramo/2453/
 

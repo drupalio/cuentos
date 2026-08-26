@@ -1,6 +1,6 @@
 # Alfredo Bryce Echenique: El camino es así
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Alfredo Bryce Echenique
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alfredo-bryce-echenique-el-camino-es-asi/2326/
 

@@ -1,6 +1,6 @@
 # Ricardo Piglia: El Laucha Benítez cantaba boleros
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ricardo Piglia
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ricardo-piglia-el-laucha-benitez-cantaba-boleros/5430/
 

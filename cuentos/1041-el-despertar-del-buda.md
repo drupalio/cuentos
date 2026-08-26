@@ -1,6 +1,6 @@
 # El despertar del Buda
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Vicente Blasco Ibáñez
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/vicente-blasco-ibanez-el-despertar-del-buda/21767/
 

@@ -1,6 +1,6 @@
 # Los cangrejos caminan sobre la isla
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Anatoly Dneprov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anatoly-dneprov-los-cangrejos-caminan-sobre-la-isla/24950/
 

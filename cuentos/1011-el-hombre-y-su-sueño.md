@@ -1,6 +1,6 @@
 # El hombre y su sueño
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Enrique Lihn
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/enrique-lihn-hombre-sueno/966/
 

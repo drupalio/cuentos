@@ -1,6 +1,6 @@
 # La vieja inocencia
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mario Benedetti
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mario-benedetti-la-vieja-inocencia/21728/
 

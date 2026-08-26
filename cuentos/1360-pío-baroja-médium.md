@@ -1,6 +1,6 @@
 # Pío Baroja: Médium
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Pío Baroja
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/pio-baroja-medium/4027/
 

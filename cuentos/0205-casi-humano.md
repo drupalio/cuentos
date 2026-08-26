@@ -1,6 +1,6 @@
 # Casi humano
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Bloch
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-casi-humano/27570/
 

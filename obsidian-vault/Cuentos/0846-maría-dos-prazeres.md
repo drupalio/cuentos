@@ -1,11 +1,11 @@
 ---
 title: "María dos Prazeres"
-author: "Juan Pablo Guevara"
+author: "Gabriel García Márquez"
 source: 'https://lecturia.org/cuentos-y-relatos/gabriel-garcia-marquez-maria-dos-prazeres/15658/'
 image: "0846-maría-dos-prazeres.webp"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/gabriel-garcía-márquez
 ---
 
 # María dos Prazeres

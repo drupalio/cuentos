@@ -1,11 +1,11 @@
 ---
 title: "El delincuente"
-author: "Juan Pablo Guevara"
+author: "Manuel Rojas"
 source: 'https://lecturia.org/cuentos-y-relatos/manuel-rojas-delincuente/616/'
 image: "1306-el-delincuente.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/manuel-rojas
 ---
 
 # El delincuente

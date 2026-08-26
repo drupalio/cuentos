@@ -1,6 +1,6 @@
 # Deserción
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Clifford D. Simak
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/clifford-d-simak-desercion/25190/
 

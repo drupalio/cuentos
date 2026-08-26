@@ -1,6 +1,6 @@
 # Cesare Pavese: Años
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Cesare Pavese
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/cesare-pavese-anos/2538/
 

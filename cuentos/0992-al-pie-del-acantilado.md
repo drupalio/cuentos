@@ -1,6 +1,6 @@
 # Al pie del acantilado
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Ramón Ribeyro
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-al-pie-del-acantilado/13926/
 

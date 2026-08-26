@@ -1,6 +1,6 @@
 # La tarde de un fauno
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Adolfo Bioy Casares
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/adolfo-bioy-casares-la-tarde-de-un-fauno/6292/
 

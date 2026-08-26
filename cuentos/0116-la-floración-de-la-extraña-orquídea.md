@@ -1,6 +1,6 @@
 # La floración de la extraña orquídea
 
-**Autor:** Juan Pablo Guevara
+**Autor:** H. G. Wells
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/h-g-wells-la-floracion-de-la-extrana-orquidea/25658/
 

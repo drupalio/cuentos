@@ -1,6 +1,6 @@
 # El tatuaje
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Junichiro Tanizaki
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/junichiro-tanizaki-el-tatuaje/21566/
 

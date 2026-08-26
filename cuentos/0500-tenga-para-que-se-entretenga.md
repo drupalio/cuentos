@@ -1,6 +1,6 @@
 # Tenga para que se entretenga
 
-**Autor:** Juan Pablo Guevara
+**Autor:** José Emilio Pacheco
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-emilio-pacheco-tenga-para-que-se-entretenga/13268/
 

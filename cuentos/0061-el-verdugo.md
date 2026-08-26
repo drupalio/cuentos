@@ -1,6 +1,6 @@
 # El verdugo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Silvina Ocampo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/silvina-ocampo-el-verdugo/28258/
 

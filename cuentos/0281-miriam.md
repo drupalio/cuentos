@@ -1,6 +1,6 @@
 # Miriam
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Truman Capote
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/truman-capote-miriam/27212/
 

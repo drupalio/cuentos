@@ -1,11 +1,11 @@
 ---
 title: "Teoría del cangrejo"
-author: "Juan Pablo Guevara"
+author: "Julio Cortázar"
 source: 'https://lecturia.org/cuentos-y-relatos/julio-cortazar-teoria-del-cangrejo/6737/'
 image: "1284-teoría-del-cangrejo.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/julio-cortázar
 ---
 
 # Teoría del cangrejo

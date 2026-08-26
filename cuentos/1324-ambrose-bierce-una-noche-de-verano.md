@@ -1,6 +1,6 @@
 # Ambrose Bierce: Una noche de verano
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ambrose Bierce
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ambrose-bierce-una-noche-de-verano/5471/
 

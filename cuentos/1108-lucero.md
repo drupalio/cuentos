@@ -1,6 +1,6 @@
 # Lucero
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Oscar Castro
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/oscar-castro-lucero/6382/
 

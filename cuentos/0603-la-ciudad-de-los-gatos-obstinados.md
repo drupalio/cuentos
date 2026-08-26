@@ -1,6 +1,6 @@
 # La ciudad de los gatos obstinados
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Italo Calvino
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/italo-calvino-la-ciudad-de-los-gatos-obstinados/19451/
 

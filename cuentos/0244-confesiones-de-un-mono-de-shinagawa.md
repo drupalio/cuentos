@@ -1,6 +1,6 @@
 # Confesiones de un mono de Shinagawa
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Haruki Murakami
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/haruki-murakami-confesiones-de-un-mono-de-shinagawa/23675/
 

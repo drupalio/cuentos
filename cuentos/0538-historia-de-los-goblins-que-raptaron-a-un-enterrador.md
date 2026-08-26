@@ -1,6 +1,6 @@
 # Historia de los goblins que raptaron a un enterrador
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Charles Dickens
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/charles-dickens-historia-de-los-goblins-que-raptaron-a-un-enterrador/12344/
 

@@ -1,11 +1,11 @@
 ---
 title: "Marcel Proust"
-author: "Juan Pablo Guevara"
+author: "Marcel Proust Pauline"
 source: 'https://lecturia.org/cuentos-y-relatos/marcel-proust-pauline-de-s/5969/'
 image: "1320-marcel-proust.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/marcel-proust-pauline
 ---
 
 # Marcel Proust

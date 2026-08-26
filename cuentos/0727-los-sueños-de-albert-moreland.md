@@ -1,6 +1,6 @@
 # Los sueños de Albert Moreland
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Fritz Leiber
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fritz-leiber-los-suenos-de-albert-moreland/24463/
 

@@ -1,6 +1,6 @@
 # El charlatán y Jack
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Clive Barker
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/clive-barker-el-charlatan-y-jack/15595/
 

@@ -1,6 +1,6 @@
 # William Gibson: El continuo de Gernsback
 
-**Autor:** Juan Pablo Guevara
+**Autor:** William Gibson
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/william-gibson-el-continuo-de-gernsback/2417/
 

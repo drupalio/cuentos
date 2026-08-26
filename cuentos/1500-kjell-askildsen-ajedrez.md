@@ -1,6 +1,6 @@
 # Kjell Askildsen: Ajedrez
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Kjell Askildsen
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/kjell-askildsen-ajedrez/1207/
 

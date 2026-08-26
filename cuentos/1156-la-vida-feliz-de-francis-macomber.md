@@ -1,6 +1,6 @@
 # La vida feliz de Francis Macomber
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ernest Hemingway
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ernest-hemingway-la-vida-feliz-de-francis-macomber/5105/
 

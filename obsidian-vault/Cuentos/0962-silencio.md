@@ -1,11 +1,11 @@
 ---
 title: "Silencio"
-author: "Juan Pablo Guevara"
+author: "Edgar Allan Poe"
 source: 'https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-silencio/14125/'
 image: "0962-silencio.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/edgar-allan-poe
 ---
 
 # Silencio

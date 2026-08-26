@@ -1,6 +1,6 @@
 # El mexicano
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Jack London
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jack-london-el-mexicano/18469/
 

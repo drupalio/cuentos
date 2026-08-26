@@ -1,11 +1,11 @@
 ---
 title: 'Creer, creer a medias y no creer en nada'
-author: "Juan Pablo Guevara"
+author: "Robert Louis Stevenson"
 source: 'https://lecturia.org/cuentos-y-relatos/robert-louis-stevenson-creer-creer-a-medias-y-no-creer-en-nada/11705/'
 image: "1205-creer-creer-a-medias-y-no-creer-en-nada.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/robert-louis-stevenson
 ---
 
 # Creer, creer a medias y no creer en nada

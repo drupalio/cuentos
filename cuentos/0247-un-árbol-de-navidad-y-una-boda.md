@@ -1,6 +1,6 @@
 # Un árbol de Navidad y una boda
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Fiódor Dostoyevski
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/fiodor-dostoyevski-un-arbol-de-navidad-y-una-boda/17931/
 

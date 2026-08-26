@@ -1,6 +1,6 @@
 # El pozo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Alejandra Kamiya
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/alejandra-kamiya-el-pozo/27767/
 

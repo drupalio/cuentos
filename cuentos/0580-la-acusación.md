@@ -1,6 +1,6 @@
 # La acusación
 
-**Autor:** Juan Pablo Guevara
+**Autor:** José Revueltas
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jose-revueltas-la-acusacion/15560/
 

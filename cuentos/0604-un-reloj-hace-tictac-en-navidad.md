@@ -1,6 +1,6 @@
 # Un reloj hace tictac en navidad
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Patricia Highsmith
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/patricia-highsmith-un-reloj-hace-tictac-en-navidad/6592/
 

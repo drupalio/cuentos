@@ -1,6 +1,6 @@
 # El nadador
 
-**Autor:** Juan Pablo Guevara
+**Autor:** John Cheever
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/john-cheever-el-nadador/84/
 

@@ -10,6 +10,7 @@ tags:
 ## Cuentos
 
 - [[0324-aire-frío|Aire frío]]
+- [[1263-azathoth|Azathoth]]
 - [[1121-dagón|Dagón]]
 - [[0715-desde-más-allá|Desde más allá]]
 - [[0600-el-extraño|El extraño]]

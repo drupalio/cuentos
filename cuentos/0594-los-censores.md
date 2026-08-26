@@ -1,6 +1,6 @@
 # Los censores
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Luisa Valenzuela
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/luisa-valenzuela-los-censores/75/
 

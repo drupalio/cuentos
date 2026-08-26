@@ -1,6 +1,6 @@
 # El vencedor
 
-**Autor:** Juan Pablo Guevara
+**Autor:** César Vallejo
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/cesar-vallejo-el-vencedor/5132/
 

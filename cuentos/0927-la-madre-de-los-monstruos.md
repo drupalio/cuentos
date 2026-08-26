@@ -1,6 +1,6 @@
 # La madre de los monstruos
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Guy de Maupassant
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/guy-de-maupassant-la-madre-de-los-monstruos/14718/
 

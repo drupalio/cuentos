@@ -1,6 +1,6 @@
 # Mark Twain: La decadencia del arte de mentir
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Mark Twain
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/mark-twain-la-decadencia-del-arte-mentir/1076/
 

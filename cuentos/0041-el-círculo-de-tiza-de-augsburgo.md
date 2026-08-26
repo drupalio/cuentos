@@ -1,6 +1,6 @@
 # El círculo de tiza de Augsburgo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Bertolt Brecht
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bertolt-brecht-circulo-tiza-augsburgo/1205/
 

@@ -1,6 +1,6 @@
 # Las botellas y los hombres
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Julio Ramón Ribeyro
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/julio-ramon-ribeyro-las-botellas-y-los-hombres/6048/
 

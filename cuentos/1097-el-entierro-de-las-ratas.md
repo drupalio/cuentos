@@ -1,6 +1,6 @@
 # El entierro de las ratas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Bram Stoker
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/bram-stoker-el-entierro-de-las-ratas/21311/
 

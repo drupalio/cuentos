@@ -1,6 +1,6 @@
 # Las invitadas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Autor: Silvina OcampoTítulo: Las invitadasPublicado en:Las invitadas,1961
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/silvina-ocampo-las-invitadas/6846/
 

@@ -1,6 +1,6 @@
 # El informe de la minoría
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Philip K. Dick
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/philip-k-dick-el-informe-de-la-minoria/26514/
 

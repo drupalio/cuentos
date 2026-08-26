@@ -1,6 +1,6 @@
 # Las islas voladoras
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Antón Chéjov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/anton-chejov-las-islas-voladoras/1176/
 

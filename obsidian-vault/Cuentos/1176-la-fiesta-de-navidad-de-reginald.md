@@ -1,11 +1,11 @@
 ---
 title: "La fiesta de Navidad de Reginald"
-author: "Juan Pablo Guevara"
+author: "Saki (Hector Hugh Munro)"
 source: 'https://lecturia.org/cuentos-y-relatos/saki-la-fiesta-navidad-reginald/1238/'
 image: "1176-la-fiesta-de-navidad-de-reginald.webp"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/saki-hector-hugh-munro
 ---
 
 # La fiesta de Navidad de Reginald

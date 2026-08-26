@@ -1,6 +1,6 @@
 # La mujer más pequeña del mundo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Clarice Lispector
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/clarice-lispector-la-mujer-mas-pequena-del-mundo/26487/
 

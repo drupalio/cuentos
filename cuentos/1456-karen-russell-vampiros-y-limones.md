@@ -1,6 +1,6 @@
 # Karen Russell: Vampiros y limones
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Karen Russell
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/karen-russell-vampiros-y-limones/3083/
 

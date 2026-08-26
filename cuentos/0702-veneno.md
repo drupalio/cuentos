@@ -1,6 +1,6 @@
 # Veneno
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Katherine Mansfield
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/katherine-mansfield-veneno/4249/
 

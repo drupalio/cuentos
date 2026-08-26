@@ -1,6 +1,6 @@
 # El círculo
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Oscar Cerruto
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/oscar-cerruto-el-circulo/7741/
 

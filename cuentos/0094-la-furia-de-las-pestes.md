@@ -1,6 +1,6 @@
 # La furia de las pestes
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Samanta Schweblin
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/samanta-schweblin-la-furia-de-las-pestes/8507/
 

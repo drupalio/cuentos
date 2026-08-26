@@ -1,6 +1,6 @@
 # Un suceso en el puente sobre Owl Creek
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ambrose Bierce
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ambrose-bierce-un-suceso-en-el-puente-sobre-owl-creek/27931/
 

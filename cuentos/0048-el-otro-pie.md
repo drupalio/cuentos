@@ -1,6 +1,6 @@
 # El otro pie
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Ray Bradbury
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/ray-bradbury-el-otro-pie/4218/
 

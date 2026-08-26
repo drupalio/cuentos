@@ -1,6 +1,6 @@
 # Un día típico
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Doris Piserchia
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/doris-piserchia-un-dia-tipico/26043/
 

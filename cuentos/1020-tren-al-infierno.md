@@ -1,6 +1,6 @@
 # Tren al infierno
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Robert Bloch
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/robert-bloch-tren-al-infierno/4129/
 

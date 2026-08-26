@@ -1,6 +1,6 @@
 # Tres rosas amarillas
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Raymond Carver
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/raymond-carver-tres-rosas-amarillas/24019/
 

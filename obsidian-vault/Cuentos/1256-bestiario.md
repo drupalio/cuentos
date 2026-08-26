@@ -1,11 +1,11 @@
 ---
 title: "Bestiario"
-author: "Juan Pablo Guevara"
+author: 'Autor:Julio CortázarTítulo:BestiarioPublicado en:Bestiario, 1951'
 source: 'https://lecturia.org/cuentos-y-relatos/julio-cortazar-bestiario/6885/'
 image: "1256-bestiario.jpg"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/autorjulio-cortázartítulobestiariopublicado-enbestiario-1951
 ---
 
 # Bestiario

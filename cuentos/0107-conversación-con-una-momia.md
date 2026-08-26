@@ -1,6 +1,6 @@
 # Conversación con una momia
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edgar Allan Poe
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-conversacion-con-una-momia/28037/
 

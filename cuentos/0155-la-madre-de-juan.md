@@ -1,6 +1,6 @@
 # La madre de Juan
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Juan Radrigán
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/juan-radrigan-la-madre-juan/1038/
 

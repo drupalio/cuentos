@@ -1,6 +1,6 @@
 # La debutante
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Leonora Carrington
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/leonora-carrington-la-debutante/15630/
 

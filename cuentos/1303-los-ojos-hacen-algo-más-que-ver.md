@@ -1,6 +1,6 @@
 # Los ojos hacen algo más que ver
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Isaac Asimov
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/isaac-asimov-los-ojos-hacen-algo-mas-que-ver/6058/
 

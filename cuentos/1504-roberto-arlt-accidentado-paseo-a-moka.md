@@ -1,6 +1,6 @@
 # Roberto Arlt: Accidentado paseo a Moka
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Roberto Arlt
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/roberto-arlt-accidentado-paseo-moka/999/
 

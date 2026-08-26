@@ -1,6 +1,6 @@
 # Victorio Ferri cuenta un cuento
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Sergio Pitol
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/sergio-pitol-victorio-ferri-cuenta-un-cuento/2075/
 

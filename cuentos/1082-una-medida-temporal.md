@@ -1,6 +1,6 @@
 # Una medida temporal
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Jhumpa Lahiri
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jhumpa-lahiri-una-medida-temporal/2642/
 

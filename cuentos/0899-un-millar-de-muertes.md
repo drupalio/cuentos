@@ -1,6 +1,6 @@
 # Un millar de muertes
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Jack London
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/jack-london-un-millar-de-muertes/4164/
 

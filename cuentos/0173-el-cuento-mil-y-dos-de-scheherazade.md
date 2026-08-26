@@ -1,6 +1,6 @@
 # El cuento mil y dos de Scheherazade
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Edgar Allan Poe
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/edgar-allan-poe-el-cuento-mil-y-dos-de-scheherazade/27732/
 

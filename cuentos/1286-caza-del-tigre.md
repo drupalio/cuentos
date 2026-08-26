@@ -1,6 +1,6 @@
 # Caza del tigre
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Horacio Quiroga
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/horacio-quiroga-caza-del-tigre/6475/
 

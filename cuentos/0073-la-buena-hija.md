@@ -1,6 +1,6 @@
 # La buena hija
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Almudena Grandes
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/almudena-grandes-la-buena-hija/28221/
 

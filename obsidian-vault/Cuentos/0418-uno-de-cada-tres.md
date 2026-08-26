@@ -1,11 +1,11 @@
 ---
 title: "Uno de cada tres"
-author: "Juan Pablo Guevara"
+author: 'Se lo diré con toda franqueza: me da usted lástima. Pero este sentimiento no sólo resulta natural, sino que está de acuerdo con sus deseos. Pertenece usted a esa taciturna porción de seres humanos que encuentran en la conmiseración ajena un lenitivo a su dolor. Le ruego que se consuele: su caso nada tiene de extraño. Uno, de cada tres, no busca otra cosa, en las más disimuladas formas. Quien se queja de una enfermedad tan cruel como imaginaria, la que se anuncia abrumada por el pesado fardo de los deberes domésticos, aquel que publica versos quejumbrosos'
 source: 'https://lecturia.org/cuentos-y-relatos/augusto-monterroso-uno-de-cada-tres/19441/'
 image: "0418-uno-de-cada-tres.webp"
 tags:
   - cuento
-  - autor/juan-pablo-guevara
+  - autor/se-lo-diré-con-toda-franqueza-me-da-usted-lástima-pero-este-
 ---
 
 # Uno de cada tres

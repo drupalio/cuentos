@@ -1,6 +1,6 @@
 # El sencillo don Rafael, cazador y tresillista
 
-**Autor:** Juan Pablo Guevara
+**Autor:** Miguel de Unamuno
 
 **Fuente:** https://lecturia.org/cuentos-y-relatos/miguel-de-unamuno-el-sencillo-don-rafael-cazador-y-tresillista/4076/
 
